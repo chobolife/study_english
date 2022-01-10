@@ -14,7 +14,7 @@ For example,
 > I like to watch movies.\
 > I like watching movies.\
 > I like to play golf.\
-> I like playing golf.\
+> I like playing golf.
 
 You can emphasize how much you like your hobby by adding a word like _really_ in front of "like".
 > I really like watching movies.
