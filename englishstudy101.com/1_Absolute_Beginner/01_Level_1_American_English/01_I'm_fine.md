@@ -4,8 +4,8 @@ If someone says:
 > How are you?
 
 You can say:
-> I'm fine.
-> Pretty good.
+> I'm fine.\
+> Pretty good.\
 > Not bad.
 
 Let's look at our question again: _How are you?_ You could use it when you want to be polite.
@@ -19,7 +19,7 @@ You can answer this in many ways.
 > Pretty good.\
 > Not bad.
 
-Even though these answers mean the same thing as _"I'm fine"_, you can't answer _"How's it going?"_ within _"I'm fine."_ It will sound a bit strange.
+Even though these answers mean the same thing as _"I'm fine"_, **you can't answer _"How's it going?"_ within _"I'm fine."_ It will sound a bit strange.**
 
 If you're not feeling good, you can say:
 > Not so good.\
@@ -28,14 +28,14 @@ If you're not feeling good, you can say:
 
 If you say one of these, the other person will usually ask, _"Why, what's wrong?"_ to be polite. Then, you will have to explain!
 
-Another casual, but very common version of "How are you?" is
+Another casual, but very common version of _"How are you?"_ is
 > What's up?
 
 To reply, use a cheerful voice as you say:
 > Not much!\
 > Nothing much!
 
-Since "What's up" is just another way of saying "Hello", you can also reply with:
+Since _"What's up"_ is just another way of saying _"Hello"_, you can also reply with:
 > Hey!\
 > Hi!
 
