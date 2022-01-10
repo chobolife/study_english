@@ -13,18 +13,18 @@ If the name of the city of town is part of the university's name, like Tokyo Uni
 > I went to Tokyo University in Japan.
 
 Once you've heard the other person's answer, it's polite to make somd kind of comment. For example,
-> Wow, that's a really famous university.
+> Wow, that's a really famous university.\
 > Oh, really?
 
 Sometimes the other person might reply:
 > I didn't go to college.
 
 In this situation, you should be careful how you reply so as not to appear rude. It's polite to not act surprised, but instead make a positive comment like:
-> Oh, really!
+> Oh, really!\
 > Did you go straight into a job?
 
 A good follow-up question to keep the conversation going is to ask the other person:
-> What did you study?
+> What did you study?\
 > What was your major?
 
 This gives them an opportunity to talk about something they're interested in.
