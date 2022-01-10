@@ -8,10 +8,12 @@ You can say:
 
 Here are some other ways to answer:
 > Pretty good.
+
 This means about the same thing as "I'm fine."
 
 We also have:
 > Not bad.
+
 You can use this if you are feeling just okay, or so-so.
 
 Let's look at our question again: How are you?
@@ -33,6 +35,7 @@ If you're not feeling good, you can say:
 > Not so good.
 > Not great.
 > Not so well.
+
 If you say one of these, the other person will usually ask, "Why, what's wrong?" to be polite. Then, you will have to explain!
 
 Another casual, but very common version of "How are you?" is "What's up?"
