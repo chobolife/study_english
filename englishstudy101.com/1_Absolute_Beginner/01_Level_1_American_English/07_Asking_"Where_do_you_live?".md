@@ -23,9 +23,9 @@ The other person is just being polite by showing interest, so you can reply by s
 
 Since the other person is asking you this question to be polite, a good way to continue the conversation is to ask them the same question in return. You can just say:
 > How about you"\
-> Where do you live?
+> Where do __you__ live?
 
-Put some stress on the __you__
+Put some stress on the __you__.
 
 Asking where someone lives is a way to try to find something you have in common with the person you're talking to - so if you're familiar with the other person lives in, make some comments about it!
 > That's a really nice area.\
