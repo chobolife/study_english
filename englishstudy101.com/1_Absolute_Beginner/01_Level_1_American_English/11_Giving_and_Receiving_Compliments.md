@@ -23,7 +23,7 @@ The usual answer to them is something like:
 This is appropriate if you bought the item in the country you're currently in. If you bought it in a different country, though, it's usual to say:
 > I got it in [country name].
 
-In some countries it's considered totally fine and even polite to ask how much something cost, but in most English-speaking countries like the UK, Australia and America, this is usually considered very rude. Remember not to say something like
+In some countries it's considered totally fine and even polite to ask how much something cost, but in most English-speaking countries like the UK, Australia and America, this is usually considered very rude. _Remember not to say something like_
 > It looks expensive!\
 > How much was it?
 
