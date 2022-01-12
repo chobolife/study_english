@@ -2,14 +2,16 @@
 
 > Are you married?
 
-However, this is a little blunt, and can come across as slightly rude, or sound as if you're trying to pick up the other person. There's a really important little trick you can us to ask this question naturally. And that's to say:
+However, this is a little blunt, and can come across as slightly rude, or sound as if you're trying to pick up the other person. There's a really important little trick you can use to ask this question naturally. And that's to say:
 
 > Are you married, or ...?
 
 You stretch out the sound of the _or_. This has the effect of softening the question and making it sound less direct.
 
-The answer will most likely sound like this:
-> Yeah, I've been married for 10 years.\
+If the other person is married, the answer will most likely sound like this:
+> Yeah, I've been married for 10 years.
+
+If you're not married but are engaged, then how would you answer this? Just say:
 > Not yet, but I'm engaged.
 
 The correct response to this, by the way, is usually _"Congratulations!"_
