@@ -17,7 +17,7 @@ Recently, many people use social networks like Facebook or Linkedin, or an onlin
 > Are you on Skype?
 
 To answer, you can simply say:
-> Yes, I am.
+> Yes, I am.\
 > No, I'm not.
 
 If you respond with _"Yes, I am"_, the other person may ask how they can connect with you on one of these services.
