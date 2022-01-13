@@ -21,6 +21,7 @@ People may be a little more indirect because they want to be polite. To do this,
 
 For example, if you meet someone in New York, they might ask:
 > Are you from New York?
+
 or if you are in San Diego, the might ask
 > Are you from San Diego?
 
