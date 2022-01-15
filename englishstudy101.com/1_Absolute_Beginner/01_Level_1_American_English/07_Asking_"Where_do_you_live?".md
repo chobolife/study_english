@@ -22,7 +22,7 @@ So as you can see, there are lots of possible ways to answer the question _"Wher
 The other person is just being polite by showing interest, so you can reply by saying something like _"Oh, really?"_
 
 Since the other person is asking you this question to be polite, a good way to continue the conversation is to ask them the same question in return. You can just say:
-> How about you"\
+> How about you?\
 > Where do __you__ live?
 
 Put some stress on the __you__.

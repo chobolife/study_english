@@ -9,7 +9,7 @@ In American English, depending on context, _school_ often means the same as _col
 The answer to this question is really easy! All you say is: _"I went to [University], in [City]."_
 > I went to Southen Oregon University in Ashland.
 
-If the name of the city of town is part of the university's name, like Tokyo University, or Oxford University, you can add the name of the country instead.
+If the name of the city of town is part of the university's name, like _Tokyo University_, or _Oxford University_, you can add the name of the country instead.
 > I went to Tokyo University in Japan.
 
 Once you've heard the other person's answer, it's polite to make somd kind of comment. For example,
