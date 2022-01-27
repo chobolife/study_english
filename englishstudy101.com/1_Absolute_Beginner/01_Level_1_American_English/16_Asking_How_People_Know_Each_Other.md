@@ -16,15 +16,15 @@ Another way to answer this is to state your current connection with the other pe
 > We have a friend in common.
 
 The next logical step in the converstaion is to expand on what you've just learned.
-> > We met at school.\
-> Where was your school?\
-> Which school?
+> We met at school.\
+> - Where was your school?\
+> - Which school?
 
-> > We met at work.\
-> Where do you work?\
-> What kind of job do you do?
+> We met at work.\
+> - Where do you work?\
+> - What kind of job do you do?
 
-> > We met through a friend.\
-> Anyone I know?
+> We met through a friend.\
+> - Anyone I know?
 
 Note that sometimes in the United States people call this converstaion, in which you try to work out what the connection between the two of you is, _the name game_.
