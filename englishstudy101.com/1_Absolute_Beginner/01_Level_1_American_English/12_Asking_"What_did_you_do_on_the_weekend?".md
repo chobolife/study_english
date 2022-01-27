@@ -16,7 +16,7 @@ A few possible responses to this are:
 > I like going to bars with my friends.\
 > I like going clubbing with my friends.\
 > I like hanging out with my friends.\
-> I don't really drinking/clubbing, so I just like [whatever you like doing instead].
+> I don't really like drinking/clubbing, so I just like [whatever you like doing instead].
 
 A handy way to turn the question back on the person asking is just to say:
 > How about you?
