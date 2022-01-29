@@ -7,8 +7,10 @@
 
 > - Hey, what gives?
 
+> - That huge head is an easy target.
 > - It's visible from space.
 
+> - What's that?
 > - Is that what the kids are wearing these days?
 
 > - Bread Barber?
