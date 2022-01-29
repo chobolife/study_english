@@ -46,7 +46,7 @@
 > - Hey Bread. That's no use. You'd better off helping us now.
 
 > - Choco, tell me how many customers have we had since opening?
-> - 3502.
+> - Three thousand five hundred and two.
 > - How many have we given up on?
 > - Exactly zero.
 > - You hear that? As long as I've been in business I haven't given up once.
