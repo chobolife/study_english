@@ -26,9 +26,9 @@
 > - This one here.
 > - How to make it small... that's some noggin you've got.
 > - Facial massagers should do the trick.
-> - That didn't work
+> - That didn't work.
 
-> - How's that smaller right?
+> - How's that? Smaller, right?
 > - That's amazing. Thank you Mr. Bread.
 
 > - There! Beautiful fake afros your style.
@@ -50,7 +50,7 @@
 > - How many have we given up on?
 > - Exactly zero.
 > - You hear that? As long as I've been in business I haven't given up once.
-> - That's right not once have I turned customers away from here. But today we'll have to be a first for you three.
+> - That's right. Not once have I turned customers away from here. But today we'll have to be a first for you three.
 > - Oh you can't be serious right now.
 > - I've never been more serious. Get out now!
 > - What a rocket! I'm done with this place.
