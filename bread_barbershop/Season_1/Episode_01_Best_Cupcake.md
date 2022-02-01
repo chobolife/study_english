@@ -23,7 +23,7 @@
 
 > - Master bread! We could really use your help here.
 
-> - Here flip through and pick a style you like.
+> - Here. Flip through and pick a style you like.
 > - Thanks.
 > - This one here.
 > - How to make it small... that's some noggin you've got.
