@@ -5,6 +5,7 @@
 > - It's so huge like a globe or something. You're like a basketball.
 > - It's regular sized.
 
+> - Welcome.
 > - Hey, what gives?
 
 > - That huge head is an easy target.
@@ -17,6 +18,7 @@
 
 > - Hello. Is this the Bread Barber?
 
+> - All done, madam.
 > - You really are the best in town.
 > - Yes, it's all true.
 > - Always good to see you.
@@ -35,6 +37,7 @@
 
 > - There! Beautiful fake afros your style.
 > - I can't believe how easily you were able to.
+> - Oh, no.
 
 > - What have I done?
 > - You made him cry.
@@ -42,6 +45,7 @@
 > - We're trying to get some new hairdos.
 > - We're gonna be displayed in the bakery window. We'll need it soon.
 > - Guys, look! It's big head cupcake. He's here for a haircut.
+> - Hey.
 > - Hang on. Don't tell me you're trying to get into the display case.
 > - Yeah right. There's no way with that big head.
 > - And new hair won't help.
@@ -70,6 +74,7 @@
 > - Why that's a cupcake fit for a king.
 
 > - Wow I've never seen someone so stylish.
+> - I know. He's so awesome.
 > - It's all thanks to Mr. Bread.
 
 > - Didn't you hear? This is where the best seller got his hair done.
