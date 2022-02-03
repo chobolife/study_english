@@ -1,7 +1,11 @@
 # English Conversation
 
-## Audio
-[Webapp Link](https://mhe-language-lab.s3.amazonaws.com/index.html)
+## Book information
+![English Conversation](https://www.mhprofessional.com/media/catalog/product/cache/1/image/9df78eab33525d08d6e5fb8d27136e95/9/7/9781260462166.jpg)
+- **Title**: Practice Makes Perfect: English Conversation, Premium Third Edition
+- **Authors**: Jean Yates
+- **Published**: March 4th 2020
+- **Edition**: 3
 
 ## Table of Contents
 1. Introducing yourself and others
@@ -18,9 +22,9 @@
 1. Retelling a conversation
 1. Talking about controversial issues
 
-## Book information
-![English Conversation](https://www.mhprofessional.com/media/catalog/product/cache/1/image/9df78eab33525d08d6e5fb8d27136e95/9/7/9781260462166.jpg)
-- Title: Practice Makes Perfect: English Conversation, Premium Third Edition
-- Authors: Jean Yates
-- Published: March 4th 2020
-- Edition: 3
+## Audio
+[Webapp Link](https://mhe-language-lab.s3.amazonaws.com/index.html)
+Click
+- English (ESL)
+- PMP English Conversation
+
