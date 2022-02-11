@@ -14,4 +14,31 @@
 - Matt: Thanks so much. I really appreciate that. I'm still a bit _jet-lagged_ at the moment, but I should be in good shape by tomorrow. I'm looking forward to hearing what John has _in store for_ me.
 - Todd: Don't worry. We'll all take good care of you. And don't be surprised if we show up on your doorstep in San Diego one day. Ready for surfing!
 
-## Points to learn
+## Improving your conversation
+
+- I'm Todd (Jones)
+- Glad/happy to meet you
+- Right?
+- Correct!
+- Am, do, etc.
+- As a matter of fact
+- Just
+- To get in
+- I can assure you that.../you can be sure (that)...
+- Party animal
+- Extraordinaire
+- What do you do?
+- Tell me about yourself
+- Awesome
+- Nonstop schedule
+- A mix
+- Hopefully
+- A couple of
+- A good guy
+- The local scene
+- To show someone a good time
+- Thanks so much
+- To be in good shape
+- To be looking forward to something
+- To have in store for
+- To show up on someone's doorstep

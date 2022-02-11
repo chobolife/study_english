@@ -1,6 +1,6 @@
 # Expressions opinions, likes, and dislikes
 
-## Conversation: Getting acquaint
+## Conversation: Getting acquainted
 
 - Lauren: Hi, you must be Sarah, I can tell from your picture. I'm Lauren, Finally we meet! So we're going to be roomies this semester!
 - Sarah: Yes, I recognize you from your photo, too! I'm so glad to meet you in person. And I see from your T-shirt that you like baseball. I'm a big fan, too!
@@ -19,4 +19,4 @@
 - Sarah: No, I agree with you. They're horrible. with a couple of coats of paint and a few small changes, we'll make this room comfortable and cozy. Everybody will wanna hang out here.
 - Lauren: Man, I'm so relieved! I think we're really going to _get along_. I'm going to call my mom right now, and tell her how cool my roomie is.
 
-## Points to learn
+## Improving your conversation
