@@ -1,5 +1,34 @@
 # Prepositions: In and On
 
+Use **in** as a preposition to indicate:
+- the position or location
+  - The towels are in the dryer.
+- the year of occurrence
+  - We married in 2003.
+- the months and seasons
+  - My flower garden is beautiful in the summer.
+- points of the day
+  - He left in the afternoon. (exception: at night)
+- location within countries, cities, states, and provinces
+  - She goes to school in Montreal.
+  - He lives in Ohio.
+  - We had fun in Mexico.
+  - I met him in British Columbia.
+
+Use **on** as a preposition to indicate:
+- an object supported by a top surface
+  - The cup is on the table.
+- the directional position of something
+  - It's the first door on the left.
+- a time of occurrence
+  - I worked on the weekend.
+- a method of transportation
+  - I felt sick on the plane. (exception: in the air)
+- the means of expression
+  - We talked on the phone for two hours.
+- the subject of study
+  - I have a good book on horses.
+
 ## 22-1
 
 1. The garbage can is in the garage.
