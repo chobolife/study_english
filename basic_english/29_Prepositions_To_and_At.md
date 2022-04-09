@@ -1,5 +1,17 @@
 # Prepositions: To and At
 
+Use **to** as a preposition to describe a movement or an action toward a person, place, or thing.
+- I walk to school.
+- She goes to the bank every week.
+
+Use **at** as a preposition to describe an action performed when a person or thing arrives at a location.
+- We learn a lot at school.
+- I hurt my knee at the playground.
+
+Use **at** as a preposition to refer to time.
+- We have a meeting at three o'clock.
+- He eats breakfast at 7:30 A.M.
+
 ## 29-1
 
 1. Please explain this to me.
