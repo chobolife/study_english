@@ -64,9 +64,9 @@
 | knit | knitted/knit | knitted/knit |
 | know | knew | known |
 | lay (to place, put down) | laid | laid |
-| lead | led | led | |
-| leave | left | left | |
-| lend | lent | lent | |
+| lead | led | led |
+| leave | left | left |
+| lend | lent | lent |
 | let | let | let | |
 | lie (to lie down) | lay | lain |
 | light | lit | lit |
@@ -101,7 +101,7 @@
 | shrink | shrank | shrunk |
 | shut | shut | shut |
 | sing | sang | sung |
-| sink | sang | sunk |
+| sink | sank | sunk |
 | sit | sat | sat |
 | sleep | slept | slept |
 | slide | slid | slid |
@@ -118,7 +118,7 @@
 | stick | stuck | stuck |
 | sting | stung | stung |
 | strike | struck | struck |
-| swear | swore | storn |
+| swear | swore | sworn |
 | sweep | swept | swept |
 | swell | swelled | swelled/swollen |
 | swim | swam | swum |
@@ -127,7 +127,7 @@
 | teach | taught | taught |
 | tear | tore | torn |
 | tell | told | told |
-| think | tought | thought |
+| think | thought | thought |
 | throw | threw | thrown |
 | understand | understood | understood |
 | upset | upset | upset |
