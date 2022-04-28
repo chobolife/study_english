@@ -29,19 +29,16 @@
 * * *
 - That's all right. Just a part of growing up.
 - Wow. Why don't we watch some cartoons on my tablet?
-* * *
 - I haven't even paid that off yet.
 * * *
 - Buy a new one. There's that new model.
 * * *
-- I've got justice.
 - He's the coolest donut ranger, isn't he?
 - I swear in the name of gluten.
 - No sir, don't lose your cool. He's just a child.
 - You rascal! Very ranger was a limited edition!
 * * *
 - All right. This was all a waste of time. We'll leave. He is too much for you.
-* * *
 - Please don't go. Choco, bring it to me.
 - But... are you sure that there's no other way?
 - Just bring it to me.
@@ -58,7 +55,7 @@
 * * *
 - Oh hey, how come you're in so early?
 - Ah I'm never cutting another kid's hair as long as I live.
-- Please don't make a sin. Master bread is going to cut your hair so nice.
+- Please don't make a scene. Master bread is going to cut your hair so nice.
 - I won't. No way.
 - I heard that he is best with the kids.
 - Yes, he is. I heard that, too.
