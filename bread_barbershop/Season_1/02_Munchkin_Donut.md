@@ -48,7 +48,6 @@
 - What is that?
 - Mom, looks so funny!
 - He's calm down now. Timely style.
-* * *
 - I've never seen someone work so quickly like that! It's like the raisin gave him superpowers.
 - Yeah that's true. It's not the first time he's had to pull out all the stops.
 - He looks so good. I'll tell all the other parents about you.
