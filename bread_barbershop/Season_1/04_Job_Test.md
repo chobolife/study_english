@@ -21,20 +21,20 @@
 * * *
 - Um, let's get on with that test.
 - First test, three layers of whipped cream.
-- I bet this will be a piece of cake, even though I failed the subject a bunch of times. I'm sure it's something I can do.
+- I bet this will be a piece of cake. Even though I failed the subject a bunch of times, I'm sure it's something I can do.
 - Wow. Mr. Bread, is this the very same whipped cream that you use? Time to show you what great work I can do and get the job.
-- Uh, it's not working hang on.
+- Uh, it's not working. Hang on.
 - It's stuck, but I'll just press hard and see what I can do.
 * * *
 - Oh are you serious? Clean this up immediately!
 - Yes sir, right away. Let me clean this up for you.
-- Ah
+- Ah.
 - Holy cannoli! This head massage is the best thing since sliced bread.
 - It brings me back to the good days when mom would lull me to sleep in the summertime after eating a fresh snack.
-- All right. I've cleaned up the cream ma'am. I'm sorry for the ...
+- All right. I've cleaned up the cream, ma'am. I'm sorry for the ...
 - You're fine. But rub my head again, won't you?
 - Huh?
-- That was the best massage ever. A minute, no a second will do
+- That was the best massage ever. A minute, no, a second will do
 - Okay.
 * * *
 - Well, then... Thank you for the opportunity. Bye.
@@ -44,16 +44,18 @@
 - Um. Since you failed that first test, don't mess up this time. The most important thing is a clean shop. Since the cream was your fault, you must clean it up.
 - A cleaning test cup you bet. I had cleaning duty every time I came last in school.
 - Oh great. I'm filled with confidence.
+* * *
 - What's that? Can't they see I just mopped this? I got this.
 - Huh? what?
 - This milk is really incompetent. You ...
 - You poor little thing. You haven't used a mop before?
-- You kids don't know how to work. I still do my son's laundry. Son, hand me that.
+- You kids don't know how to work. I still do my son's laundry.
+- Son, hand me that.
 - Nah I got it.
 - Here's how it's done. Go like this, front to back.
-- Wow awesome. Thank you
+- Wow awesome. Thank you.
 - Seems this kid's got a way about him, no?
-- Hmm, people think he's cute I guess I'll give him one more chance.
+- Hmm, people think he's cute. I guess I'll give him one more chance.
 * * *
 - Wilk, even after failing these two tests, there's one more chance.
 - Master, thanks so much.
@@ -68,14 +70,13 @@
 * * *
 - Where is that kid? He's gonna pay for every cent of fixing my roof!
 - Hey! That's the place!
-- This is the famous bread barber shop right?
+- This is the famous Bread Barbershop right?
 - Are you the owner?
 - The flying billboard idea was super cool.
-- Yeah now you do our hair.
+- Yeah, now you do our hair.
 * * *
 - I'm so sorry Master Bread. I know I messed up, but I'll pay for your roof and stuff.
-- Well, so glad you're back in one piece.
-- That was the test, you passed it. You can start to work here right away.
+- Wilk! So glad you're back in one piece. That was the test, you passed it. You can start to work here right away.
 - I ... really?
 - I'll do whatever you ask of me. I'll work so hard, sir.
 - Okay, I'm sure you will.
