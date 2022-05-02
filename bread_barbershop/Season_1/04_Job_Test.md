@@ -22,11 +22,11 @@
 - Um, let's get on with that test.
 - First test, three layers of whipped cream.
 - I bet this will be a piece of cake. Even though I failed the subject a bunch of times, I'm sure it's something I can do.
-- Wow. Mr. Bread, is this the very same whipped cream that you use? Time to show you what great work I can do and get the job.
+- Wow. Master Bread, is this the very same whipped cream that you use? Time to show you what great work I can do and get the job.
 - Uh, it's not working. Hang on.
 - It's stuck, but I'll just press hard and see what I can do.
 * * *
-- Oh are you serious? Clean this up immediately!
+- Oh, are you serious? Clean this up immediately!
 - Yes sir, right away. Let me clean this up for you.
 - Ah.
 - Holy cannoli! This head massage is the best thing since sliced bread.
@@ -34,7 +34,7 @@
 - All right. I've cleaned up the cream, ma'am. I'm sorry for the ...
 - You're fine. But rub my head again, won't you?
 - Huh?
-- That was the best massage ever. A minute, no, a second will do
+- That was the best massage ever. A minute, no, a second will do.
 - Okay.
 * * *
 - Well, then... Thank you for the opportunity. Bye.
@@ -70,19 +70,18 @@
 * * *
 - Where is that kid? He's gonna pay for every cent of fixing my roof!
 - Hey! That's the place!
-- This is the famous Bread Barbershop right?
+- This is the famous Bread Barbershop, right?
 - Are you the owner?
 - The flying billboard idea was super cool.
 - Yeah, now you do our hair.
 * * *
 - I'm so sorry Master Bread. I know I messed up, but I'll pay for your roof and stuff.
 - Wilk! So glad you're back in one piece. That was the test, you passed it. You can start to work here right away.
-- I ... really?
-- I'll do whatever you ask of me. I'll work so hard, sir.
+- I ... really? I'll do whatever you ask of me. I'll work so hard, sir.
 - Okay, I'm sure you will.
 * * *
-- Whoa, there it is again! the flying billboard.
+- Whoa, there it is again! The flying billboard.
 - It gets better anytime I see it.
 - Master, how much longer do I have to do this?
 - Hang in there kid. Almost lunch break.
-- You got it, master Bread.
+- You got it, Master Bread.
