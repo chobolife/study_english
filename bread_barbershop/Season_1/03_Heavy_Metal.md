@@ -11,7 +11,7 @@
 * * *
 - Those guys have it made!
 - Oh, if only we could be like those guys.
-- It's because they have style.
+- It's cause they have style.
 - Style?
 * * *
 - Hey, excuse me.
@@ -32,7 +32,7 @@
 - If that's what the kids are into these days.
 - With this new style we'll be the biggest rock band of all time.
 - Crumbs yeah. We'll be super rock and roll.
-- Yo we'll show them the spirit of rock!
+- Yo, we'll show them the spirit of rock!
 * * *
 - Well, all done.
 - What is that?
@@ -47,7 +47,7 @@
 - 100 dollars? That's it. You're not getting a cent of our job. Come on. Let's go.
 - We're done.
 - There's no leaving until you pay up.
-- Come on. You don't know who we are. You guys, let's show them our rage.
+- What? Come on. You don't know who we are. You guys, let's show him our rage.
 * * *
 - You guys okay? That bread you're really gonna get it now.
 - Wait. Look at our style. It's rad.

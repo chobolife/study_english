@@ -21,6 +21,7 @@
 - You really are the best in town.
 - Yes, it's all true.
 - Always good to see you.
+- I'm a new cake.
 * * *
 - Master bread! We could really use your help here.
 * * *
