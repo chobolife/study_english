@@ -38,11 +38,11 @@
 - Thank you sir.
 * * *
 - You all right with a little pain?
-- Sure of course. I'm willing to do whatever it takes. Give me all you got.
+- Sure, of course. I'm willing to do whatever it takes. Give me all you've got.
 - Let's start. Tweezers!
 * * *
-- Stay tuned. This part requires precision.
-- It'll take forever.
+- Stay still. This part requires precision.
+- Wow. It'll take forever.
 - That's true. I'll have to use this.
 - A mask that peels off?
 - Just stay still. Hang on.
@@ -72,9 +72,9 @@
 - Holy crust I'm a whole hour late now.
 - Oh, man. My old face. How can I meet cookie with all this crust?
 - Is that you? What took you so long? I was about to leave since you stood me up.
-- I know I just wanted to look handsome. I tried to be here on time.
+- I know. I just wanted to look handsome. I tried to be here on time.
 - You know a proper man shows up on time and doesn't look disheveled. But the best kind of man is a kind-hearted one, like you Mr. Soboro.
-- Yep just like you. You only look disheveled because you helped that little boy get his balloon back. And you were late because you helped that old woman with her heavy cart.
+- Yep, just like you. You only look disheveled because you helped that little boy get his balloon back. And you were late because you helped that old woman with her heavy cart.
 - You saw that?
 - That's right. You did so many good deeds today Mr. Soboro.
 - Ah...

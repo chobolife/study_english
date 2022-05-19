@@ -35,10 +35,10 @@
 - You'd better do a good job. Or... mark my words. I'll burn this place to the ground.
 - That will not be necessary. I'll change that ugly face yet.
 - What? Why you are ...
-- I'll advise you not to move.
+- I'll advise you not to move. These tools are sharp.
 * * *
 - I guess it's pretty good.
-- Oh, this isn't good. Just look at this mess. How is this good? Here and here... the evil is still showing all over your face.
+- Oh, this is good? Just look at this mess. How is this good? Here and here... the evil is still showing all over your face.
 - My bling bling shoddy stars look has never failed before. You've tainted my style with your mean looking face.
 - You sure you're not a criminal or something?
 - But wait. I look like a pretty princess cupcake.
