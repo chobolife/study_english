@@ -3,7 +3,7 @@
 - Where did this filthy strike come from? Get lost! Don't you dare give my sebastian fleas?
 * * *
 - Working really hard is my quest. I'm gonna do my dairy best.
-- Oh goodness! Wait you gotta get out of there.
+- Oh goodness! Wait. You gotta get out of there.
 - Wow. You're cute. I'm Wilk, and what's your name?
 - Oh you're hungry, huh? Hang on.
 - There, you can have some fresh milk. Drink up.

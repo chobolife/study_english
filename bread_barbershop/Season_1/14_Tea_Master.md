@@ -1,0 +1,101 @@
+# Tea Master
+
+- Until next time.
+- Uh
+- Another job well done. Wilk, one cup of black tea please.
+- Yep.
+- Oh, there are so many types of tea.
+- Which one does he want? This one? This one?
+- It's all the same, right? They're all just leaves anyway. Release and water in a pot.
+- One black tea, Master Bread.
+- Thanks.
+- Wilk, this is green tea, not black tea.
+- Huh? So it's wrong?
+- You can't tell the difference between greed and black?
+- Try it yourself.
+- But all teas taste the same to me.
+* * *
+- See you tomorrow.
+- Have a good night, Master Bread.
+- Hey choco, are green tea and black tea the same?
+- Of course not. Why?
+- When Master Bread asked for black tea, I made him green tea instead and he got all mad.
+- I thought they were all the same.
+- You don't know anything, do you kid?
+- Tea is a part of our history.
+- In ancient times, a sticky rice cake brewed the best tea.
+- He served this tea to the king. It was so good he made that sticky rice cake the prime minister.
+- So making tea is ingrained in bakery town.
+- Whoa. So if I make good tea, master bread will make me prime minister or something?
+- Uh... Worth a shot.
+- Yeah. I'm not that good at cleaning or stuff like that but maybe making tea can be my thing then Master Bread will love me.
+* * *
+- Time to master a new hobby.
+- Boil the water to 100 degrees first.
+- Okay. The ratio of leaves to water should be one to no fifty.
+- No, no! That tastes like garbage.
+- * * *
+- Steam bun? Maybe I should go directly to the tea master.
+- Hey, good morning sir.
+- Morning.
+- Hey, why isn't wilk here?
+- Not sure. Found this when I came in
+- Master Bread. I've decided to become a tea master. I shall travel many miles to obtain this knowledge. Farewell.
+- Uh... Why is he the way that he is?
+* * *
+- Hello? Anyone here?
+- Are you the famous tea master? Nice to meet you.
+- I'm welcome I'd like your help
+- I don't sell directly to customers. You'll have to go to a store
+- Wait. I didn't come here to buy tea. I've come here to learn the art of making tea.
+- Please accept me as your humble student.
+- You think anyone can just come in here and learn?
+- I no longer take students
+- I refuse to leave this place not until you agree to teach me.
+- If you insist I shall take you on as my student.
+- But are you prepared to undergo extensive and rigorous training my boy?
+- Yes sir. I won't disappoint you sir.
+* * *
+- The purest tea comes from the purest water.
+- Collect the dewdrops from gentle leaves in the early morning.
+- Tea made from this water is exquisite and fresh. It is called morning glory leaf tea.
+- Tea can sense your passion.
+- Give it everything you've got.
+- Humble yourself before the tea pot.
+- Hey I'm still narrating here.
+- Tea doesn't care if you hurt your knee. This brew is called get up and stop being dramatic afternoon black tea.
+- Oh yeah. Oh man, this is tiring. I can do it!
+* * *
+- Wilk, you have mastered the art of the brew.
+- There is nothing more for you to learn here. You should return to your life.
+- But I'm not ready to leave. How can I make tea without your guidance?
+- Never fear. I have something for you here.
+- What's this?
+- There. A special tea set passed down through each generation of my family.
+- This is the tea set of the steam bun family legacy?
+- Yes. You deserve it after completing your training so well. Use it wisely.
+- Thank you so much. Thank you sir.
+- This thing retails for 5,500 bucks but I'll give you the special student discount of 5,000 flat.
+- Five thousand dollars? That's way more than I can afford.
+- Because you are such a good disciple, I'll throw in an extra teaspoon set for free. Can't brew amazing tea without this.
+- Three teaspoon set? You rule! I'm so happy I came here to learn sir.
+* * *
+- Huh? Wilk! Where have you been? What are you wearing?
+- Choco, I'll need silence in here, to brew the perfect pot of tea. Do you understand?
+- Good quality surely the steam bun family legacy will bless this tea.
+- Ah. Such a lovely shade. It's the color of years of love and respect for the art of tea.
+- I should give it a sip before giving it to Master Bread.
+- That's so gross. Why is it so bitter?
+- It expired 30 years ago? I can't believe that stupid bun!
+- All teas are the same. It's just dirty leaf water anyway.
+* * *
+- I spent all my money on this stupid set. This tastes like garbage.
+- What's this? That magical smell. Huh?
+- Master Bread, wait! NO!
+- Misty so good. Brings me back to my days of the English countryside.
+- I've done for I'm done.
+- Wilk, this tea is phenomenal. I've never tasted anything quite so good.
+- Wait, really? you know it.
+- It's royal milk tea. No, more like royal Wilk tea.
+- Wilk go make me some tea, tea master.
+- Yes sir.
