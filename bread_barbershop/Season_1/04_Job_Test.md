@@ -66,7 +66,8 @@
 - Uh? What's that?
 - Check out that flying sign! What a creative way to advertise!
 - I gotta show this to my friends.
-- High above bakery town the flying billboard has captured everyone's attention. Their way of using a hand mixer to fly is such a clever thing to do. It's something we won't forget.
+- High above bakery town the flying billboard has captured everyone's attention.
+- Their way of using a hand mixer to fly is such a clever thing to do. It's something we won't forget.
 * * *
 - Where is that kid? He's gonna pay for every cent of fixing my roof!
 - Hey! That's the place!
