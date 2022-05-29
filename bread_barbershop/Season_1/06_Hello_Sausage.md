@@ -21,9 +21,9 @@
 - There, you can stay in here from now on, okay?
 - I can't let my boss find out, okay?
 * * *
-- Hmm? Wilk, can you grab me more cream. Wilk?
+- Hmm? Wilk, can you grab me more cream? Wilk?
 - Where is that kid?
-- Wilk are you down here?
+- Wilk, are you down here?
 - What is going on?
 - Wilk!!!
 * * *
@@ -33,16 +33,16 @@
 * * *
 - Oh my crust, aren't you the cutest little thing?
 - Does this cute pup live in the shop?
-- Wow, he's so crazy.
+- Wow, he's so great.
 - Is it okay if I take a picture with your dog?
 - I...
 - Of course ma'am, of course.
-- Old Sausage here he's the mascot of our shop, right?  please take a picture as many as you'd like.
+- Oh, Sausage here he's the mascot of our shop, right? Please take a picture as many as you'd like.
+- Thanks so much.
 - Sir...?
 - And if you upload the picture, I'll give you a discount.
 - That's so cool! This place is awesome.
 * * *
 - Great. Whoever wants a discount on their cut, please line up over here now.
 - All right. Sausage is so super cute.
-- Down the count of three. Everyone smile.
-- One. Two. Sausage!
+- Down the count of three. Everyone smile. One. Two. Sausage!
