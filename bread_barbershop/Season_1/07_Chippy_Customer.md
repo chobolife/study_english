@@ -38,12 +38,12 @@
 - This is slander. Someone's just trying to bring us down.
 - Hey Wilk. Where'd you get that?
 - Oh this? The new hair salon across the street is giving away snacks.
-- It's... It's that nasty chip who came in here yesterday. He's the one behind all this I'm sure.
+- It's... It's that nasty chip who came in here yesterday. He's the one behind all this, I'm sure.
 - The nerve!
-- Tired of expensive haircuts? Don't want to wait too long for that new, dude? Come on down the potato chip hair shop.
+- Tired of expensive haircuts? Don't want to wait too long for that new do? Come on down the potato chip hair shop.
 - We're the fastest and cheapest shop this side of the bakery aisle.
 - Oh.
-- Every haircut just a buck in and out in 10 minutes.
+- Every haircut just a buck! In and out in 10 minutes.
 - I'll go check this out.
 - Master bread, I'm coming too.
 * * *
