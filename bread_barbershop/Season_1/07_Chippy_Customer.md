@@ -56,11 +56,11 @@
 - Master Bread. Don't feel down. There must be something we can do.
 - Good morning.
 - What's with the swater?
-- Oh well if we get flies, I figured I'd swat him as something to do.
+- Oh well, if we get flies, I figured I'd swat him as something to do.
 - Seriously?
 - Choco, you're so smart.
 - Wait a sec. How come there aren't any flies in the shop today?
-- Hey that's weird all the flies are gathered around potato chips shop.
+- Hey that's weird. All the flies are gathered around potato chip's shop.
 - They're what?
 * * *
 - Wow! even bugs like it.
