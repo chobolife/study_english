@@ -9,10 +9,10 @@
 - Well, someday I want to be a great barber like you.
 - That's nice, but I'm afraid we're not hiring anyone in the shop right now.
 - All right.
-- Wilk, now pull her out, would you?
+- Wilk, now put her out, would you?
 - You got it.
 * * *
-- Princess!
+- Princess! Did he hurt you?
 - She's... a princess?
 - That's right. We're booked for the next decade.
 - There's no space for all this cash.
@@ -22,7 +22,7 @@
 - Seems to me your legs look strong. That's perfect for working at a barber shop.
 - Oh, you think so?
 - Strength is vital. When you're standing on your feet forever, you must be strong.
-- So I could be a natural?
+- So... I could be a natural?
 - Yep. Then, you start tomorrow morning.
 - Thanks a lot!
 * * *
@@ -59,8 +59,8 @@
 - What do you mean?
 - My dad said if I got certified he'd give me my own salon to use and stuff on my own. But thanks for the training and all.
 * * *
-- Oh my. I hope it's not too busy. What fun. Ah.
+- Oh my. I hope it's not too busy. What fun. Ah?
 - What's going on?
 - Bread barbershop? Huh? Show the princess learn from him?
 - For him to teach her he must be even better than she is. Let's go to the source. He's the original anyway.
-- Come on let's go find him.
+- Come on. Let's go find him.

@@ -63,7 +63,7 @@
 - Hey that's weird. All the flies are gathered around potato chip's shop.
 - They're what?
 * * *
-- Wow! even bugs like it.
+- Wow! Even bugs like it.
 - Hmm... Something seems off.
 - Are you sure this is okay?
 - If you want to lose your job when the shop closes, be my guest.
