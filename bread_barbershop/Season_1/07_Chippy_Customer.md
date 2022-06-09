@@ -1,6 +1,6 @@
 # Chippy Customer
 
-- Wow, I thought this place would be fancier but, turns out it's kind of a dub.
+- Wow, I thought this place would be fancier, but turns out it's kind of a dub.
 - Welcome to our shop. How can we help you today?
 - How long do I gotta wait for a haircut?
 - The wait is about an hour right now.
@@ -67,14 +67,14 @@
 - Hmm... Something seems off.
 - Are you sure this is okay?
 - If you want to lose your job when the shop closes, be my guest.
-- Something's odd about this place let's go see.
+- Something's odd about this place. Let's go see.
 - This place is really new and modern inside.
-- That's a lot of whipped cream spray. Usually I have to make fresh whipped cream every morning but, this seems a lot more convenient.
+- That's a lot of whipped cream spray. Usually I have to make fresh whipped cream every morning, but this seems a lot more convenient.
 - Wilk! Watch out!
 - What a great idea this is!
 - Wilk, are you okay?
 - Help me. I think I broke my straw.
-- Huh? Whis stuff expired ages ago.
+- Huh? This stuff expired ages ago.
 - What? Are you serious?
 - And it's not just the cream, this fruit he's using is rotten and stale.
 - With all this mess it's no wonder the flies gather around this place.
