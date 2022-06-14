@@ -102,8 +102,8 @@
 - All the more for evidence.
 * * *
 - Get your hands off me. Dirty bacon donuts.
-- I was blamed.
-- Once a rising star now yesterday's rotten potato, a shocking story of filth and deceit as potato chips hair shop shuts down due to unsanitary practices.
+- I was framed.
+- Once a rising star now yesterday's rotten potato, a shocking story of filth and deceit as potato chip's hair shop shuts down due to unsanitary practices.
 * * *
 - I saw that coming. Everyone knows I'm the best. I wasn't worried at all.
 - Wilk, Choco. I'm expecting lots of customers today, so be prepared for them.
