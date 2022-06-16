@@ -12,7 +12,7 @@
 - Cut. You slipped again.
 - Someone call an ambulance.
 * * *
-- Listen Butter. Every time you slip up, we lose precious filming time. Maybe you just not cut off a movie.
+- Listen, Butter. Every time you slip up, we lose precious filming time. Maybe you just not cut off a movie.
 - It's a shame someone so handsome can't act.
 - I told the director he should have hired margarine instead.
 * * *
