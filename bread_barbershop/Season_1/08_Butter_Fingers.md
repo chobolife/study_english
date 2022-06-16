@@ -13,14 +13,14 @@
 - Cookie fell on a bathtub.
 - Someone call an ambulance.
 * * *
-- Listen, Butter. Every time you slip up, we lose precious filming time. Maybe you just not cut off a movie.
+- Listen, Butter. Every time you slip up, we lose precious filming time. Maybe you're just not cut out for a movie.
 - It's a shame someone so handsome can't act.
 - I told the director he should have hired margarine instead.
 * * *
 - Do you want skin as shiny as mine? Moisturize with canola cream.
 - What a handsome guy! If only I could have his looks for one day.
 - Please he's not that great. Back in my day I was a handsome loaf. Way better than this guy.
-- I heard Butter can't act, and that's why they haven't stuck doing commercials.
+- I heard Butter can't act, and that's why they have him stuck doing commercials.
 - That can't be! Nobody that handsome could be bad at anything at all. Those rumors aren't real.
 - Whatevs.
 - Is this the shop of Bread Barber?
