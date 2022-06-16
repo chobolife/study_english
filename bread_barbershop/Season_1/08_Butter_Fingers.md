@@ -1,4 +1,4 @@
-# Buffer Fingers
+# Butter Fingers
 
 - Do you happen to know how to spell menu?
 - Menu?
@@ -10,6 +10,7 @@
 - You know if you were a fruit, you'd be a fine apple.
 - Oh my!
 - Cut. You slipped again.
+- Cookie fell on a bathtub.
 - Someone call an ambulance.
 * * *
 - Listen, Butter. Every time you slip up, we lose precious filming time. Maybe you just not cut off a movie.
@@ -26,12 +27,12 @@
 * * *
 - No way! It's him! Master Bread. It's Butter the one and only!
 - Oh wow. Is it really you sir? You're even handsomer in real life.
-- That sugary sweet gays. Perfectly sculpted nose. Million what smile. It's just not fair that some people are born this way.
+- That sugary sweet gays. Perfectly sculpted nose. Million watt smile. It's just not fair that some people are born this way.
 - But why did you even come here? You can't possibly be improved.
 - Ah you're too kind. It's nothing like that at all.
 - You hush. There's plenty of things to fix. Hey you made the right decision coming in here today. Now what can I do for you? Make yourself comfortable.
-- Good crust. He's perfect. Wilk was right. He can't be improved.
-- Let's not waste time. You tell me exactly what it is you need me to do. Okay? Which hideous part of you do you hate the most?
+- Oh, crust. He's perfect. Wilk was right. He can't be improved.
+- Let's not waste time. You tell me exactly what it is you need me to do, okay? Which hideous part of you do you hate the most?
 - It's... I can't act because I have butterfingers.
 - That isn't any reason to shed tears. It'll be fine. Because I'll make sure you never let anything slip through your hands again.
 - Oh you would? If you could really fix that, I would owe you my entire career.
@@ -45,17 +46,16 @@
 - But now he's as pale as a ghost. He's straight out of a nightmare.
 - Nightmare?
 - Master Bread. Surely there's something else we can do?
-- Hmm got it. Wilk, go get me some fishnet stockings.
+- Hmm... got it. Wilk, go get me some fishnet stockings.
 - Okay.
-- Oh this stuff worked. I don't feel slippery anymore.
+- Oh. This stuff worked. I don't feel slippery anymore.
 - See how easy that was told you.
 - But uh. But... The love scene... What am I supposed to do in one of those?
-- Oh.
 - There. No slip.
-- But sir. We shouldn't have to cover up his face you know. He looks like a cheap burglar.
+- But sir. We shouldn't have to cover up his face you know. He looks like a chip burglar.
 - I don't want to cover up my face. Flaunted if you got it is what they say. Isn't there something else we can do?
 - Hmm I thought that would work. Ah yes. Wilk, go fix the honey jar from the third shelf.
-- Uh honey? If you say so.
+- Uh.. honey? If you say so.
 * * *
 - Wow.
 - Master, That's so cool. Plus, he's got a nice tan now.
@@ -67,7 +67,7 @@
 - Honey Butter. Your star is on the rise.
 - Honey Butter? That's amazingly cool. Thank you. Thank you so much.
 - How about a group photo before you go and pay?
-- Ah. Okay of course.
+- Ah. Okay, of course.
 - Me too, me too.
 * * *
 - I could have saved his career. Now it's just scandals.
