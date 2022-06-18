@@ -53,8 +53,8 @@
 - I no longer take students
 - I refuse to leave this place not until you agree to teach me.
 - If you insist I shall take you on as my student.
-- But are you prepared to undergo extensive and rigorous training my boy?
-- Yes sir. I won't disappoint you sir.
+- But are you prepared to undergo extensive and rigorous training, my boy?
+- Yes sir. I won't disappoint you, sir.
 * * *
 - The purest tea comes from the purest water.
 - Collect the dewdrops from gentle leaves in the early morning.
@@ -92,8 +92,8 @@
 - I spent all my money on this stupid set. This tastes like garbage.
 - What's this? That magical smell. Huh?
 - Master Bread, wait! NO!
-- Misty so good. Brings me back to my days of the English countryside.
-- I've done for I'm done.
+- Misty. So good. Brings me back to my days of the English countryside.
+- I've done for. I'm done.
 - Wilk, this tea is phenomenal. I've never tasted anything quite so good.
 - Wait, really? you know it.
 - It's royal milk tea. No, more like royal Wilk tea.

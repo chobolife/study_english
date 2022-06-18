@@ -39,8 +39,8 @@
 - Huh? what?
 - Overnight you became really good at this. Customers have been requesting your services.
 - Uh I...
-- I guess Wilk's finally ready to try his hand at this. After all it's only natural he's good, he was trained by me.
-- From what I saw yesterday the student has become the Master I think.
+- I guess Wilk's finally ready to try his hand at this. After all, it's only natural he's good, he was trained by me.
+- From what I saw yesterday, the student has become the Master I think.
 - What now?
 - Just beginner's luck.
 * * *
@@ -55,15 +55,15 @@
 - GO WILK! GO WILK!
 - Wilk's preoccupied, so someone needs to clean up around here.
 * * *
-- So tell me. Just where did you learn all these genius techniques from?
+- So, tell me. Just where did you learn all these genius techniques from?
 - Master Bread taught me everything I need to know.
-- Ah of course. Would you say he's your inspiration?
+- Ah, of course. Would you say he's your inspiration?
 - Choco, I cleaned Sausage's dookies again.
 - Great. Make sure you get the piddle in the corner too.
 * * *
 - Done! Super cool. Maybe it's cause you're fresh milk but you look good at any angle.
 - Thanks a bunch.
-- Master bread. Toilet's clog.
+- Master bread. Toilet's clogged.
 - Stupid toilet clogs every day.
 * * *
 - These things are the best! At this rate I don't know what I do without them.
@@ -75,7 +75,7 @@
 * * *
 - Where'd Wilk go?
 - He had to go interview on some talk show.
-- Also if you're done with the bathroom, you should do Wilk's office next.
+- Also, if you're done with the bathroom, you should do Wilk's office next.
 - I'm getting too old for this. That's what I get for letting my student get too good.
 - Mmm? I don't remember these. They're covered in rust.
 - That's just dangerous. These are useless.

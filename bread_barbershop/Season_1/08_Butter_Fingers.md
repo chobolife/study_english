@@ -26,7 +26,7 @@
 - Is this the shop of Bread Barber?
 * * *
 - No way! It's him! Master Bread. It's Butter the one and only!
-- Oh wow. Is it really you sir? You're even handsomer in real life.
+- Oh, wow. Is it really you, sir? You're even handsomer in real life.
 - That sugary sweet gays. Perfectly sculpted nose. Million watt smile. It's just not fair that some people are born this way.
 - But why did you even come here? You can't possibly be improved.
 - Ah you're too kind. It's nothing like that at all.
