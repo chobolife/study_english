@@ -30,8 +30,8 @@
 - That sugary sweet gaze. Perfectly sculpted nose. Million watt smile. It's just not fair that some people are born this way.
 - But why did you even come here? You can't possibly be improved.
 - Ah you're too kind. It's nothing like that at all.
-- You hush. There's plenty of things to fix. Hey you made the right decision coming in here today. Now what can I do for you? Make yourself comfortable.
-- Oh, crust. He's perfect. Wilk was right. He can't be improved.
+- You hush. There's plenty of things to fix. Hey you made the right decision coming in here today. Now what can I do for you?
+- Make yourself comfortable. Oh, crust. He's perfect. Wilk was right. He can't be improved.
 - Let's not waste time. You tell me exactly what it is you need me to do, okay? Which hideous part of you do you hate the most?
 - It's... I can't act because I have butterfingers.
 - That isn't any reason to shed tears. It'll be fine. Because I'll make sure you never let anything slip through your hands again.
