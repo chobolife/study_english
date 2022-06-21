@@ -37,7 +37,7 @@
 - That isn't any reason to shed tears. It'll be fine. Because I'll make sure you never let anything slip through your hands again.
 - Oh you would? If you could really fix that, I would owe you my entire career.
 - I'm such a slippery fool.
-- Please don't cry. If you get sad, then what up do the rest of us commenters have to be happy?
+- Please don't cry. If you get sad, then what hope do the rest of us commenters have to be happy?
 - Both of you hush up, now!
 - How to make something that has more grip? Aha! Wilk, go get me the powdered sugar.
 - Okay.
@@ -49,7 +49,7 @@
 - Hmm... got it. Wilk, go get me some fishnet stockings.
 - Okay.
 - Oh. This stuff worked. I don't feel slippery anymore.
-- See how easy that was told you.
+- See how easy that was? Told you.
 - But uh. But... The love scene... What am I supposed to do in one of those?
 - There. No slip.
 - But sir. We shouldn't have to cover up his face you know. He looks like a chip burglar.
@@ -62,9 +62,9 @@
 - Don't celebrate too soon. Here, try to shake my hand.
 - Uh. Of course.
 - Please work. Look at that! Master Bread. It really works!
-- Oh My! Can I really be grabbing your hand right? Now I can't believe it doesn't slip at all.
-- Well it looks like we're done. When you leave here today you'll have a whole new lease on life, a whole new you. And you should change your name.
-- Honey Butter. Your star is on the rise.
+- Oh My! Can I really be grabbing your hand right now? I can't believe it doesn't slip at all.
+- Well it looks like we're done.
+- When you leave here today you'll have a whole new lease on life, a whole new you. And you should change your name. Honey Butter. Your star is on the rise.
 - Honey Butter? That's amazingly cool. Thank you. Thank you so much.
 - How about a group photo before you go and pay?
 - Ah. Okay, of course.
