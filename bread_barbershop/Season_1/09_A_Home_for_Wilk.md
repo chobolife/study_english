@@ -4,13 +4,13 @@
 - Huh? Hello?
 - Oh, I hope I'm not interrupting anything.
 - Uh, landlady bread. What's the matter? I could have sworn I paid rent this month.
-- Well it is related to that. Things are getting expensive these days, young man. The price of real estate just goes up, you know. That's why your rent has to go up again.
+- Well, it is related to that. Things are getting expensive these days, young man. The price of real estate just goes up, you know. That's why your rent has to go up again.
 - What? That's not fun when my salary stays the same. How much is the rent going up?
 - Not very much at all. Just a thousand dollars.
 - What? A thousand who?
 - You should be grateful I'm not doubling it like other landlords.
 - But then I'm afraid that's just too much money for me to pay you.
-- My word. How do you expect me to keep up in today's economy? Get it together.
+- My word. How do you expect me to keep up with today's economy? Get it together.
 - But I... I can't afford to live here.
 - So... move somewhere else. It's no difference to me.
 - But... Wait! Please! Landlady!
@@ -18,7 +18,7 @@
 * * *
 - One thousand... One thousand dollars more?
 - I get paid 1,500. After rent, food, city bus, bills, and anything fun like donut ranger movies and everything else I gotta pay, I barely get by.
-- But another thousand? No. Even I know that math doesn't work. Oh no. This is bad I'm done for.
+- But another thousand? No. Even I know that math doesn't work. Oh no. This is bad. I'm done for.
 - Wilk, What's up?
 - Choco.
 - Who beat you up?
