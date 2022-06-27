@@ -30,7 +30,7 @@
 - So silly. You know memories won't keep food on the table, right?
 - I guess I really have to move.
 * * *
-- Hello sir. Welcome to half-baked realty for all your moving needs. Now how can I be of help to you?
+- Hello sir. Welcome to Half Baked Realty for all your moving needs. Now how can I be of help to you?
 - I need a new home. Someplace cheap but with a barbecue and a pool.
 - No, you're asking far too much. You can only pick one, cheap or good.
 - Is that so?
@@ -51,7 +51,7 @@
 - Yeah, just another four or five hours left to go.
 - Four hours? But we've already been driving for four hours already. Is this place in a whole different town?
 - It's still in bakery town. It's the outer suburbs. Living out in the country might be good for you.
-- Huh? Bring me back to the city. I'm not ready to be put on the pasture.
+- Huh? Bring me back to the city. I'm not ready to be put out to pasture.
 * * *
 - So which definition of good is this one?
 - Very good. I guarantee you're gonna like this next house. Here's the place. It's right in town and it's cheap.
