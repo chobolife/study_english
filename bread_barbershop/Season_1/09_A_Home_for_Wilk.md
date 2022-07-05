@@ -64,7 +64,7 @@
 - Cool. Have a look around.
 - Uh, hang on. Wilk here.
 - How's it going? Forgot to tell you one tiny detail. The teensy problem with the place.
-- Problem? It's super. Plus, I'm at the landlord.
+- Problem? It's super. Plus, I met the landlord.
 - Ah, yeah. There is no landlord.
 - Huh?
 - That place has been haunted for years. The ghosts like to pretend to be your landlord.
