@@ -8,7 +8,7 @@
 - He knows how to do everything. I want to be just like him.
 - Wilk, do you really look up to him?
 - Of course.
-- We are both talking about old krusty toast, right?
+- We are both talking about old crusty toast, right?
 - He's the best. Master Bread saved my life.
 - Really?
 - Thing is... I've always been different from other milk boxes.
