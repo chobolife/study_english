@@ -1,0 +1,151 @@
+# Movie Star Bread
+
+- Wilk, let's get ready to make everyone look good.
+- That's right. Monday is the start of a whole new week of hard work.
+- Ooh, my barber level is over 9,000.
+- Good work at the kid.
+- Choco, it's 10 after 10. Why are you late?
+- My bad. Some movie was filming and they blocked the road.
+- Huh? What movie?
+- Some Donut Ranger movie or something. It's across the street.
+- Donut Ranger?
+- Wait. I'm coming too.
+* * *
+- Scene two, take seven.
+- I am the protector of bakery town. Ranger.
+- Cut. Good take. You know all the fangirls will really love that one.
+- Let's do the next scene now.
+- Ranger kicked my buns.
+- Donut Ranger always clenches his fist when he donut kicks the enemy.
+- But I clearly saw a thumb sticking out of the side, which ruins it.
+- I know, and they're getting the name wrong too.
+- It's not ranger kick it's ranger ultra kick now.
+- Ugh. They've got Donut Ranger all wrong. Looks like this movie's ignoring the Donut Ranger universe.
+- I know. Episodes four through six of the original Donut Ranger trilogy were amazing beyond words.
+- These prequels don't hold a candle to the original ones.
+- What? Why you...
+- What's going on here? You need to zoom in extra close on Donut Ranger so the explosions look extra explosiony.
+- Oh, I don't...
+- Unbelievable. Look at this.
+- This lighting is all wrong for Donut Ranger. Kilo is unflattering for his donut hole.
+- Oh, no. wilk is right. This light should be blue. What are you doing to him?
+- Why are you here? This is a close set get out.
+- We haven't done anything wrong. You can't kick us out.
+- We're just really big fans of Donut Ranger.
+- Fans are the absolute worst things to have. Now get out.
+- Excuse me? We have something to say to you.
+* * *
+- What do you mean you quit?
+- You never pay us on time and I've got a mortgage.
+- There's not even craft services.
+- Wait, wait, we can work this out.
+- Tough luck. I gotta feed little ones at home.
+- You can call us again once you have an actual budget.
+- How am I supposed to make this movie without bad guys? Come back.
+- Looks like someone's in need of a couple of actors.
+- That's right, and some of us have a little acting experience under our belts, too.
+* * *
+- All right, weirdos. You good?
+- Never better. Back in my day I was the fastest rising star in the world.
+- I had to leave the industry just so someone else could have a fighting chance.
+- This is my triumphant return.
+- Yeah, whatever that's all great. Rolling. Action.
+- Donut Ranger. It's your turn. Time to fight.
+- Ah-ha. Cut, cut. What on earth?
+- Oh, was... Was that too good?
+- Only if you're a robot, put some feeling into it.
+- Oh my expressions are too subtle for the big screen. Back when I studied Meisner method at Bread State universial.
+- Whatever. Wilk, it's up to you.
+- Yeah, you can count on me sir. I have every line from the comic books memorized by heart.
+- Don't care. Rolling. Action.
+- What was the line again? It's harder to remember now that I'm on camera.
+- Holy cannoli.
+* * *
+- Here. this next scene is an action shot where you chase the hero firing lasers.
+- Don't mess it up.
+- Of course I won't. I never once needed a stunt double.
+- Yeah, yeah. Now I got a headache. Rolling. action.
+- Get ready to taste my laser gun.
+- Cut. Why are you making the sound effects yourself?
+- I'm a method actor. I do my own effects.
+- No. We have the sound effects later in post. From now on, only say what's in the script.
+- And another thing. What's wrong with you? You get dropped on your head as a kid?
+- Yeah, how do you know?
+- Don't dance back to me. Are you two a toast?
+- I understand, but I'm milk not toast.
+* * *
+- Okay, in this next scene Donut Ranger is captured by aliens.
+- It's a stun shot, so you'll have to hit him as hard as you can. You got that?
+- Rolling. Action.
+- This is it, Donut Ranger.
+- Oh, no. I can't do it, sir. Red is my favorite ranger.
+- What?
+- Ever since I was a little kid, red ranger's been my hero.
+- I could never hit you red. Instead I would take a hit for you.
+- I can't make that happen.
+- Other bread! You're up now.
+- You can't be mentally weak if you want to be an actor. Now watch the master.
+- No, I can't do it, either.
+- Are you okay?
+* * *
+- In this scene there's a kick in midair.
+- You both attack the struggling ranger.
+- It's the big climax of the movie. So don't mess it up.
+- Let's just see if we can get one thing right.
+- I am an actor. I'll bring out all the stops for the most important scene in the movie.
+- Let's go. We got this.
+- Let's give this a shot. Rolling. Action.
+- Good work. Do the money shots.
+- Are you okay?
+- Someone get the paper work.
+- What have we done?
+* * *
+- Get out. I don't want to see any more of you two. I'm hiring some new actors.
+- What? No. Director, please. Give us a chance to be in the movie. We'll do anything.
+- I promise I won't mess up anymore. Please let us serve, please.
+- No chance! You won't ruin this for me. Do we have new actors yet?
+- We don't. We can't film anything anymore.
+- Our lighting is broken. Along with the spirits of most of the crew and also our cameron boom.
+- Then just go buy some new equipment.
+- Our production budget doesn't have anything left.
+- Yeah... why won't this day ever end?
+- Step for cash huh? How much will it cost? I've always wanted to invest.
+- Please, movies costs more than a few bucks. We're talking big time money here.
+- Wilk, how much money is in my account?
+- 54 million 69 thousand, sir.
+- If he wants to be an investor, let's go along.
+- You should definitely take what he gives you. I mean you want to get paid too, right?
+* * *
+- Since he's willing to pay up... but they're still the worst.
+- How do I salvage these messes into an acceptable performance?
+* * *
+- We meet again. Prepare to fight.
+- Cut. Okay. Moving on.
+- Awesome. Next scene.
+- About time he recognized how great my acting is?
+- Me too. I think I'm finally getting this stuff.
+- I'm sure he had to pretend to criticize us before.
+- I know he had to save face in front of the crew and such.
+- What's the line again?
+- Perfect. Great work.
+* * *
+- Wow, I'm in a real movie. It's a dream come true, isn't it?
+- Amateur.
+- Hey, it's starting.
+- Donut Ranger episode 15. Attack of the robocarbs.
+- Huh? Robo?
+- Hey, it's you.
+- We meet again. Prepare to fight.
+- What is this?
+- Prepare to experience my powerful attack.
+- Hang on. They made us character of robots.
+- Another day, another robot defeated.
+- What nonsense. Popcorn is gonna get a piece of my mind.
+- And every single one of my lines ended up getting cut. That director must think we're a couple of adults.
+- These villains were my favorite so far, so unique.
+- I wonder how they did it. It didn't look like CGI at all.
+- Of course, they're the best villains yet.
+- Portraying a cold heartless robot is a feat very few can do.
+- Yeah, you're right. Only your incredible acting skills could capture the robot feelings, and I was there, too.
+- Time to go back to work.
+
