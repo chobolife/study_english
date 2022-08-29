@@ -21,7 +21,7 @@
 * * *
 - Come on. This Bread Barber guy. Bring him here right now. I don't want to wait.
 - Huh?
-- What's this thing? Are you saying I gotta wait you for real? Don't you know who I am?
+- What's this thing? Are you saying I gotta wait? You for real? Don't you know who I am?
 - Well, should I? We go to the same school or something?
 - I'll just see myself to the back of the line.
 * * *
