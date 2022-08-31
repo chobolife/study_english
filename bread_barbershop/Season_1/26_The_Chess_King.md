@@ -1,0 +1,148 @@
+# The Chess King
+
+- Wilk, part of winning a chess is mastering a good poker face.
+- My face just happens to be good at everything.
+- And Choco, try making moves that are less predictable. Use all of your brain.
+- Well, this brain has never played chess before.
+- Uh, I remain the undefeated champion of the shop.
+- Not yet, sir. You haven't even battled Sausage. Wanna play chess with him?
+- Sausage? Yeah, I challenge our dog to a game.
+* * *
+- You cheated. You cheated!
+- I lost track. How many has he lost?
+- He's lost 17 games out of 17 games.
+- Come back. Don't leave until I win.
+- So... your boss finally lost it?
+- Nah. Just losing a game of chess. Turns out Sausage plays it really well.
+- Whoa. You mean Sausage is a dog who's good at chess?
+- Mr. bread, you know what I do? I need your Sausage in the chess tournament in town.
+- Chess tournament?
+- Yeah. Bakery town holds its own tournament every year.
+- And the winner gets a big prize, too.
+- A prize?
+- Cheese, go get a pen. We've got a tournament to win.
+* * *
+- What a lovely day.
+- Good boy. You'd better win, otherwise we closed the shop today for not.
+- He'll win, I know for sure.
+- He beat you every time, didn't he?
+- Sausage, I believe in you.
+- Here's my application.
+- Hey, entries go over there.
+- Well, well, look what someone left at the back of the pantry.
+- I really hope you half expired nitwits aren't entering this.
+- It's that chip.
+- No way. We're not dumb enough to send one of us to enter this thing.
+- Our player is Sausage.
+- Your dog? Playing chess against your dog?
+- It's too much. A dog. And chess.
+- Excuse me. There's no reason to be rude.
+- You might not believe it, but Sausage has defeated Master Bread no fewer than 17 times.
+- He's a better player than anyone in our shop, and he's cute.
+- Wilk, don't you remember poker face?
+- Sure. Good luck with that.
+- Maybe after he wins, he can teach me to fetch and roll over.
+* * *
+- Doesn't that chip know when to shut his salty mouth?
+- That chip is our biggest rival. He's last year's champion.
+- Unfairly.
+- Someone found out he cheated his way to the win.
+- He put extra powerful laxatives in the other players drinks.
+- And, well... Things got a little messy.
+- Then he sabotaged the directions to the bathroom so everyone else would get lost.
+- I wonder what that rotten chip will get up to this year.
+- Please, I'm sure none of us are dumb enough to fall for his high jinks.
+- Yeah, that's true. I bet we'll stop him first.
+- Oh, why... My stomach's hurting and not feeling nice.
+- Wilk, what's wrong?
+- Whoa, you good?
+- I don't understand. The only thing I had to eat was the juice Potato Chip gave me earlier today.
+- Nice job, Wilk. Now where's that rotten potato?
+- He's the worst. Can't believe he's trying his dirty tricks already?
+- Hey, guess this thing doesn't start till three o'clock.
+- Looks like I have time for some coffee.
+- Bye.
+- Yep.
+- Sausage, what do you want to do until then?
+- Checkmate.
+- The tournament isn't at three o'clock? It's at one. Master Bread! Master Bread!
+- The chip even fooled Master Bread.
+- Sausage, I'll be here for you even if they're gone, okay?
+* * *
+- Welcome chess players and chess pies from bakery town.
+- I'm your host, Croissant. Now let's get started.
+- Only one will be crowned as the king of chess or queen. Let's be modern.
+- Anyway, let's begin.
+- Our first contestant comes all the way from the ice box, a scone scholar from bread state majoring in sugar economics, Choco Donut.
+- And over here we have someone's dog I think, a Sausage.
+- Go, Sausage!
+- Who will advance to round two today? Let's see and play.
+- Whoa I'm not believing what's happening before my eyes.
+- Sausage has taken down the opponent's king with nothing more than a humble knight.
+- This pup's going on to the quarter finals.
+- Well done, Sausage. Keep going and you can win.
+- He does it again folks. Make room for hot links in the semifinals.
+- And again? He's made it to the final round. Go, hot dog, go.
+- Wow Sausage, you're just the best.
+* * *
+- A lot of false confidence over here.
+- Don't you have socks to chew up or fire hydrants to pee on?
+- You, bad chip.
+- Master Bread and Wilk might have fallen for your tricks.
+- But we're never gonna let that happen to Sausage.
+- Ha. Fooling those morons was just embarrassingly easy.
+- And the apple-smoked Sausage doesn't fall far from the tree.
+* * *
+- And now it comes to this. Our final round.
+- These two contestants will go down in chess history for all time.
+- He's sour, he's salty, and he's not even salt and vinegar flavor.
+- Put your hands together for our returning champion, Potato Chip.
+- And today's breakout superstar, the underdog, the dark horse or dog. It's Sausage.
+- Go, boy. Let them have it.
+- All right. Now without any further ado, let's start.
+* * *
+- Amazing! How did such a thing happen?
+- Potato Chip's king is left completely defenseless. He must feel so dumb.
+- Looks like this pup is on course to be our top dog.
+- He's smart, I'll give him that.
+- Need to bring out the big guns.
+- It's time to fight dirty.
+- Not hungry, are you? I brought some jerky.
+- That's not fair. He's distracting the competition with good smelling food.
+- Come on. There's no rule that says I can't bring out a snack for myself.
+- No such rule exists. The game will carry on.
+- Oh, no.
+- He's losing it.
+- Sausage, I'll be here for you even if they're gone, okay?
+* * *
+- Oh, sweet honey buns.
+- What? Are you ready to play now or something?
+- No more jerky smell to distract me.
+- You're going down, rotten potato.
+- I'll be boiled before I let myself lose to a dog.
+- Take this mongrel.
+- Come on boy. Make us proud. You can do it.
+- My word! He won!
+- Sausage has won this round to become this year's champion.
+- Yeah! Hooray! Sausage, I'm so proud of you.
+- No. It's not fair. That stinky cheese cheats.
+- That's not true. The only one who's cheating here is you.
+- It's not. I... I...
+- Stop! Let go put me down. I was framed.
+- Seems to be a lot of commotion in here.
+- Long before the competition even starts.
+- Hey guys. How'd the competition go?
+- Went great. Sausage came first. He even defeated Potato Chip.
+- What? It's done already? I thought I had a few hours to kill.
+- That's awesome. I knew you would win, you smart little doggy.
+- And now to present the grand prize to our first place winner, which is this way station two.
+- Huh? That thing's the prize? What about money?
+- Yay, a real way station two.
+- Yay, it's got all the list of games.
+- Wow, I can't believe we got one.
+- Wilk, let's play it together.
+- Time for a photo with the champion now.
+- Yeah, sounds great.
+- Master Bread, get in the picture.
+- Okay, everybody say Sausage.
+- Sausage.

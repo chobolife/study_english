@@ -94,6 +94,6 @@
 - Why should I pay? I didn't even ask for this.
 - Master Bread, please calm down.
 * * *
-- Surely Master Bread is the finest barber in all of bakery town.
+- Surely Master Bread is the finest barber in all of Bakery town.
 - Never before have I been so certain of bestowing these stars.
 - One, two, three.

@@ -4,7 +4,7 @@
 - Shouldn't I have a reason to smile?
 - Yes. The fact that you're still employed.
 - Don't touch me. What's gotten into you?
-- Today is bakery town's happy small business day. Keyword happy.
+- Today is Bakery town's happy small business day. Keyword happy.
 - I'm here on behalf of bakery city hall.
 - Yes, welcome. We're over the moon cake to have you here.
 * * *

@@ -25,7 +25,7 @@
 - Tea is a part of our history.
 - In ancient times, a sticky rice cake brewed the best tea.
 - He served this tea to the king. It was so good he made that sticky rice cake the prime minister.
-- So making tea is ingrained in bakery town.
+- So making tea is ingrained in Bakery town.
 - Whoa. So if I make good tea, master bread will make me prime minister or something?
 - Uh... Worth a shot.
 - Yeah. I'm not that good at cleaning or stuff like that but maybe making tea can be my thing then Master Bread will love me.

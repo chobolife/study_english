@@ -27,7 +27,7 @@
 - Oh.
 - Wow, how did you know Master Bread was an actor when he was young?
 - Master steamed bun's powers are limitless. He predicts not only people's pasts, but their futures too.
-- Even the queen of bakery town has used his services before. Not to mention his guest star appearance on carbs of our lives.
+- Even the queen of Bakery town has used his services before. Not to mention his guest star appearance on carbs of our lives.
 - I see something else now. Something incredible. It's the future of this dog and who owns him.
 - What about him?
 - The one who cares for this dog will live in the Tower Palace.

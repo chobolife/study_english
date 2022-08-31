@@ -1,6 +1,6 @@
 # Master Barber
 
-- Master Twisted Bread is bakery town's greatest laundry expert.
+- Master Twisted Bread is Bakery town's greatest laundry expert.
 - He can turn anything into a soft towel.
 - Catch us next time on experts at work. See you next week.
 * * *

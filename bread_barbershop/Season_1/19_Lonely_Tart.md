@@ -33,7 +33,7 @@
 - I only want to live like a normal dessert.
 - My heart aches for this poor kid who just wants to be like other tarts.
 - But don't worry, it's what I do.
-- We and Master Patissier have found the best barber in bakery town and brought him in to grab your wish.
+- We and Master Patissier have found the best barber in Bakery town and brought him in to grab your wish.
 - No gain without grain, it's Master Bread.
 - Master Bread! Master Bread!
 * * *

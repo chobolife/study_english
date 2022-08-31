@@ -50,7 +50,7 @@
 - Great and how soon?
 - Yeah, just another four or five hours left to go.
 - Four hours? But we've already been driving for four hours already. Is this place in a whole different town?
-- It's still in bakery town. It's the outer suburbs. Living out in the country might be good for you.
+- It's still in Bakery town. It's the outer suburbs. Living out in the country might be good for you.
 - Huh? Bring me back to the city. I'm not ready to be put out to pasture.
 * * *
 - So which definition of good is this one?

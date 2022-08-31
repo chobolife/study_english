@@ -4,7 +4,7 @@
 - If you have what it takes, come on down. Bakery Soccer Team.
 * * *
 - Choco, did Wilk turn sour again? What's he doing?
-- The bakery town soccer team is having tryouts and he wants to give it a shot.
+- The Bakery town soccer team is having tryouts and he wants to give it a shot.
 - Soccer? Wilk plays soccer?
 - Huh? Master Bread. Good morning.
 - Wilk, your dreams are so cute. At least let me teach you a thing or two before the tryouts.

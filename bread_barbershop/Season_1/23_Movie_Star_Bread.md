@@ -12,7 +12,7 @@
 - Wait. I'm coming too.
 * * *
 - Scene two, take seven.
-- I am the protector of bakery town. Ranger.
+- I am the protector of Bakery town. Ranger.
 - Cut. Good take. You know all the fangirls will really love that one.
 - Let's do the next scene now.
 - Ranger kicked my buns.

@@ -30,7 +30,7 @@
 - Just leave me alone, okay? Your sympathy means nothing to me.
 - Oh! Wait. Master Bread can help you. He knows how to fix everything.
 - Master Bread?
-- He's bakery town's most amazing as barber. If anyone can get rid of a stinky smell, It's him.
+- He's Bakery town's most amazing as barber. If anyone can get rid of a stinky smell, It's him.
 - I seriously doubt a bread is qualified.
 - Come on, huh? Just give him a chance I'll prove it to you. Why don't we just go right now?
 - Hey. Let go this instant.
