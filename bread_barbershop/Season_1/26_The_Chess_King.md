@@ -7,7 +7,7 @@
 - Uh, I remain the undefeated champion of the shop.
 - Not yet, sir. You haven't even battled Sausage. Wanna play chess with him?
 - Sausage? Yeah, I challenge our dog to a game.
-* * *
+***
 - You cheated. You cheated!
 - I lost track. How many has he lost?
 - He's lost 17 games out of 17 games.
@@ -21,7 +21,7 @@
 - And the winner gets a big prize, too.
 - A prize?
 - Cheese, go get a pen. We've got a tournament to win.
-* * *
+***
 - What a lovely day.
 - Good boy. You'd better win, otherwise we closed the shop today for not.
 - He'll win, I know for sure.
@@ -42,7 +42,7 @@
 - Wilk, don't you remember poker face?
 - Sure. Good luck with that.
 - Maybe after he wins, he can teach me to fetch and roll over.
-* * *
+***
 - Doesn't that chip know when to shut his salty mouth?
 - That chip is our biggest rival. He's last year's champion.
 - Unfairly.
@@ -68,7 +68,7 @@
 - The tournament isn't at three o'clock? It's at one. Master Bread! Master Bread!
 - The chip even fooled Master Bread.
 - Sausage, I'll be here for you even if they're gone, okay?
-* * *
+***
 - Welcome chess players and chess pies from bakery town.
 - I'm your host, Croissant. Now let's get started.
 - Only one will be crowned as the king of chess or queen. Let's be modern.
@@ -84,7 +84,7 @@
 - He does it again folks. Make room for hot links in the semifinals.
 - And again? He's made it to the final round. Go, hot dog, go.
 - Wow Sausage, you're just the best.
-* * *
+***
 - A lot of false confidence over here.
 - Don't you have socks to chew up or fire hydrants to pee on?
 - You, bad chip.
@@ -92,7 +92,7 @@
 - But we're never gonna let that happen to Sausage.
 - Ha. Fooling those morons was just embarrassingly easy.
 - And the apple-smoked Sausage doesn't fall far from the tree.
-* * *
+***
 - And now it comes to this. Our final round.
 - These two contestants will go down in chess history for all time.
 - He's sour, he's salty, and he's not even salt and vinegar flavor.
@@ -100,7 +100,7 @@
 - And today's breakout superstar, the underdog, the dark horse or dog. It's Sausage.
 - Go, boy. Let them have it.
 - All right. Now without any further ado, let's start.
-* * *
+***
 - Amazing! How did such a thing happen?
 - Potato Chip's king is left completely defenseless. He must feel so dumb.
 - Looks like this pup is on course to be our top dog.
@@ -114,7 +114,7 @@
 - Oh, no.
 - He's losing it.
 - Sausage, I'll be here for you even if they're gone, okay?
-* * *
+***
 - Oh, sweet honey buns.
 - What? Are you ready to play now or something?
 - No more jerky smell to distract me.

@@ -14,21 +14,21 @@
 - Says you need to be at the broadcast studio next Tuesday at noon.
 - Um, would be rude of me to reject this invitation?
 - Whoa, this means you're gonna go? Sausage, we need to make a sign to cheer him on.
-* * *
+***
 - Shocking transformations, tear-jerking real-life stories. I'm your host Croissant. Welcome to the world's best makeover show, Master Patissier!
 - So most tarts have fillings like they're supposed to. But what happens when one is born empty inside? Please welcome on stage, Tart!
-* * *
+***
 - Tell us. What's wrong?
 - I don't have any custard.
 - Lord! A tart with no custard cream? You sure it's true?
 - Right, Scott! A tart with no custard filling can't even be called the tart at all.
 - You think you'd use whipped cream or some other alternative.
 - It's been like this since I was born.
-* * *
+***
 - Huh? There's nothing in this one. I can't put this one out.
 - Those look delicious and that fruit topping.
 - Oh, like tiny little pies.
-* * *
+***
 - Poor kid.
 - I only want to live like a normal dessert.
 - My heart aches for this poor kid who just wants to be like other tarts.
@@ -36,11 +36,11 @@
 - We and Master Patissier have found the best barber in Bakery town and brought him in to grab your wish.
 - No gain without grain, it's Master Bread.
 - Master Bread! Master Bread!
-* * *
+***
 - Master Bread, have you prepared a miracle to turn this tart's life around?
 - A piece of cake. I'll start with homemade custard cream piling it gently on here. And top it off with strawberry slices, you look fine fresh and fruity.
 - Wow, and now without further ado, let's start.
-* * *
+***
 - First he begins by preparing the custard filling.
 - Just look at that technique folks, a veteran for sure.
 - And just like that he's got a head full of sweetness.
@@ -48,14 +48,14 @@
 - Amazing. He really is the best stylist in the world.
 - So cool. Slice like a ninja.
 - His moves are all exciting.
-* * *
+***
 - Wow.
 - Oh, my crust. Genius! This is why we're here, to see incredible transformations like this.
 - And now, bring down the mirror.
 - Think it's good?
 - Yeah, looks great, sir.
 - Tart loves his makeover, but there's one more surprise we brought for you. Please welcome George brothers.
-* * *
+***
 - You're our brother. You know we always got your back.
 - Holy waffles.
 - Oh, Jesus.
@@ -70,7 +70,7 @@
 - What? You know how hard I work on the design for that stupid kid.
 - Haha. Master Bread is just getting emotional too.
 - Good night and we'll see you all next time.
-* * *
+***
 - Ooh boss, looks like another letter from Master Patissier.
 - I want nothing to do with that show.
 - We'd love to have you on our show again. The ratings were through the roof.

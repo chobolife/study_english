@@ -2,7 +2,7 @@
 
 - It's time to get serious about soccer.
 - If you have what it takes, come on down. Bakery Soccer Team.
-* * *
+***
 - Choco, did Wilk turn sour again? What's he doing?
 - The Bakery town soccer team is having tryouts and he wants to give it a shot.
 - Soccer? Wilk plays soccer?
@@ -12,29 +12,29 @@
 - Ah. A long time ago I was quite the bread to watch on my soccer team.
 - Wow, tell me more.
 - Even though my life head was set, the coach saw how amazing I was and wouldn't let me be.
-* * *
+***
 - It was national finals and I had promised to play for them.
 - We were behind by 10 points. The team had given up.
 - Morale was low. But as soon as I walked on the field everyone knew things would turn around.
 - The opposing team tried every dirty trick in the book, but they were no match for me.
-* * *
+***
 - Even with my injury, I knew I couldn't let my team down.
 - I went back on that field.
-* * *
+***
 - We did it. I won enough points to beat them by just a little.
 - Ah, that's the game. You give every ounce of who you are in order to win.
 - Ah that's amazing sir. Really. Teach me how to be good at soccer, please.
 - Wilk, playing sports is more than just a game, it's about giving all you've got.
 - With me as your coach I can make you good.
 - Yes master. I'm ready to learn.
-* * *
+***
 - Huh? Why are those two late today? Huh?
 - What is going?
 - Cool, right? Like it? This is what a real soccer player and his coach look like.
 - Oh, one thing. Wilk, do you have enough money to afford...
 - Oh, hush. Choco, you gotta spend money before you could make it.
 - How am I supposed to be the best soccer player without the best gear?
-* * *
+***
 - Goal!
 - Yeah!
 - Let me hear you. Yell like you've won!
@@ -45,7 +45,7 @@
 - Yeah. Choco's never seen a game. She doesn't understand it like we do.
 - Wilk, now practice giving me a hug after you win the game.
 - Yeah.
-* * *
+***
 - You're done, you're done. Get off my field.
 - Why is everyone so bad? I haven't found a single good player.
 - Oh, are those the newest men's soccer clothes?
@@ -67,7 +67,7 @@
 - Is that...? No way.
 - Falcon kick!
 - The legendary falcon kick, it's true.
-* * *
+***
 - There goes my Saturday.
 - That's it. I'm done. I'm never teaching soccer again.
 - Hey lady, pass me that ball over there, will ya?
@@ -80,7 +80,7 @@
 - You could even play for the National League.
 - Let's go sign some forms, and we can start training right away.
 - That's the pay.
-* * *
+***
 - Oh, just incredible.
 - Wilk, did I tell you about the time I won against the whole team of Japan?
 - I'm sure it was great, though.

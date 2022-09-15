@@ -13,13 +13,13 @@
 - Those silly old things.
 - Hey, bread man! Quick taking diet dumps! The toilet's clogged.
 - Hmm...
-* * *
+***
 - Wilk. Who is that gorgeous woman?
 - Choco? The angry one?
 - Ah, Choco. How sweet is thy name, my dear Choco.
 - Wilk, you must introduce me to her.
 - Please, please, please, please. I'll do anything for her.
-* * *
+***
 - Hmm.
 - Hey, Choco. You got a sec?
 - What?
@@ -32,7 +32,7 @@
 - But... but, why?
 - Hmm. Not my type.
 - I understand.
-* * *
+***
 - Huh? Wilk. What did she say?
 - She...
 - Hang on. Did she say she wants to meet tonight? Only to find an outfit.
@@ -47,7 +47,7 @@
 - Wilk, I gotta go find some weights to lift. See you later.
 - Wait! Milk Toast.
 - Choco, this is for you.
-* * *
+***
 - Oh, yeah. Do I look handsome yet?
 - Wow, Milk Toast. Your muscles look great. Choco will definitely notice this.
 - No. I'm not there yet.
@@ -57,12 +57,12 @@
 - Was Choco supposed to like me like this?
 - He wanna brown... I think Master Bread might be able to help.
 - Yeah. After all, he is a genius.
-* * *
+***
 - Hmm... You're interested in Choco, aren't you? Don't care. So you want to be tan?
 - Yes. If I'm tan, I'll be able to win her heart for sure. But do you think it's possible?
 - Anything's possible. Wilk, get the tanning bed out of storage.
 - You got it.
-* * *
+***
 - Wow. This is a tanning bed?
 - Yep. It's a special model made for bread. Back in my day, I toasted myself a time or two.
 - Be warned. it gets a little hot.
@@ -73,7 +73,7 @@
 - Stay strong, friend. Do it for Choco, come on.
 - Oh, you're right.
 - Do it for love. Get that tan.
-* * *
+***
 - Well done. This begins your life as a well-done toast.
 - Thank you, sir.
 - I'm a whole new bread.
@@ -82,7 +82,7 @@
 - Thank you so much, Master Bread. Everything they say about you is true. It's also true.
 - Yes. Now go in her heart, son.
 - Thank you, sir.
-* * *
+***
 - See you tomorrow.
 - Miss Choco.
 - Huh?
@@ -101,6 +101,6 @@
 - See you later.
 - Choco...
 - That's like going on a date with Master Bread. So gross.
-* * *
+***
 - Hey, what happened? Why are you so sad? Did your request to Choco not go as planned?
 - Cheer up. There's plenty of cakes on the shelf. It's a big bakery out there.

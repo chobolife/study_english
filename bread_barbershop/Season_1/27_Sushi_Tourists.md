@@ -5,16 +5,16 @@
 - Look! This is the Cake Palace.
 - Wow, it's spectacular.
 - This castle's so nice.
-* * *
+***
 - Oh.
 - It's Butter?
 - We love you.
-* * *
+***
 - Oh-ho. I heard there were tourists from Sushi town here, and they look like suckers.
 - They say Sushi town tourists are rich.
 - Now how do I rip them off so I'm the rich one instead?
 - Aha! Yes. That's so dumb it might work.
-* * *
+***
 - What's this? Discount merchandise.
 - And all of butter too.
 - He's so cute.
@@ -34,7 +34,7 @@
 - They are so rude.
 - Battle cry time. Let's go.
 - Give us our hair.
-* * *
+***
 - Whoa there they are all. They all look so nice.
 - Those are ours.
 - Yeah, it's a vending machine.
@@ -54,14 +54,14 @@
 - So if any of you want to go home again, bring me some cold hard cash.
 - That, that monster...
 - Tuna, get ahold of yourself.
-* * *
+***
 - I guess we're stuck here. We can never go home now.
 - No. We can't give up. What can we do?
 - Oh look, it's... That sign is about butter.
 - I know he's handsome, but that doesn't help?
 - We need to focus on getting our hair back.
 - No. Look again. It says he gets his hair styled at that famous barber shop.
-* * *
+***
 - Huh?
 - Does Master Bread work here?
 - Welcome, sir. What can we do for you?
@@ -71,18 +71,18 @@
 - Please sir, our hair was stolen. We originally had beautiful heads of sashimi.
 - So we can't get back to our home country, if we don't look the same. There must be something you can do.
 - Please.
-* * *
+***
 - So each of you is a real authentic piece of sushi.
 - But you won't be able to get home, if all you are is balls of rice. Is that right?
 - That's right.
 - You'll be fine. I'll make sure you all get home safe and sound.
 - Wilk, go get some jelly from the storeroom.
 - Okay.
-* * *
+***
 - Sir Takoyaki crafted this knife himself.
 - Um...
 - Wow.
-* * *
+***
 - This is incredible, Master Bread.
 - You really are amazing.
 - You're all too kind.
@@ -90,12 +90,12 @@
 - Master Bread.
 - Thank you, Master Bread.
 - True genius.
-* * *
+***
 - You're on another magazine.
 - What could it be this time?
 - Uh, I try to be humble, but I'm too good. Being a celebrity has its challenges.
 - Uh... We've got about a million customers here.
 - You're joking. Oh.
 - I'm so excited.
-* * *
+***
 - Now all I've got is a shot full of rotting fish. Maybe a million was steep.

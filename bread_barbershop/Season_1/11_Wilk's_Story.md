@@ -12,11 +12,11 @@
 - He's the best. Master Bread saved my life.
 - Really?
 - Thing is... I've always been different from other milk boxes.
-* * *
+***
 - Hmm.
 - Doctor. Why is the milk on top of his head spelled wrong? Is it harmful?
 - Don't know. This is the first time I've seen this. However, I'm afraid nothing can be done about it. I'm sorry.
-* * *
+***
 - Hey nerd. Go and take your hat off.
 - I heard his milk gets stuffed with a W instead.
 - Just take off the hat. It's not like hiding it will fix it.
@@ -27,14 +27,14 @@
 - So all the rumors were right.
 - Milk's first letter is upside down. That means his name is Wilk.
 - No. I'm milk, not Wilk. Stop it!
-* * *
+***
 - We'll be there to save the day. Donut rangers. Until we meet again, red ranger out.
 - A local barber shop is not only fixing hair, it's turning limes around. Sometimes called the genius barber Master Bread is gaining notoriety for being able to completely change the look of any bun cake or roll. Let's hear from some of the happy customers now.
 - So what's your reason for coming here?
 - Well... I was starting to have thinning hair, but now I feel confident to go out. And it's all thanks to the Bread Barber.
 - Sounds like the place to be for anyone in need of a makeover.
 - Bread Barber?
-* * *
+***
 - Good morning sir. Are you him? The Master Barber? I heard all about you. They said you can fix anyone's look, can you?
 - Uh... I guess. You need something?
 - I do. Any chance you can fix this letter?
@@ -44,11 +44,11 @@
 - Please sir, please. This W makes me look like a weirdo. This is my most desperate hour. Help me.
 - Whatever, just get off!
 - So you want me to change the W back into an M huh? Ah... I'll see what I can do.
-* * *
+***
 - There. That looks nice.
 - Wow. That's the most amazing thing.
 - Come on. There must be something I can do. Aha!
-* * *
+***
 - There. All done.
 - Whoa. It looks good as new. I feel like an entirely new milk box. Thank you. Thank you so much.
 - No. My M.
@@ -62,12 +62,12 @@
 - I'm just... unique?
 - Why of course. I'm meant to be my own unique special box. Thank you so much Master Bread. Thank you.
 - No problem.
-* * *
+***
 - Thank you sir. Thanks a lot.
 - All right. Get home safe.
 - What a day. Time to go and rest.
 - Master Bread. I know I don't have any money but please take this. It's my favoritest red ranger just for you. Thanks so much again. Bye.
-* * *
+***
 - And so ever since that day I've lived proudly as Wilk. Master Bread is a fountain of wisdom.
 - I think he told you all that just so he could go home early and you'd leave.
 - Impossible! Master Bread is always sincere.

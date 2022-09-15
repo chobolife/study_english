@@ -3,13 +3,13 @@
 - Master Twisted Bread is Bakery town's greatest laundry expert.
 - He can turn anything into a soft towel.
 - Catch us next time on experts at work. See you next week.
-* * *
+***
 - Wow, Choco look at that. Isn't that guy awesome?
 - He should be if he's on TV.
 - Everything on TV is fake. Real experts don't care about fame. Like me.
 - Wouldn't it be cool if our barbershop could be on that?
 - Huh?
-* * *
+***
 - Welcome sir.
 - Hmm.
 - Hey, are you Master Bread?
@@ -31,7 +31,7 @@
 - Oh...
 - Yes, I'll have to go find another barber.
 - Hang on. How soon can you start filming?
-* * *
+***
 - Camera one! Get that boom. Come on cakes, let's move.
 - And you, try to act normal. Just a couple of folks working at the shop.
 - Ah... This place is dull. We need to spice things up.
@@ -41,33 +41,33 @@
 - You need a celebration for a day so meaningful.
 - Let's run a promotion for 50 percent off for that day...  Uh... whatever.
 - Audiences love a celebration. Hey, you want that cash, no?
-* * *
+***
 - It's the 3752nd day of business and just for you 50 percent off all services.
 - Yes, just for you. It's 50 percent off to celebrate.
 - No, no, no. All wrong. We need more light from you.
 - But that's just how I am. How else would I sprinkle it?
 - Act cool, natural, but with excitement! Understand? Easy.
 - Another day in the barbershop where it's not just hair, it's art.
-* * *
+***
 - With each new day comes new challenges and Master Bread revitalizes customers with wild techniques.
 - Customers come not only for a new do, but to relish in the artistry and the craftsmanship of this humble barber.
 - Master are you hurt?
 - Cut! Nice work.
 - Now we're getting somewhere.
 - Okay, next scene.
-* * *
+***
 - Cut, cut! No. What audience is going to want to watch you working away like a mindless drone?
 - But you told us all to act normal.
 - Hey, do I have to make everything obvious for you?
-* * *
+***
 - Even the day's menial tasks are performed with dexterity and delicious flair.
 - What a treat for the customers.
 - Got it.
-* * *
+***
 - Awesome work here today everyone.
 - He has no idea how much this all costs.
 - All right. One more. Just a few more takes, and Master Bread can upgrade his shop.
-* * *
+***
 - There you go.
 - Cut, cut! This! Who gives out receipts this boring these days?
 - See? There should be gimmicks and charm. Where's all that?
@@ -75,7 +75,7 @@
 - All for the love of rules. It's for the show.
 - Something so elegant it gives the shop healing vibes.
 - Is that so much to ask?
-* * *
+***
 - Greetings, would you like your receipt, sir?
 - Yes.
 - One moment, my good sir.
@@ -84,18 +84,18 @@
 - That's not really necessary.
 - Cut. That's where it's at. Where was that kind of flare all day.
 - Uh... oh.
-* * *
+***
 - Please come to the Bread Barber.
 - Cut. That's a wrap. Thanks everyone, very natural every single one of you.
 - I'm exhausted.
 - Korean calligraphy?
 - Everything hurts. Oh.
-* * *
+***
 - Here it is. It's starting.
 - And this barbershop lives one very special puppy. Meet Sausage.
 - This little cutie brings joy to all the customers.
 - Here at Bread Barbershop, Sausage is living the dream.
-* * *
+***
 - Are you kidding me? Why was the entire show about our dog?
 - Yeah you know, our network director thinks the dog is real cute.
 - So she changed the vibe of the episode.

@@ -7,7 +7,7 @@
 - I'm sorry. We're actually closed right now.
 - Never too late. Our shop is open to all, any time of day.
 - Huh... Looks like it's gonna be a long night.
-* * *
+***
 - Wilk.
 - Choco?
 - You look exhausted. Like you expired three years ago or something.
@@ -18,7 +18,7 @@
 - Ah. What about if we get Master Bread a girlfriend?
 - He'll want to leave work early if he's taking out a lady bread.
 - A girlfriend?
-* * *
+***
 - Master Bread?
 - What is it now?
 - Hey, you want to go on a blind date?
@@ -31,11 +31,11 @@
 - Not many people match your handsomeness and intelligence, Master Bread.
 - I bet the two of you would be like a Matcha Made in Heaven.
 - I guess I could check my calendar.
-* * *
+***
 - Are you Master Bread?
 - Nice to meet you. My name is Tiramisu. This place is great.
 - Oh sweet cannolis dipped that chocolate. What do I do?
-* * *
+***
 - I wonder how Master Bread's date went.
 - Just once I'd like to leave work on time.
 - Good morning.
@@ -53,14 +53,14 @@
 - Somebody seems excited to go home.
 - I sure am. Thanks to you.
 - I'm gonna go home and binge watch Donut Ranger Ninja Force.
-* * *
+***
 - Master Bread!
 - Tiramisu said she's sick and can't meet up with me today.
 - Uh, I don't know why I even try to date anymore.
 - There's always work.
 - Wilk, you'll be here, right?
 - Of course.
-* * *
+***
 - See ya. I'm off to have dinner with Tiramisu. Night.
 - Bye. Have a good time, sir.
 - Huh?
@@ -69,7 +69,7 @@
 - She told me she had to leave for a last-minute business trip.
 - Oh, dating is tough. Might as well just work all night again.
 - Huh. I used to have a social life.
-* * *
+***
 - I'm finally meeting up with Tiramisu.
 - Clean up and head home.
 - Okay.
@@ -79,7 +79,7 @@
 - It's canceled.
 - We're going out.
 - She's busy.
-* * *
+***
 - Hmm... Ah! What's going on with you?
 - He keeps changing his plans. I'm at the end of my rope.
 - It's even worse when I get excited and make plans, but then I still have to work late.
@@ -88,7 +88,7 @@
 - Ooh. Like what?
 - Hey, listen here.
 - We need to get him to talk...
-* * *
+***
 - Sir?
 - Huh?
 - Question. What do you think of miss Tiramisu?
@@ -102,7 +102,7 @@
 - Okay, sounds good. But how do I do that? Any ideas?
 - Easy. Start off with a nice bouquet of flowers and bring jewelry, too.
 - Jewelry can't go wrong. It'll be great.
-* * *
+***
 - Who are you?
 - Uh, I thought Tiramisu would be here.
 - This is Tiramisu's house, right?
@@ -115,13 +115,13 @@
 - But didn't you say someone was waiting here? I don't see anyone.
 - The weird old man said something about being a side dish and ran off.
 - Oh, kid, you always have the oddest pranks.
-* * *
+***
 - Master Bread, cheer up. It's not you.
 - Wilk, I've made up my mind.
 - Huh? on what?
 - I'm married to my job.
 - You... You don't say.
-* * *
+***
 - Left, a little left, and your other left.
 - No that's two left now. Easy now.
 - Steady there. Ah. You see there? Lower there.

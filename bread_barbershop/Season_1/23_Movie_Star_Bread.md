@@ -10,7 +10,7 @@
 - Some Donut Ranger movie or something. It's across the street.
 - Donut Ranger?
 - Wait. I'm coming too.
-* * *
+***
 - Scene two, take seven.
 - I am the protector of Bakery town. Ranger.
 - Cut. Good take. You know all the fangirls will really love that one.
@@ -34,7 +34,7 @@
 - We're just really big fans of Donut Ranger.
 - Fans are the absolute worst things to have. Now get out.
 - Excuse me? We have something to say to you.
-* * *
+***
 - What do you mean you quit?
 - You never pay us on time and I've got a mortgage.
 - There's not even craft services.
@@ -44,7 +44,7 @@
 - How am I supposed to make this movie without bad guys? Come back.
 - Looks like someone's in need of a couple of actors.
 - That's right, and some of us have a little acting experience under our belts, too.
-* * *
+***
 - All right, weirdos. You good?
 - Never better. Back in my day I was the fastest rising star in the world.
 - I had to leave the industry just so someone else could have a fighting chance.
@@ -60,7 +60,7 @@
 - Don't care. Rolling. Action.
 - What was the line again? It's harder to remember now that I'm on camera.
 - Holy cannoli.
-* * *
+***
 - Here. this next scene is an action shot where you chase the hero firing lasers.
 - Don't mess it up.
 - Of course I won't. I never once needed a stunt double.
@@ -73,7 +73,7 @@
 - Yeah, how do you know?
 - Don't dance back to me. Are you two a toast?
 - I understand, but I'm milk not toast.
-* * *
+***
 - Okay, in this next scene Donut Ranger is captured by aliens.
 - It's a stun shot, so you'll have to hit him as hard as you can. You got that?
 - Rolling. Action.
@@ -87,7 +87,7 @@
 - You can't be mentally weak if you want to be an actor. Now watch the master.
 - No, I can't do it, either.
 - Are you okay?
-* * *
+***
 - In this scene there's a kick in midair.
 - You both attack the struggling ranger.
 - It's the big climax of the movie. So don't mess it up.
@@ -99,7 +99,7 @@
 - Are you okay?
 - Someone get the paper work.
 - What have we done?
-* * *
+***
 - Get out. I don't want to see any more of you two. I'm hiring some new actors.
 - What? No. Director, please. Give us a chance to be in the movie. We'll do anything.
 - I promise I won't mess up anymore. Please let us serve, please.
@@ -115,10 +115,10 @@
 - 54 million 69 thousand, sir.
 - If he wants to be an investor, let's go along.
 - You should definitely take what he gives you. I mean you want to get paid too, right?
-* * *
+***
 - Since he's willing to pay up... but they're still the worst.
 - How do I salvage these messes into an acceptable performance?
-* * *
+***
 - We meet again. Prepare to fight.
 - Cut. Okay. Moving on.
 - Awesome. Next scene.
@@ -128,7 +128,7 @@
 - I know he had to save face in front of the crew and such.
 - What's the line again?
 - Perfect. Great work.
-* * *
+***
 - Wow, I'm in a real movie. It's a dream come true, isn't it?
 - Amateur.
 - Hey, it's starting.

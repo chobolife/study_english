@@ -9,7 +9,7 @@
 - I've been here for like two hours.
 - I apologize everyone. Sometimes it just takes a bit of time to get the best haircut for you.
 - Don't give me those half-baked excuses. This place should be ashamed of itself.
-* * *
+***
 - And here's your receipt.
 - 30 bucks for fresh whipped cream? 50 just for fruit topping? This place reeks of a scam.
 - That does seem steep.
@@ -18,16 +18,16 @@
 - High quality? Oh crust. How are we supposed to know that's real?
 - I've never seen a shop that costs this much with this long await.
 - If I were you, I'd go someplace that valued my time and money, not this dumb.
-* * *
+***
 - I mean, some of what he said is not wrong.
 - But I thought this place was supposed to be the best.
 - Should we try to find a new barber shop?
-* * *
+***
 - Morning.
 - Master Bread. Come look. Something's gone wrong.
 - What do you mean? Huh, what's this?
 - Hello everyone this is Bakery X-files. I'm croissant. Bread Barbershop has long been known as the best salon in town.
-* * *
+***
 - Good morning, Choco. Good morning, Master Bread.
 - But our exclusive look reveals high rising prices and crummy service.
 - Sometimes it just takes a bit of time to get the best haircut for you. If you don't like it, go somewhere else.
@@ -46,12 +46,12 @@
 - Every haircut just a buck! In and out in 10 minutes.
 - I'll go check this out.
 - Master bread, I'm coming too.
-* * *
+***
 - We use the latest technology to ensure every customer gets their new look in 10 minutes.
 - Can you prove it?
 - How's it work?
 - I'm gonna come here from now on.
-* * *
+***
 - I'm done for. Done for.
 - Master Bread. Don't feel down. There must be something we can do.
 - Good morning.
@@ -62,7 +62,7 @@
 - Wait a sec. How come there aren't any flies in the shop today?
 - Hey that's weird. All the flies are gathered around potato chip's shop.
 - They're what?
-* * *
+***
 - Wow! Even bugs like it.
 - Hmm... Something seems off.
 - Are you sure this is okay?
@@ -84,13 +84,13 @@
 - Wow, that thing goes real fast. If only we had a machine like this in our shop.
 - No way! It can speed up even more?
 - Wilk! Stop that!
-* * *
+***
 - Wilk!
 - Please help me. This is not my friend.
 - That's... Definitely the plunger we use for our toilet.
 - Ear pick, tweezers. Please don't tell me he's using these dirty tools for hair.
 - We should take pics as evidence.
-* * *
+***
 - I don't know how he can get away with this.
 - We should tell everyone his shop is gross.
 - Wilk! Are you all right?
@@ -100,11 +100,11 @@
 - That's the one found in bathrooms, right?
 - What? That's even more grody.
 - All the more for evidence.
-* * *
+***
 - Get your hands off me. Dirty bacon donuts.
 - I was framed.
 - Once a rising star now yesterday's rotten potato, a shocking story of filth and deceit as potato chip's hair shop shuts down due to unsanitary practices.
-* * *
+***
 - I saw that coming. Everyone knows I'm the best. I wasn't worried at all.
 - Wilk, Choco. I'm expecting lots of customers today, so be prepared for them.
 - Yes sir.

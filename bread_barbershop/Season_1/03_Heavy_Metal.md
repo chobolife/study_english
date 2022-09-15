@@ -1,24 +1,24 @@
 # Heavy Metal
 
 - Not now. You're sweetest guy.
-* * *
+***
 - We all work so hard for nothing. Maybe we should just get real jobs.
 - Huh, what do you mean? You can't give up on the band now.
 - I know but...
 - Could it be? We have actual fans?
 - We're finally getting recognized after all this time.
 - Now come to papa.
-* * *
+***
 - Those guys have it made!
 - Oh, if only we could be like those guys.
 - It's cause they have style.
 - Style?
-* * *
+***
 - Hey, excuse me.
 - Uh, how can I help you? Want an autograph? Yeah?
 - Hmm... Um... Who does your hair?
 - Bread Barber?
-* * *
+***
 - Oh, check it out! These are the same guys we saw yesterday.
 - Looks like they really did get their hair done here. We should ask for the same things for us.
 - Sounds rad. Drum, you in man?
@@ -33,7 +33,7 @@
 - With this new style we'll be the biggest rock band of all time.
 - Crumbs yeah. We'll be super rock and roll.
 - Yo, we'll show them the spirit of rock!
-* * *
+***
 - Well, all done.
 - What is that?
 - No!
@@ -48,10 +48,10 @@
 - We're done.
 - There's no leaving until you pay up.
 - What? Come on. You don't know who we are. You guys, let's show him our rage.
-* * *
+***
 - You guys okay? That bread you're really gonna get it now.
 - Wait. Look at our style. It's rad.
-* * *
+***
 - Wow. We look awesome.
 - I feel the power of rock and roll flowing to my core.
 - We could definitely get more fans looking like this.

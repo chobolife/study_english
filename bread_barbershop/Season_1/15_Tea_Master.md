@@ -14,7 +14,7 @@
 - You can't tell the difference between greed and black?
 - Try it yourself.
 - But all teas taste the same to me.
-* * *
+***
 - See you tomorrow.
 - Have a good night, Master Bread.
 - Hey choco, are green tea and black tea the same?
@@ -29,12 +29,12 @@
 - Whoa. So if I make good tea, master bread will make me prime minister or something?
 - Uh... Worth a shot.
 - Yeah. I'm not that good at cleaning or stuff like that but maybe making tea can be my thing then Master Bread will love me.
-* * *
+***
 - Time to master a new hobby.
 - Boil the water to 100 degrees first.
 - Okay. The ratio of leaves to water should be one to no fifty.
 - No, no! That tastes like garbage.
-- * * *
+- ***
 - Steam bun? Maybe I should go directly to the tea master.
 - Hey, good morning sir.
 - Morning.
@@ -42,7 +42,7 @@
 - Not sure. Found this when I came in
 - Master Bread. I've decided to become a tea master. I shall travel many miles to obtain this knowledge. Farewell.
 - Uh... Why is he the way that he is?
-* * *
+***
 - Hello? Anyone here?
 - Are you the famous tea master? Nice to meet you.
 - I'm welcome I'd like your help
@@ -55,7 +55,7 @@
 - If you insist I shall take you on as my student.
 - But are you prepared to undergo extensive and rigorous training, my boy?
 - Yes sir. I won't disappoint you, sir.
-* * *
+***
 - The purest tea comes from the purest water.
 - Collect the dewdrops from gentle leaves in the early morning.
 - Tea made from this water is exquisite and fresh. It is called morning glory leaf tea.
@@ -65,7 +65,7 @@
 - Hey I'm still narrating here.
 - Tea doesn't care if you hurt your knee. This brew is called get up and stop being dramatic afternoon black tea.
 - Oh yeah. Oh man, this is tiring. I can do it!
-* * *
+***
 - Wilk, you have mastered the art of the brew.
 - There is nothing more for you to learn here. You should return to your life.
 - But I'm not ready to leave. How can I make tea without your guidance?
@@ -79,7 +79,7 @@
 - Five thousand dollars? That's way more than I can afford.
 - Because you are such a good disciple, I'll throw in an extra teaspoon set for free. Can't brew amazing tea without this.
 - Three teaspoon set? You rule! I'm so happy I came here to learn sir.
-* * *
+***
 - Huh? Wilk! Where have you been? What are you wearing?
 - Choco, I'll need silence in here, to brew the perfect pot of tea. Do you understand?
 - Good quality surely the steam bun family legacy will bless this tea.
@@ -88,7 +88,7 @@
 - That's so gross. Why is it so bitter?
 - It expired 30 years ago? I can't believe that stupid bun!
 - All teas are the same. It's just dirty leaf water anyway.
-* * *
+***
 - I spent all my money on this stupid set. This tastes like garbage.
 - What's this? That magical smell. Huh?
 - Master Bread, wait! NO!

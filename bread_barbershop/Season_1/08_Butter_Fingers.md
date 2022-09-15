@@ -6,17 +6,17 @@
 - Oh Butter. I...
 - Cut, cut, cut! Butter! Again! You slipped off the scene again.
 - I'm so sorry sir. Really.
-* * *
+***
 - You know if you were a fruit, you'd be a fine apple.
 - Oh my!
 - Cut. You slipped again.
 - Cookie fell on a bathtub.
 - Someone call an ambulance.
-* * *
+***
 - Listen, Butter. Every time you slip up, we lose precious filming time. Maybe you're just not cut out for a movie.
 - It's a shame someone so handsome can't act.
 - I told the director he should have hired margarine instead.
-* * *
+***
 - Do you want skin as shiny as mine? Moisturize with canola cream.
 - What a handsome guy! If only I could have his looks for one day.
 - Please he's not that great. Back in my day I was a handsome loaf. Way better than this guy.
@@ -24,7 +24,7 @@
 - That can't be! Nobody that handsome could be bad at anything at all. Those rumors aren't real.
 - Whatevs.
 - Is this the shop of Bread Barber?
-* * *
+***
 - No way! It's him! Master Bread. It's Butter the one and only!
 - Oh, wow. Is it really you, sir? You're even handsomer in real life.
 - That sugary sweet gaze. Perfectly sculpted nose. Million watt smile. It's just not fair that some people are born this way.
@@ -41,7 +41,7 @@
 - Both of you hush up, now!
 - How to make something that has more grip? Aha! Wilk, go get me the powdered sugar.
 - Okay.
-* * *
+***
 - Hold up. The sugars are coating so you won't slip as much.
 - But now he's as pale as a ghost. He's straight out of a nightmare.
 - Nightmare?
@@ -56,7 +56,7 @@
 - I don't want to cover up my face. Flaunted if you got it is what they say. Isn't there something else we can do?
 - Hmm I thought that would work. Ah yes. Wilk, go fix the honey jar from the third shelf.
 - Uh.. honey? If you say so.
-* * *
+***
 - Wow.
 - Master, That's so cool. Plus, he's got a nice tan now.
 - Don't celebrate too soon. Here, try to shake my hand.
@@ -69,5 +69,5 @@
 - How about a group photo before you go and pay?
 - Ah. Okay, of course.
 - Me too, me too.
-* * *
+***
 - I could have saved his career. Now it's just scandals.

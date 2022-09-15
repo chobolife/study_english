@@ -3,7 +3,7 @@
 - No! My hair! It looks idiot.
 - I don't understand how you still have a job. I'm never coming back.
 - Wait! Come back. Please.
-* * *
+***
 - Why does everyone think this bread guy is so great?
 - Wilk! Come on, Wilk. This isn't that hard. Don't drop the toppings.
 - That poor kid's probably just doing his best.
@@ -11,7 +11,7 @@
 - My favorite little employee.
 - Master bread is known for being strict and mean, which means this kid must be really good.
 - Ha. Looks like I should do some recruiting today.
-* * *
+***
 - See you tomorrow. Good night.
 - Can't wait to play games with Cheese.
 - Hey, Wilk.
@@ -28,23 +28,23 @@
 - Huh?
 - I wouldn't trade anything for my job at Bread Barbershop. Plus, I don't even know what stock options are. See ya.
 - Well, loyal on top of being a good worker. Now I really gotta make him work for me.
-* * *
+***
 - A raise would be nice, but Mr. Bread's more important than money.
 - There you are!
 - Oh, landlady.
 - When are you gonna pay up on your rent? You're three months late.
 - I know. I'm sorry ma'am.
 - Move out by the end of the week if you can't pay up.
-* * *
+***
 - Hello, it's Wilk. Huh? Our mom needs surgery soon? Yeah, okay. I'll send money over there.
 - Huh? I haven't paid the water bill or gas or electricity? I need money.
 - Hi. Mr. Chip? Yes, it's me.
-* * *
+***
 - Come see. Wilk dropped off a letter for you.
 - That's weird. What did it say?
 - He said he's quitting.
 - Hmm. Is that so? Let's start work.
-* * *
+***
 - Look at me hiring my own employee. I better be a good boss on his first day of work. But why isn't he here yet?
 - Mr. Chip! I'm so sorry that I'm so late.
 - Come on. How can you be late on your first day? Welcome.
@@ -54,7 +54,7 @@
 - It's a personal driver for Wilk. So now you'll come to work in this wow.
 - That's awesome.
 - He'll pick you up at your house every day.
-* * *
+***
 - So let's see what you're made of.
 - Okay. Where should I clean up first?
 - No, no. Give me that. You're too talented for cleaning. I mean, let's see how good you are at styling.
@@ -71,20 +71,20 @@
 - What's going on now?
 - Duh? I've obviously hired the best masseuses in town to help you out. We can work again once you're all better.
 - Thanks a bunch.
-* * *
+***
 - My phone's not working. I don't know why.
 - No worries. Just use mine.
 - Whoa. Thanks a bunch.
-* * *
+***
 - I'm starving.
 - Hungry huh? Well, that won't do.
 - Might as well fly out to the real thing.
 - Best lunch ever.
-* * *
+***
 - I'm in a total food coma.
 - You tired? Good thing I have this nap station.
 - This is the greatest.
-* * *
+***
 - What a ridiculous meme.
 - This guy better be the outstanding employee Bread says he is.
 - Hey Wilk.
@@ -97,9 +97,9 @@
 - Sweet! Thanks boss.
 - Be sure to promote the shop to them and maybe offer a discount.
 - You got it.
-* * *
+***
 - Ah... How nice to have an employee look after the store while I'm gone.
-* * *
+***
 - I know, right? There was raspberry filling everywhere.
 - Wilk, what's going on!
 - Oh, hey. You're back sir.
@@ -109,7 +109,7 @@
 - And then I thought it'd be rude not to invite Choco.
 - Oh, and the massage therapists are just really nice so I invited...
 - I can't take it anymore.
-* * *
+***
 - Bread, what is that milk carton kid's problem?
 - What are you talking about?
 - You know what I mean. Look at what he's done to my shop. It's a disaster.
@@ -123,13 +123,13 @@
 - Give Wilk back. He's the best employee we've ever had in the history of ever.
 - You'll never get him. Wilk's the coolest and best worker of all time.
 - Take Choco and Sausage, anyone, not Wilk!
-* * *
+***
 - Mr. Chip! I know you wanna give me a job, but violence is not the answer. I could never work for someone who beats people up like you. I'll work for Master Bread forever.
 - You what?
 - Sir, did he hurt you? I'll never leave you again Master Bread.
 - No. Ah...
 - I'm so sorry.
-* * *
+***
 - No customers for the fifth day in a row.
 - Wilk, are you even listening? Custard never goes to the jelly pill. Never.
 - Sorry, Master Bread. I'll remember next time.
