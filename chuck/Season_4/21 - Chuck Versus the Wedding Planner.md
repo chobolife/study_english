@@ -1,0 +1,722 @@
+# Chuck Versus the Wedding Planner
+
+- Hi I'm Chuck. Here are a few things, that you might need to know:
+- I had a fiancée.
+- Now she thinks I'm dead.
+- I don't want you lying to your mother on my behalf.
+- Me neither, but lying to her kind of goes with our territory.
+- Chuck, I'd like you to meet my dad, Jack Burton.
+- I'm not interested in your stolen money.
+- Stolen? That's what you think of your old man... some two-bit thief?
+- Darlin', a thief has to run out of town as fast as he can,  but a good con man...
+- A good con man can leave whenever he wants.
+- I remember, Dad.
+- (doorbell ringing)
+- Hello, miss.
+- Hi. It's that time of the year again.
+- Cookies.
+- Oh. And we're having a special.
+- If you get a box of each flavor right now, You get 20% off your whole order.
+- Well, okay. Great. So I'll put you down for the Skinny Mints, Palominos and Butter cookies.
+- Plus the Plippers, Zigaroos and Sugar-go-rounds... Oh...
+- You will not be sorry about those, I don't... Our entire new line of nougat-filled bon-bons, and of course, the five original wafers.
+- With a 20% discount, you're looking at a grand total of $84.
+- But that's exactly what I have.
+- Thanks, miss.
+- Your cookies should arrive next month.
+- ♪ ♪
+- How'd it go, darlin'?
+- Well, it didn't go great, but not bad.
+- $84.
+- Oh, not bad at all.
+- We made over two grand today.
+- You're getting better at this.
+- And remember, once you know all the cons...
+- I'll never be a sucker.
+- That's right.
+- There's your cut.
+- You earned it.
+- What you going to do with all that?
+- I don't know.
+- If you could have anything in the whole world what would it be?
+- An adventure somewhere.
+- Just you and me.
+- I tell you what, you save up and maybe we can do just that.
+- Home, sweet home.
+- Can I come in?
+- I probably shouldn't, kiddo.
+- Your grandma's not too happy with me right now.
+- See ya later, alligator.
+- In a while, crocodile.
+- Woman: And... your father?
+- Your father, Miss Walker?
+- Should I include him on the invite list?
+- Oh, uh, no.
+- No, that won't be necessary.
+- My father doesn't know we're getting married.
+- Sarah and her dad have a very complicated...
+- The invite list looks great as it stands. Thank you.
+- Well, all right then.
+- It looks like everything is in place.
+- We've got the location, the flowers, the food.
+- So, are you two finally ready to pull the trigger on this?
+- Trust me, I now that making decisions like this can be...
+- Overwhelming.
+- And exhausting. Exactly.
+- So if you two need a little more time to think things over, we don't have to move forward just yet.
+- No, we're ready.
+- No more changes.
+- Here's the wedding plan.
+- Pretty cool, huh?
+- This one's for you.
+- I made copies for everybody. And they're laminated.
+- Perfect. It saves me the trouble of doing it.
+- Well...
+- Um, can I ask you something?
+- You went with Helvetica for the invitations... and your wedding colors are red and black?
+- Yeah?
+- Ooh, it's just together they scream Socialism, you know?
+- Casey's going to decline.
+- Well, Sarah and I thought they were pretty nice.
+- I bet. So did Chairman Mao.
+- I guess I could talk to Sarah about it.
+- I would. Anyway, listen, I have a big day planned at the Buy More for Casey, so I'm going to get out of here.
+- Good luck.
+- Hey.
+- You have a lot to talk about.
+- Have fun.
+- Hey. Silly, quick little question.
+- Do our wedding colors remind you of Socialism?
+- In a good way?
+- Is there a good way?
+- You know, I don't want to make a thing out of it, so let's just call Daphne and see what she thinks.
+- Yeah, get her on speaker phone.
+- Love that gal.
+- We're sorry, the number you have reached is not in service.
+- Please check the number or try your call again.
+- Are you sure you dialed the right number?
+- Sarah: Oh, my God, I can't believe it. We've been conned.
+- We've been conned.
+- She's already cashed our check and our account has been emptied out.
+- I just don't understand.
+- She came so highly recommended.
+- By the Internet.
+- I should have seen this coming.
+- She asked for our money up-front, 'cause she gave us a 40% discount.
+- You know, if there is one thing I am not, Chuck... it's a sucker.
+- Yeah, well, me neither.
+- I mean, we're not a couple of sappy, helpless love birds.
+- Yeah, that's right. We're CIA agents.
+- Daphne Peralta... she chose the wrong couple to con.
+- That's us, right, honey? Of course I mean us.
+- Just checking. I thought maybe there was another couple that you... Getting in the car.
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- ♪ Chuck 4x21 ♪
+Chuck Versus the Wedding Planner
+Original Air Date on April 18, 2011
+- You know, for an amateur con, Daphne Peralta sure is hard to find.
+- I don't get it. We've traced every cell phone, every bank account, and nothing.
+- She must have hundreds of aliases.
+- She's a ghost.
+- I mean, not literally.
+- You know, it's not an apparition we're dealing with.
+- But in the sense that she's really hard to find.
+- I've used every available resource to find her.
+- Well, we could ask General Beckman for help.
+- To locate our wedding planner?
+- I don't think that's going to go down too well.
+- Honey, I know she stole from us, but you're taking this really hard.
+- Well, of course I am.
+- I was raised by a con man and I got taken.
+- We've done everything to make it right.
+- We've left no stone unturned.
+- Not every stone.
+- And right here, gentlemen, where you see your new shopping center... the Nagamichi Complex 2011.
+- I got chills just thinking about it.
+- Do we have a deal?
+- Sarah: Jack Burton?
+- Uh, give me one minute, gentlemen.
+- Old business associate of mine.
+- Oh-ho... my daughter conned?
+- I know. Chuck and I were throwing this party and...
+- Wow, you're still in Burbank with the Schnook?
+- How's that? Fine.
+- Anyway, the party planner, she ran off with all of our money.
+- Do you know Daphne Peralta?
+- Have you ever worked with her?
+- No, I'm sorry, darling, I never heard that name before.
+- Why don't you use some of your vast CIA resources to find her?
+- How did you find out?
+- Took a peek at your wallet.
+- Fancy Federal I.D. there.
+- Got to say I'm a little surprised you turned out to be such an upstanding citizen.
+- And a little proud, too.
+- Well, I've used all of my available resources and I don't have the authority to go any further.
+- Why let that stop you?
+- Con means confidence, you know that.
+- You remember that summer that we spent in Savannah?
+- The month where we lived in the governor's mansion.
+- You don't have the authority, you pretend you do.
+- That's right... fake it till you make it.
+- Okay, thanks for your help, Dad.
+- So that's it?
+- You're not going to explain to me what happened in the last two years to make you go from con to mark?
+- In a while, crocodile.
+- Hey, Dad.
+- Funny meeting you here.
+- Hello.
+- Why do I feel like this is an ambush?
+- 'Cause today is the day, John Casey.
+- What, that you move out?
+- No... who's gonna to do your laundry?
+- Today is the day you speak to Kathleen.
+- And tell her that you're still alive.
+- Yay. Yay.
+- Not gonna happen.
+- Okay, Dad, you have been putting this off for a week.
+- I know it's going to be hard to tell her, but you have to.
+- You said we were going to do this together.
+- I'm not avoiding anything.
+- Your mother believes that I'm dead.
+- If she walks into the Buy More, she'll think I left her for some crappy job.
+- She deserves better than that.
+- So much for that great idea.
+- Yeah, it wasn't such a great plan after all, was it?
+- Okay, be cool. Be cool.
+- Hey, did you guys find that new iPad case you were looking for?
+- No, no, we're actually completely sold out of them.
+- And I am very disappointed about it.
+- So we're just going to go.
+- What? They don't have it.
+- Honey, there's all those cute... No, that's the wrong generation.
+- They're a little bit different... the size...
+- You want me to what? !
+- Just fake a flash. A little one.
+- On Daphne Peralta?
+- Look, I question your dad's influence on you, because that is just crazy.
+- No, look, we've gone as far as we can without Beckman's approval.
+- And all we need to do is access the FBI's Echelon satellites.
+- Now she can either help us, or we lose Daphne, and our wedding. Okay, okay, fine.
+- I'll just give her one of these.
+- And voila... access granted.
+- It doesn't look like that.
+- Oh? What does it look like exactly?
+- Well, it kind of looks like you saw something really bright and tasted something really sour at the same time.
+- I don't know... if I had to do it, it would kind of be like...
+- Like that.
+- Oh.
+- What?
+- I thought it was good.
+- Hey, you don't like my flash?
+- It's not that I don't like your flash...
+- Well, then tell me.
+- She lives with the Schnook.
+- Yo, bro.
+- You're in Neighborhood Watch territory now.
+- Go ahead.
+- Try and run. I will be faster 'cause I have superior form.
+- (laughs) Whoa, whoa, whoa!
+- My daughter lives here...
+- Sarah Walker.
+- I'm Jack.
+- Wow, that's a hell of a grip you got there.
+- Do you rock climb?
+- Just a couple times a week.
+- I actually did El Capitan in '79.
+- Whoa, dude, that's awesome. Yeah.
+- I'm Devon. I'm Chuck's brother-in-law.
+- Oh, right, right. Yeah. Yeah, man.
+- Sorry about all the Neighborhood Watch talk.
+- Just protecting the fam, you know?
+- Of course, what's more important than family, hmm?
+- Well, I was, uh, I was gonna surprise Sarah, but obviously she's not home.
+- The problem is, (chuckles) I got nowhere else to go.
+- Oh, well, I, uh, I'm on baby duty, so...
+- Of course.
+- Sure, I'd be happy to help out.
+- Is that your place right there?
+- Sarah: General, I've been following somebody; a woman I think may be more dangerous than we expect.
+- Who is she?
+- Daphne Peralta.
+- Chuck, did you just flash?
+- That I did, partner. And you are right, this Daphne Peralta is a very dangerous woman.
+- What did you see?
+- Connections.
+- Specifically, connections between her and other dangerous people.
+- Who specifically?
+- Anan Magoro.
+- But we just took down the entire Magoro t*rror1st cell.
+- Was there anyone else?
+- Yeah. Yeah.
+- Who was that?
+- Artur Novokov.
+- Artur Novokov?
+- He blew up three U. S. embassies in Africa last week.
+- I'm putting out an interdepartmental call to CIA, NSA and FBI.
+- This could be the most important piece of U. S. Intelligence work in the last three months.
+- Uh, General, before you do that, you should actually know that...
+- I want every resource we have Gentlemen, as of this moment, redirected towards one singular goal: the location and apprehension of this woman, Daphne Peralta.
+- (computers chirping)
+- I want her captured dead or alive.
+- What? How am I suppose to know who Artur Novokov is?
+- Because you work for the CIA.
+- It's not my fault, okay?
+- We've been planning a wedding.
+- I've been incredibly busy. And besides, who puts a story this important on page 13? !
+- Oh, one of the Kardashian girls just got her GED.
+- Allegedly.
+- Chuck, all branches of the U. S. military are about to launch a full-scale attack on our wedding planner.
+- And it's not gonna take them that long to figure out the connection!
+- But the good news is... now we have access to all of the agencies' databases.
+- Daphne Peralta... (cracks knuckles) we're coming for you.
+- Keep your eye on it, kid.
+- Ready?
+- (baby cooing)
+- What do you think?
+- So, you here for the big day?
+- What big day?
+- Uh...
+- Today.
+- Every day's a big day to me.
+- I'm a go-getter. Carpe diem.
+- Hey, I got your toy.
+- Yeah, your favorite toy.
+- You're good with her.
+- Yeah, you know, at first it was tough.
+- I mean, really tough.
+- But then I started to learn Clara's signals.
+- Signals?
+- Yeah, like when she wants her pacifier, she puts her hands to her face, Like a "tell" in poker, right?
+- Sure.
+- My daughter, whoo, she's a tough one to read.
+- I taught her to keep things close.
+- I said, the second you let your guard down, you get hurt.
+- And she did, she let her guard down.
+- (quietly): And I want to know why.
+- You don't mind if I stick around a bit, do you?
+- You get HBO, right?
+- (alert tone sounds)
+- (Chuck typing)
+- Sarah, would it surprise you to hear that your father is at Ellie and Devon's apartment?
+- What?
+- Of course.
+- Baby, at this point, maybe we should just tell him about the wedding, you know?
+- It'll make everything easier and I'm sure he'd love to be there.
+- Chuck, my dad hasn't been there for a single important day in my life.
+- So let's just focus on Daphne.
+- I think I found her on one of these FBI Echelon satellites.
+- This was taken five minutes ago.
+- So, what is a Super Shuttle?
+- Reliable transport at a reasonable price.
+- Leaving Pasadena on the 134.
+- I got an idea.
+- Super Shuttle? Hi.
+- Yes, I'd like to organize a pickup.
+- Yes, I do have a Triple A card.
+- Sarah: Okay, Chuck, I managed to shut off Castle's satellite feed.
+- You have five minutes to get Daphne off that shuttle.
+- Beckman's already got Casey in the field with a SWAT team.
+- General, do we have a location on the target?
+- Not yet, Colonel.
+- Our satellites are still dark, but we're working on getting them back up now.
+- I'll be ready.
+- Girl: Oh, my God, Rosa, I met this super-hot guy at the Winston this week.
+- Daphne Peralta?
+- (clears throat)
+- Surprise!
+- Chuck Bartowski.
+- I work for the United States government. And you, ma'am...
+- (handcuffs click) are under arrest.
+- Sarah, I've got her.
+- We'll get her off the van at the next stop.
+- Watch this.
+- What are you doing? !
+- Get away from me! Oh, my God, somebody please do something!
+- What's going on back there? !
+- Nothing, nothing.
+- Everything is under control! I work for the U. S. government.
+- He does not!
+- This weirdo is my ex-boyfriend!
+- He's been stalking me for months! There's a stalker?
+- Oh, my God, he just exposed himself! Ew. No, I didn't.
+- Oh, my God, this guy just totally exposed himself to this woman on the Super Shuttle.
+- Somebody, please do something!
+- I didn't expose myself! Okay, everyone just calm down.
+- What is going on in there?
+- Nothing, nothing!
+- Everything's under control.
+- I'm fine. How are you?
+- I told you we should have taken a taxi.
+- What's it, $15 more?
+- Quiet down, all of you, okay? !
+- We're already late!
+- Now who's flying Southwest?
+- You? Okay.
+- Colonel, I was able to get a trace on our target.
+- Sending it to you now.
+- Hmm. Super Shuttle.
+- Good cover. No one would give it a second look.
+- Listen up, men!
+- Daphne Peralta is smart and dangerous.
+- I don't want to lose anyone today, so keep your eyes peeled and your g*n ready.
+- You heard her, boys. We're going in hot.
+- Agents: Hoo-ah!
+- Listen, you have got to get Daphne off that shuttle right now!
+- Okay, okay, I'm working on it.
+- Yeah, that's right. I'm talking through a earpiece to a government agent who also wears an earpiece 'cause we're government agents!
+- No more messing around.
+- Sir, stop this shuttle right now!
+- No way, man. I'll lose my job if I don't get everybody to the airport on time.
+- I am extremely unstable!
+- (woman shrieks)
+- Driver: What're you talking about?
+- If you don't pull over this van, I will expose myself to you and everyone else in this vehicle.
+- (gasps)
+- Oh, my God.
+- (engine revs, tires squeal)
+- (car tires screech)
+- Blondie's here, too, huh?
+- Okay, look, this is already spiraling out of control.
+- The CIA's gonna be here any minute, so please, just get in the car.
+- Listen, I get it that you're angry, okay? But there's not a damn thing you can do.
+- Your little government con? It failed.
+- I'm calling your bluff.
+- What the... ?
+- (g*n cocking)
+- We are in really big trouble.
+- Yeah.
+- She's your wedding planner?
+- Do you two have any idea what you have done? !
+- An inkling, yeah.
+- I'm to blame, General. It was my idea.
+- We all have personal lives, Walker.
+- It shouldn't interfere with the mission. You know that.
+- You're both to blame. I just thank God that Ms. Peralta isn't going to press charges.
+- Press charges? ! She's a thief, General!
+- She stole $26, 230 from us.
+- For the foreseeable future, you're both suspended.
+- General, General, this is Daphne's client book, okay?
+- It has all the people she's conned in it. Look, the Bartholomews, they were promised a horse-drawn carriage for their wedding!
+- Over here, oh, look at that, the Gerlichs!
+- Look at all the family they have flying in from Hungary.
+- I mean, the airfare alone...
+- Oh, General, the bride's brothers are Hungarian scientists.
+- Let me guess: you flashed.
+- Yeah! Yes, I did.
+- I did, I did, yes.
+- Bruno, Franz and Paulie Klug, they've been working for the Iranian government for the last decade.
+- They have all of Iran's nuclear research on a portable device called the "Zephyr. " this time, The face was more convincing but I'm still not buying.
+- You are not to pursue anyone or anything until you have earned back the trust of the United States Government.
+- And if history is any indication, then that might take a while.
+- Okay, now where's the ball?
+- This one?
+- Really?
+- You sure?
+- Okay.
+- Nope. You see, the secret to the shell game is the ball's not in any of these.
+- It's right here in my pocket.
+- Once you know all the cons, you'll never be a sucker.
+- Woman: Your daughter needs a father she can rely on, Jack!
+- Jack: She can count on me!
+- Really? Is that why you're asking for money again?
+- Look, whatever you can spare now, I'll double in a month. You know I'm good for it.
+- You're not welcome here anymore. I'm sorry.
+- Just let me say good-bye first. Okay, okay, I get it.
+- No. I can't imagine what it must be like for that sweet girl to constantly say good-bye to her father.
+- She deserves better.
+- What... ?
+- I don't want to live with Grandma any more.
+- I'm coming with you. No, I don't think that's a good idea. But I brought this.
+- You need it, right?
+- I can't, sweetie. This is your money.
+- But I know you're good for it.
+- Plus, we don't need that money to have an adventure together.
+- You're right... all we need is you and me.
+- You want some ice cream?
+- No.
+- I'm sorry my advice didn't pan out.
+- Is that why you're here, because you were worried?
+- Yeah. A skosh.
+- Here.
+- What's wrong?
+- It's a work thing, I probably shouldn't discuss it.
+- Come on, give your old man a chance.
+- I do know a thing or two about criminals.
+- Maybe I can help.
+- Okay, well, there are these three brothers called the Klugs, and they are never in the same place at the same time, but they're going to be in L.A. for their sister's wedding, and they always carry around this device with them, called the Zephyr, but they rotate it amongst themselves, and, um... you know, never mind, this is...
+- No, I'm listening.
+- Your mark are the Klugs, and the Zephyr's the package.
+- Right.
+- Right, but the problem is the wedding reception that they're supposed to be at is one of Daphne's cons.
+- Any way we could make that wedding reception happen?
+- Daphne's records did say that she had never met the Gerlichs in person, but even if I convince them that it's still on, how can I possibly throw a $100, 000 wedding in 24 hours with no CIA resources?
+- 'Cause darling, you got me.
+- Now, I know you guys are all used to having some high-tech resources at your fingertips, but everything I know, I learned in the '80s when VCRs and rollerblades were the cutting edge, so just bear with me.
+- Especially you, Chuck.
+- Just wanted to thank you guys for including me on this.
+- Always wanted to pull a con, so...
+- Daphne Peralta promised the Gerlichs a lavish reception at the Grand Ambassador Hotel Ballroom.
+- (whistles) That is beautiful.
+- Unfortunately, the ballroom was booked months in advance for Tammy Katz's Bat Mitzvah.
+- So it's a no-go. Not necessarily.
+- Jack: Bat Mitzvah starts at 8:00, and our reception begins at 6:30.
+- Ma'am. Can I help you?
+- SARAH (Jersey accent): So you gonna act like you don't know who I am now?
+- Daphne Peralta, Tammy Katz's Bat Mitzvah coordinator.
+- Now per Tammy, I called in advance to ensure I'd have the room for two hours before the party.
+- Tammy's got a theme for tonight.
+- Hungarian wedding.
+- ♪ ♪
+♪ ♪
+- (clears throat)
+- Casey, what are you doing here?
+- I came to stop you. You're in deep enough as it is.
+- But, Casey... the three Klug brothers will all be here tonight, and one of them will be carrying the Zephyr device that has all of Iran's nuclear research on it.
+- And I know it sounds crazy, but it's true.
+- Sarah: Look, I shouldn't have lied to you... I did it to protect you... I'm sorry.
+- It was a mistake, but what Chuck is talking about is very real.
+- Okay, what can I do to help?
+- Hey, cop face. Glad you could join us.
+- I think we got a job for you.
+- ♪ ♪
+- All right, all you party people, let's get this shindig a-goin'!
+- Come on!
+- ♪ ♪
+- There you go. Enjoy.
+- Still no sign of the Klugs.
+- Keep stalling.
+- All righty, folks.
+- Slow things down for a second, huh?
+- Grab that special someone, and show'em how much you love 'em.
+- Shall we?
+- You're asking me to dance?
+- We got time.
+- Plus, uh, it could be the only chance I get to dance with my daughter at a wedding.
+- Um...
+- Chuck and I are getting married.
+- I know.
+- I'm sorry I didn't invite you.
+- Oh, hell, you were right not to.
+- I don't exactly have a great track record of, uh... well... being around.
+- Truth is, I, uh...
+- I never thought my little girl would settle down.
+- I thought you'd end up more like me, just one adventure after another, never stay in one place too long...
+- Isn't that what you wanted?
+- It was.
+- But, um, I found a home here, a good one, and I'm happy.
+- I'm sorry, Dad.
+- (door bangs)
+- Got my eyes on the Klug brothers.
+- They're armed and dangerous.
+- Casey: Be careful.
+- You ready for this?
+- Just like old times, kid.
+- All right, Sarah. You're up.
+- Chuck: Klug number one is approaching the bar.
+- (Jersey accent): Mr. Klug, hello.
+- Daphne Peralta, wedding planner.
+- Are you enjoying the party?
+- Yes, it's very nice. Although it wouldn't be the same without your extraordinarily generous gift to the Gerlichs.
+- The toaster?
+- No, silly. The open bar.
+- No, no, no.
+- This is a mistake.
+- Oh, I'm sorry. You know, I've got your credit card on file in the back, and if you just follow me, I'm sure we can sort this mess out, okay? Come on.
+- Sarah: Again, I'm so sorry for the inconvenience, dear.
+- It's no problem.
+- Got mine.
+- Morgan: I'm so sorry about the spill. I'm an imperfect man.
+- I'm sure that we have something back here that can get the stain out.
+- Coming in here!
+- Spy high-five!
+- Casey? Two Klugs down.
+- One to go.
+- Oop... scratch that, I've got a bogey.
+- I need someone else to cover Klug number three.
+- Hey, hey!
+- Hey, friend!
+- How you doing? Do I know you?
+- Oh, oh, sorry, my bad. It's Spenser Finn.
+- Kathleen: Alex!
+- (sighs)
+- Sure didn't want it to happen this way.
+- Kath. What are you doing here?
+- I followed you from the Buy More.
+- (laughing)
+- Unbelievable.
+- I can't believe you dated Parisa, too?
+- Who didn't?
+- Hey, tell you what... why don't we just go drink a toast to her, all right? Good stuff's in the back.
+- Come on.
+- I don't understand.
+- We had your funeral.
+- I was given your flag.
+- But you didn't die.
+- You... just left?
+- You left me for... what?
+- CHUCK (over comm): Casey, we've neutralized the Klugs.
+- Let's get out of here.
+- To work part-time as a security guard and moonlight at the Buy More?
+- Really can't talk to you about this right now.
+- Please. You need to leave.
+- I talked to Alex, and, uh... she already knew.
+- She thinks you're some kind of... hero, or something.
+- That you work for the government.
+- She wanted to believe it so much.
+- I guess I did too.
+- Casey, where are you?
+- Chuck: You should go.
+- But only if you promise to tell Alex the truth.
+- You want to be a part of her life, you owe her that.
+- I don't want to lie to anyone.
+- Then don't.
+- Hey. Where's the DJ?
+- He needs to make an announcement.
+- They're just about to cut the cake.
+- Oh, the cake. Right, right.
+- Uh, the DJ will be back in a minute, I promise.
+- He's in the bathroom, so... don't worry.
+- What am I looking for?
+- Well, the Zephyr's small, like a portable hard drive.
+- Bruno's clean.
+- Sarah: So is Paulie.
+- This one, too.
+- Then where's the device?
+- How do none of them have it?
+- Guys, listen to me... people are getting restless, all right?
+- The father of the bride wants to cut the cake.
+- And in case everybody has forgot, the cake is made of Styrofoam.
+- (groans)
+- I don't get it. I mean my flash said that one of the Klug brothers keeps the Zephyr on him at all times.
+- (fingers snap)
+- It's a shell game. What?
+- You're right. The Klugs are just decoys to keep everybody distracted.
+- They always have been, but we didn't know it because they've never been in the same place at the same time.
+- In the game, the ball is always close by.
+- Which means someone else here has the Zephyr.
+- Coming through, coming through, coming through.
+- That kn*fe is very dirty.
+- This is their moment.
+- (high-pitched squeaking)
+- (crowd groaning)
+- The cake is made of Styrofoam, and you knew it.
+- What's really going on here?
+- Where are my sons?
+- Who do you work for?
+- Daphne Peralta.
+- Let's talk outside.
+- We need to get back out there.
+- Morgan: Listen, there's no reason for the g*n, sir.
+- I mean, Mr. Father of the Bride. Morgan, where is he taking you?
+- Oh, what a lovely parking garage.
+- No, no, no, no, no. Hold on a second.
+- I am nobody.
+- I'm nobody!
+- There'd virtually be no consequence in you letting me go.
+- Then the same goes for k*ll you. What? !
+- Freeze! Put your g*n down! You're under arrest!
+- Chuck!
+- Morgan!
+- Hey!
+- You got no place to go.
+- (muffled yell)
+- Hi, Casey.
+- Hi, Morgan.
+- Sorry, Casey.
+- You wouldn't risk your partner's life.
+- You won't pull trigger.
+- You couldn't be more wrong, my friend.
+- Listen...
+- Can I call you friend?
+- What is your dad doing? Just give him a minute.
+- This man is going to sh**t you and he is not going to miss.
+- But I'm hoping that he doesn't have to k*ll you.
+- See, I-I-I...
+- I've got a daughter, too.
+- And based on the situation here, I'm thinking you're not the best father in the world.
+- Join the club.
+- I guess the only thing we can really hope for is that, someday, our little girls might be happy despite us... and yours is.
+- She's upstairs right now in her white dress.
+- And here you are, about to take a b*llet in the head.
+- So... do one thing for her...
+- Yeah.
+- ... put the g*n down.
+- Turn around.
+- (sirens wailing)
+- Colonel John Casey.
+- NSA.
+- The behavior you two displayed with your wedding planner ... was unprofessional and unacceptable.
+- General, I promise I will never fake a flash again.
+- We are very sorry, General.
+- However, my superiors were quite impressed you did with the exceptional work in acquiring the Zephyr device.
+- Though I still question how you managed to accomplish that task without any CIA resources...
+- Uh, well, it-it was really, um...
+- You could chalk it up to...
+- I have a feeling the less I know the better.
+- Welcome back.
+- You're dismissed.
+- That went better than expected.
+- I thought so. Yeah.
+- You leaving already?
+- I got wind of a wealthy Alabama couple looking into orange futures, and I'm pretty sure I own a bunch of those.
+- So... Huh.
+- I'm on the next flight out.
+- Okay, but Sarah's on her way home.
+- She'll be here soon.
+- We've never been great at good-byes.
+- Look, I-I know that you never got a proper invitation in the mail, or anything, but just watching you and Sarah...
+- Look, I know she'd never say it, but it would mean the world to her if you came to our wedding, and walked her down the aisle.
+- You should follow my daughter's lead.
+- She knows me very well.
+- I wish you both the best, but I'm afraid I won't be able to make the wedding.
+- What do you mean? You're her dad.
+- I've always been a better con man than a father.
+- I made a promise to myself, a long time ago, to never promise her something that I couldn't give her.
+- She's had her heart broken too many times by me.
+- I... I just don't want to do it again.
+- Just, hey, just-just... just stay for dinner at least.
+- Please?
+- All right, Charlie, I'll stay for dinner.
+- Good, good. Thank you.
+- This is my fault.
+- I just never thought I'd see you again.
+- She does that.
+- Hmm? Alex.
+- That thing with your hand.
+- Alex does that when she's nervous.
+- Oh.
+- I hadn't realized. Never noticed.
+- Alex is amazing. You should be proud.
+- You've done a great job, Kath.
+- Well, it'll be easier for her, now that I know.
+- Well, I didn't just do it for her.
+- Look at you.
+- You're a soldier, you're a hero.
+- You have everything that you've ever wanted.
+- Hey, baby.
+- Hey.
+- So I was doing a little research and I was thinking that a courthouse wedding might be kind of romantic, or at the very least, within our new budget.
+- That sounds nice. Mm-hmm.
+- And I got all the ingredients for dinner with your dad.
+- I'm making your favorite... chicken pepperoni.
+- Where is he?
+- He's gone.
+- Did he tell you he was leaving?
+- He didn't have to.
+- It's what my dad does, Chuck.
+- He just leaves.
+- Once you know all the cons, you can never be a sucker.
+- ♪ ♪
+- Come here, sweetie.
+- See you later, alligator.
+- Jack: You gave this to me a long time ago and I want you to know I never spent a dime of it.
+- I only ever added to it.
+- It should more than cover the cost of your wedding to the Schnook.
+- I hope now you can have all the adventures you ever wanted with a man far better than me.

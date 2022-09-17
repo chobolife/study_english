@@ -1,0 +1,680 @@
+# Chuck Versus the Couch Lock
+
+- [MEN SPEAKING IN FARSI]
+- [GRUNTS]
+- [g*n]
+- That was easy.
+- Yeah. Too easy.
+- Wasn't even fun.
+- Speak for yourself.
+- I like easy.
+- Casey: Can it. We have work to do.
+- Mac, get the panel.
+- Packard: All right, let's have a look, boys.
+- There's enough gold in here for us all to retire, five times.
+- That gold is being used to secretly fund t*rrorists.
+- We are under orders from President Clinton to seal this place up.
+- While I may not like him or his mouthy wife, those are the orders.
+- Anyone tries to open this door: Boom!
+- I'm just saying, you know... hidden in a vault, hidden in our bags... what's the difference, Casey?
+- Difference is that wasn't our mission.
+- That gonna be a problem for you, Packard?
+- Well, actually, it is a problem, for you.
+- You're outnumbered, pal.
+- You're both with him, huh?
+- I'd like to retire young.
+- Mackintosh: Maybe move to Boca.
+- Packard: Can't blame the boys for thinking about their future, Casey.
+- [SIGHS]
+- [GRUNTING]
+- You'll have plenty of time to think about your futures... in Leavenworth.
+- [SNIFFS]
+- [CASEY SIGHS]
+- Casey, Jeffrey and I were feeling nostalgic... for the days of the old Buy More.
+- So we decided, you know what would make this place feel like home again?
+- Getting the gang back together.
+- Jeff: You in, C-note?
+- I was never in your gang.
+- So, what do you say? Friday night, a little white zin... a little "Magic: The Gathering"?
+- If you have the mana... to battle the other planeswalkers.
+- [LESTER CHUCKLES]
+- "If you have the mana. " This guy.
+- You think about it and let us know.
+- [SIGHS]
+- Symmetrical thing, but, you know...
+- Guess who.
+- Okay, soft, perfumed hands. Yeah. Sweet, sweet feminine voice.
+- Yeah, Chuck. That's easy. I would know that, uh, any...
+- Ah, it's Alex. Oh, that's even better. Hey.
+- Morgan: Boom.
+- Alex: Ha-ha-ha.
+- Wait a minute. Did you just fist-bump me?
+- Yeah. I blow it up with everybody.
+- Ha-ha-ha Did you know that? I do. I get silly and...
+- Alex: Come on, Morgan.
+- We're not buds. We're dating.
+- I know that. I mean, you...
+- I know we're dating. It just...
+- You know, not, uh, everybody here knows that we're dating.
+- Morgan... you said that you were gonna talk to my dad about us.
+- I was going to. Check this out. Funny story.
+- Morgan, I get it. My dad, he is very intimidating.
+- No. Not, uh...
+- But it's really important to me that we're honest with him, you know?
+- I know.
+- I have to get to class in 15.
+- But I will talk to you later.
+- Absolutely.
+- [BOTH CHUCKLE]
+- Still haven't told Casey yet, huh?
+- No.
+- Well, be careful how you break the news to him. He might k*ll you accidentally.
+- Sound advice. Thank you.
+- Yeah, you know, anytime. Um, buddy, can you do me a favor?
+- Of course.
+- Um, could you cover for me up here?
+- I got a little work to do downstairs.
+- We just got a file from Costa Gravas detailing their interactions... with the Volkoff organization over the years.
+- Volkoff? That's good. This will lead back to your mother, right?
+- I hope so. Since I told Ellie about the search... the pressure has really been on to find her.
+- Ellie deserves to know the truth just as much as I do, so...
+- I've gone through all of these files, and there is nothing on your mom.
+- Okay, okay. So maybe there's nothing on Frost per se.
+- But perhaps there's something Frost-adjacent.
+- Something that can lead us to her.
+- What about Volkoff's prisons?
+- What do you mean?
+- Volkoff has a network of black sites.
+- Basically, a private prison system run by extraction specialists.
+- If anybody is gonna know where Volkoff's prisoners are held... it's these guys.
+- Sarah... those guys used to work for someone we know.
+- After I secured the gold using my handprint... I dragged my former team across the desert... thereby saving their miserable mutinous lives.
+- Oh, okay. Then what happened?
+- I had them court-martialed. They probably escaped... from a maximum-security stockade...
+- To the Los Angeles underground... where they survived as soldiers of fortune.
+- Ha, ha. It's like The A-Team. You never... ? Have you ever seen The A-Team?
+- I was the A-Team.
+- Ah.
+- They've taken a couple of shots at me over the years.
+- The last time, I taught them to stay hidden.
+- Well, is there anything you can tell us about how to find them now?
+- Casey, these guys may be the key to locating my mom.
+- Only place I can think of to get these three back together... would be my funeral.
+- That's it. Casey, I know how to find your old team.
+- We have to k*ll you.
+- Let me get this right. You want to use government resources... to stage a fake funeral for Colonel Casey?
+- Well, yes. Uh, general, I believe we have a unique opportunity here... to set a trap for Casey's old team, who happen to be Volkoff agents.
+- They think I'm dead, they'll come for this.
+- My handprint's the only way they're gonna access that vault.
+- We spread the news of Casey's death through the channels... that civilians don't monitor but Volkoff does.
+- Next up, we k*ll the colonel.
+- You want him to play dead?
+- I'll be drugged.
+- When Casey's former team sees Casey's body... they'll drop their guard, giving us the upper hand, and we'll move in.
+- We will control every entrance and exit. sn*pers will be posted and at the ready.
+- And the audience will be filled with agents that we've planted there.
+- All right.
+- You've clearly thought this through. The mission is a go.
+- Thank you, general.
+- Colonel Casey, Agent Walker, you're dismissed.
+- I'd like a word with Agent Bartowski alone.
+- I'm impressed. You've really progressed as a spy.
+- Thank you, ma'am.
+- Thank you very much. But I'm not sure if I know what you mean.
+- You've put duty above emotion.
+- Using Colonel Casey as bait? It usually takes years... before an agent is willing to put his teammates in harm's way.
+- Good tactical thinking, Bartowski.
+- Huh.
+- [GRUNTS]
+- Hmm. Pesky dress uniforms get tight when you don't wear them for a while.
+- Listen, Casey, if you feel the mission is a little too dangerous... and you need to back out for any reason...
+- You and Alex have just reestablished this connection...
+- Walker will be there. It'll be fine.
+- I'm serious, Casey.
+- Just stick to the mission. Tell me about the drug you're gonna use, hmm?
+- What's it called? "Fakeadeathanol"?
+- Cute. No.
+- As a matter of fact, it's called Tetradotoxin.
+- Chuck: Normally, it would k*ll you.
+- We've modified it. It'll slow down your breathing and heart rate.
+- Outstanding.
+- You will come across... as being very, very dead, but in actuality... you'll be alive and awake, however, paralyzed. I'll show you how it works.
+- No. It's not like it's the first time I ever faked my own death.
+- Uh, about that. Because you've been exposed to so many truth serums... and tranquilizers and what-have-yous... throughout your long and colorful career... we're not sure how long the drug's effects will last in your system.
+- I'm gonna take the liberty of stashing a hypo on your person.
+- All right. I'd like a little alone time before I die.
+- Pay some bills.
+- One more thing. Little thing. Uh...
+- Because Sarah and I are gonna be busy during all of this... we're gonna need someone to deliver a eulogy.
+- I was thinking...
+- Of course I'll do it. Oh, man, what am I gonna talk about, though?
+- I'm getting nervous. I'm starting to sweat.
+- Is that normal before a mish? Can I do that? Can I call it a "mish"?
+- Sure, whatever, yeah. I just thought, given the Alex situation... this is the perfect opportunity to get in Casey's good graces. Think about it.
+- He'll have no choice but to just lie there and listen to every nice thing... that you have to say.
+- See, this is why you ha...
+- [KNOCKING ON DOOR]
+- You expecting somebody?
+- Morgan: No.
+- Chuck: Hey.
+- Hi.
+- We have news.
+- On the count of three. Okay? Ready? One...
+- It's a girl.
+- Morgan: Hey!
+- Hey, wow.
+- Amazing.
+- I didn't know you guys were hoping for a girl.
+- Oh, we would've been happy either way.
+- I'm excited to see my babe with a papoose strapped to her. Ha, ha.
+- Is that weird that I find that hot?
+- I don't know what a papoose is.
+- It's a good time for them to drink. I can't, but why don't you... ?
+- Morgan: Yeah, pop it up. Let's do it.
+- Congratulations.
+- Thank you. Thank you.
+- Here, can I talk to you for a minute?
+- Yeah.
+- Uh, well, it's... It's about Mom.
+- I know I said I was worried about you looking for her, but I changed my mind.
+- I wanna know what happened to her.
+- Uh, what made you change your mind?
+- I just got to thinking, you know, I'm having a little girl... and is she ever gonna know her grandmother?
+- Uh, well, I just found a promising lead. So if it goes anywhere... you'll be the first to know, okay?
+- Okay.
+- All right. Let's have some champagne.
+- Well, I'll have a drink. You can have some water.
+- [SOMBER ORGAN MUSIC PLAYING]
+- He looks so peaceful.
+- Oh. Whoa.
+- That's freaky. Did you know he could do that?
+- I knew he could do that.
+- Morgan: Stop doing that. Don't stare at me.
+- Okay, I gotta go over my notes.
+- Listen to me.
+- Don't worry about a thing. I am gonna eulogize the hell out of you, buddy.
+- Right. Got this.
+- sn*pers are all in position. We're set.
+- Hey, Alex. It's me, Morgan... in case you don't recognize my voice yet.
+- That's my voice. Ha, ha. Just wanted to call you and let you know... that, uh, I'm gonna tell your dad about us today.
+- I got the perfect spot for it.
+- Do you find it kind of sad... that the only people who showed up for Casey's funeral... are the agents that we planted here?
+- Sarah: That's not true.
+- Is it?
+- No. No. You're right. There are people here who also hate him.
+- Target 1 is in position.
+- [MOUTHS] What?
+- He just stabbed him with a pin. He can still feel pain.
+- Hey, he's gonna be okay.
+- Just let him know, "Casey, I'm dating your daughter. " End of story.
+- [STUTTERS]
+- End of story.
+- Take charge. Just calm down.
+- Showtime.
+- Please be seated...
+- [MICROPHONE WHINES]
+- Morgan: Sorry.
+- You're sitting. Ha, ha.
+- You know, if there was one word I'd choose to describe John Casey... that word would be "forgiveness. "
+- Big, g*n, commie-hating forgiveness.
+- There was something I wanted to tell John before he passed.
+- Something I need to get off my chest.
+- Oh, no.
+- I know John is somewhere out there beneath the pale moonlight... listening intently...
+- I wanted to tell him how handsome he was.
+- And I never got a chance. That man could fill out a uniform.
+- That's not the physique of a middle-aged man. Am I right or, uh... or am I right? Because... It's hot in here, isn't it?
+- But, so, what else is there to say about John Casey?
+- Morgan: Well, he was a big man.
+- Big Biceps. Big hands. I used to call them "mitts. " They were like giant mitts.
+- They could fit all the way around my neck, anyway.
+- And once, I actually saw him palm an entire watermelon.
+- It was one of his many strange hobbies.
+- Also, he has very large feet.
+- Should we move in before someone takes a blowtorch to his face?
+- We have to wait for the other guy.
+- I could use him as a kayak... in case of an emergency. 2012 and all that.
+- It's okay. Casey's been through worse.
+- Morgan: His neck was very, very thick.
+- And I was always very jealous of it. I think, in Roman times... it was a sign of a great warrior. Don't quote me on that.
+- That's Wikipedia, so it's probably, at best, spotty.
+- But, uh, where am I going with this?
+- Um, a better question is where John Casey would want me to go with this.
+- They're getting up. Be ready to move on my mark.
+- But alas, we shall never know... for he no longer walketh among the living.
+- [SIGHS]
+- We miss you, J. Case, that's for sure. And, uh, please come back soon... in song and limerick.
+- Is he crying?
+- I'm done. Goodbye.
+- [LAUGHING]
+- [g*n COCK]
+- Did you really think we'd come to Casey's funeral unprepared?
+- You're all under arrest.
+- Give up now.
+- We have every exit covered.
+- I think you missed one.
+- Boom.
+- [b*mb BEEPING]
+- [PACKARD GRUNTS]
+- Has anyone got him?
+- Anyone?
+- I lost Casey.
+- I can't believe this. I got Casey to fake his own death... and now he can't defend himself. This is all my fault.
+- Call Tactical. I want a hundred men locked and loaded, ready to go.
+- Did you find him yet?
+- I'm working on it.
+- Tracker's engaged. We have a lock on his location.
+- I'll call the strike team.
+- Chuck: Please be alive, Casey.
+- CHUCK [OVER RADIO]: This is Bartowski. Target needs assistance ASAP.
+- Move in right now. Do you copy?
+- Officer: This is Tactical. We're at the location.
+- Chuck: Do you have him?
+- [CAT MOWS AND PURRS]
+- They put his tracker on a what?
+- No. God, no. No, don't sh**t it.
+- They took off his tracker and put it on a cat.
+- Then where is Casey?
+- Packard: So we gotta chop his arm off.
+- T. I: It's the left one, right?
+- I was planning on doing it with this.
+- Not with a kn*fe. No. It's too dull.
+- Mackintosh: What we need is a surgical saw.
+- I got one in the other room. You mess up his hand... you won't be able to open the vault.
+- Packard: Surgical saw, huh? Ha-ha-ha.
+- That's nasty.
+- Casey: Move, damn it.
+- Move.
+- Packard: Now you look like Dr. Frankenstein.
+- Mackintosh: Now we're talking.
+- [SAW WHIRS]
+- It's like cutting into a bird on Thanksgiving.
+- [DOORBELL RINGING]
+- Doorbell. Mackintosh.
+- Get your g*n.
+- Packard: Come on, come on, come on. Check.
+- Hey, buddy, is there anything I can do, anything at all, to be useful?
+- Um, right now, Morgan, the best thing you can do is help keep Casey's cover.
+- If anyone asks about him upstairs, just say he's on a delivery.
+- I should get back upstairs, right?
+- Okay. Yeah, yeah, yeah.
+- Chuck: There's gotta be some way to find him.
+- [GRUNTS]
+- [PANTING]
+- You had to order a pizza.
+- You wanna eat pizza... after we cut the guy's arm off? Now is the time to eat pizza.
+- Right. You're right. So...
+- Mackintosh: Hey.
+- How?
+- Packard: Looks like John Casey ain't so dead.
+- [GRUNTING]
+- [PHONE RINGING]
+- Casey. Code red.
+- I've been drugged. Don't know how long...
+- [PANTING]
+- ... I can stay conscious.
+- Need extraction.
+- In an alley, 4th and Hill.
+- I'll be in a Dumpster.
+- Don't worry. I know that Dumpster.
+- Casey: Wait. Who is this? Where's Chuck?
+- We're on the way.
+- Lester. Nerd Herd emergency. Man down. Meet me at the Herder.
+- We tracked Casey's cell to this alley. Stay alert.
+- Damn it.
+- He's not here.
+- Yeah, well, he was.
+- Well, he can't have gotten far. There's gotta be a clue or something.
+- Like an open window.
+- I'll call Tactical.
+- No, no, no. We don't have time to waste. We're here right now. Let's go.
+- Lester: Always the straight-laced ones.
+- I told you, everyone needs to get their freak on sometime.
+- What's up with the uniform, you think?
+- I got one too.
+- Sometimes I like to feel official.
+- [CELL PHONE RINGS]
+- Go for Lester.
+- Where did you guys go? I got a line of customers heading out the door now.
+- Man down, man. Man down.
+- LESTER [OVER PHONE]: We had to go get Casey.
+- What? You're with Casey?
+- Yeah, I guess his install went sideways. Luckily, we intercepted his SOS.
+- From the looks of it, he's been hitting the OG Kush.
+- Lester, what does that even mean?
+- Look, never mind. Whatever he did, he did too much of it. He can't move.
+- Yeah, he's got couch lock, bad.
+- Morgan: Listen to me.
+- Forget coming back to the store. Can you get Casey to my apartment?
+- There's a key under the mat.
+- Yeah, no. We got keys.
+- What? I... Mm.
+- All right.
+- Morgan. Morgan, that is fantastic news. You stay put. We'll be right there.
+- Chuck: Casey's safe. He's at our apartment.
+- What? What happened?
+- [ALARM BUZZING]
+- Oh, my God. Don't move.
+- Not moving.
+- Oh. Oh.
+- Don't move.
+- Yeah, I heard you the first time... and I'm not moving.
+- Sure.
+- Careful, careful, careful.
+- Sarah: Uh-oh.
+- Uh-oh?
+- You don't say, "uh-oh. "
+- You step out of that laser beam, and this goes off.
+- Okay, um, I think I can try and bypass the circuit.
+- I'm so sorry. This is all my fault.
+- What?
+- I was so set on trying to find my mom.
+- I let my emotions take over. Now I've put everyone that I care about in danger.
+- First Casey, now you.
+- Oh, my God, this is complicated.
+- Look, I can't bear the thought of you getting hurt if this thing goes off... so I want you to go now. Save yourself.
+- You know what? You could've told me that before I climbed under those lasers.
+- I... When I... I didn't...
+- Chuck, you're being ridiculous... even for a man who is trying to free himself from expl*sives.
+- Casey and I know the risks. Of course we're gonna help you.
+- This is your mom.
+- I love you, you know that? And I'd say that... even if you weren't in the process of saving my life right now... which does, by the way, make you 20 to 25 percent sexier in my book.
+- All right, 50.
+- Okay. All right. Listen, uh, Chuck and Sarah are gonna be here any minute, right?
+- All we gotta do is wait for them.
+- Do you understand what I'm saying?
+- You're blinking a lot.
+- I hope you know I don't understand Morse code.
+- [KNOCKS ON DOOR]
+- That could be them. Why would they be knocking?
+- One minute!
+- What am I gonna do with you?
+- Okay. Okay. Work with me. Oh, oh.
+- That's a good fit.
+- Oh, hi. Hi, you.
+- Hi.
+- What are you doing here?
+- Can I come in?
+- Sorry. You know what?
+- I had this, uh, "Halo" tourney last night, and it just got crazy.
+- [BOTH CHUCKLE]
+- I'm gonna come outside and talk to you, if that's okay. Yeah. Good, good, good.
+- Anything I can do to help?
+- What, you getting bored or something?
+- A little.
+- [b*mb POWERS DOWN]
+- Oh. Oh.
+- Suddenly not so bored.
+- It just powered down.
+- Okay, why are you saying that like it's a bad thing?
+- Because I didn't disarm it.
+- I did.
+- Looks like you're in a bit of a pickle.
+- We set that trap for Casey... but you two are almost as good.
+- So, anyway, I just came by to see how it went with my dad.
+- Well, it didn't, uh, exactly go, you know? It's a little complicated.
+- I'm confused, Morgan.
+- You called me to tell me... that you talked to my dad, and now it's complicated?
+- Do you wanna tell me, like, what's actually going on here?
+- Mm-hm.
+- But can you do me a huge favor? Could we talk about this later?
+- No. Right now is the option I prefer, actually.
+- Okay. Then I'm gonna need you to leave.
+- What?
+- Are you breaking up with me?
+- I just need you to go.
+- Fine.
+- I get it.
+- Have fun playing "Halo" for the rest of your life.
+- Morgan: I'm sorry.
+- T. I: Hey, eulogy guy.
+- Oh, okay.
+- I'm looking for Casey.
+- Uh, Casey who?
+- [GRUNTING]
+- That Casey.
+- T. I: Get up!
+- I've got a message for him.
+- We've got his friends.
+- We're taking them on a little gold-digging trip. Casey knows where.
+- You tell him he's got 24 hours to show, alone... or he's gonna have two more funerals to go to.
+- [SIREN WAILING]
+- [CELL PHONE RINGS]
+- Morgan. What's up, hombre?
+- It's Jeff.
+- Okay, he took too much... I don't know what.
+- Now he's come down with... couch lock?
+- Devon: Ah.
+- Couch lock. He over-medicated.
+- Yes, exactly. He's over-medicated. Now, how do I wake him up from this?
+- Do you need me to come over there?
+- No, no, no. Come... Awesome, please.
+- You're busy saving lives. This is nothing. This is an average day for Jeffrey, okay?
+- But, listen, back to couch lock, how do I wake him from this again?
+- First, don't panic. Jeff is still in there. Now, just get his heart rate up.
+- Scare him. Get him angry. If he doesn't wake up, give me a call.
+- That's awesome. Thank you so much, Awesome.
+- No. Okay, that's weird.
+- Okay.
+- I'm sorry for this, sir, but it is for your own good.
+- Ow.
+- Man, it's like slapping a car.
+- Okay. Think, Morgan. How do I get him angry?
+- How do I get him an... ?
+- Oh, crap.
+- Okay, Casey, I know you can hear me.
+- And I have something very important to tell you.
+- [SIGHS]
+- I've been dating your daughter.
+- Yeah. Yeah.
+- Technically, we're on the rocks right now, kind of... but, you know, things were getting pretty serious.
+- Holding hands. And, uh, man... the kissing was out of control. But I've been the perfect gentleman.
+- I need you to know, always a perfect gentleman.
+- Although, it definitely felt like pretty soon... she'd be spending the night.
+- [GROWLING]
+- I will k*ll you.
+- [MORGAN GASPS]
+- [PANTS]
+- Yes. Welcome back, sir. See? I knew that would work.
+- Bring it in. Come on.
+- Too soon. I see that now.
+- We're going to Iran, Morgan.
+- No American presence there. We're going under the radar.
+- Which means no chance of anyone rescuing us.
+- We are the mission, just you and me.
+- Right. Which is why I think we should clear the air, talk about Alex and me.
+- You're not getting it. I'm not discussing this... because you are not dating my daughter. You. Alex.
+- Nothing to see here.
+- What is your problem, anyway? Okay, I'm a good guy.
+- Not to mention... Stupid me.
+- Thought me and you were friends.
+- Were friends.
+- Oh, right. Or maybe it's that you don't have any friends, okay?
+- At your funeral, the only people who showed up... wanted to see you dead.
+- Oh. Okay. Sorry about that one. That was probably not my place.
+- If you'd like to choke me now, that's fine.
+- It's a 19-hour flight to Iran. Bring a book. We ain't talking.
+- You guys are gonna k*ll us no matter what Casey does, right?
+- Packard: Yep.
+- Mind if I ask you a few questions, then?
+- Sure.
+- I assume you've dealt with many of Volkoff's prisoners.
+- Did you ever come across one named Frost?
+- Frost isn't a prisoner.
+- She's our boss.
+- Okay.
+- Morgan: Let's set up the computer, all right?
+- Okay.
+- Now, they're down there, we're up here. Now what?
+- We got water, sewer, electronics.
+- Yeah.
+- Security camera.
+- Guts of the bunker. We'll tap in right here.
+- Morgan: Yeah, okay. Thanks.
+- Casey: Control the bunker from here.
+- This will give us the upper hand.
+- Morgan: Shift-eight.
+- Six, six, six.
+- Oh, sorry.
+- I got it, I got it, I got it.
+- Ugh. There they are.
+- So, uh... Frost, is she a tough boss?
+- Packard: Well, she's Volkoff's right hand.
+- When he has a problem, he sends in Frost... and that problem disappears.
+- Sarah, I'm kind of starting to think that my mom might be one of the bad guys.
+- Put these on.
+- It's so hot.
+- Put them on.
+- Do I really have to?
+- Only if you don't wanna get electrocuted.
+- They actually breathe surprisingly well.
+- It's... Ahem, sorry. Yeah.
+- Wait for my signal.
+- When you hear the word "security, " hit this switch, knock out the lights. Got it?
+- Absolutely. Security.
+- Hit the s...
+- No, no, no.
+- The word is "security. " Wait for it.
+- Just testing you. Wait. Turn off the lights?
+- It's three to one down there, Casey.
+- Just the way I like it.
+- Heads up. We got company.
+- Packard: Mm-hm.
+- That's how it is, huh? You can't get to me for 11 years, so you kidnap these two?
+- If you hadn't been such a hard-ass, we wouldn't all be here right now.
+- We'd be on a beach earning 20 percent.
+- Unless we invested in real estate.
+- Now drop your w*apon, Casey.
+- All your w*apon, Casey.
+- [PACKARD LAUGHS]
+- I would've come unarmed, but I wasn't sure what kind of security I'd run into.
+- That's the signal.
+- What?
+- Damn it.
+- I said I would've come unarmed... but I wasn't sure what kind of security I'd run into.
+- Yeah, we heard you the first time. We're right here, pal.
+- Packard: What the hell is going on?
+- Grimes.
+- Sorry. Sorry. One second. One second.
+- Okay. Let there be darkness.
+- Don't worry about it. Let's get the gold.
+- Any more surprises, colonel?
+- Holy Goldfinger.
+- Topside, there are 15 of the most hard-core Special Forces soldiers you've ever seen.
+- Morgan: Come on, come on.
+- They got 10, 000 rounds of a*mo, a squadron of F-15 fighters... a radio call away.
+- Your move.
+- [g*n COCKS]
+- Well, maybe I'll get lucky.
+- [g*n]
+- Morgan: Ow!
+- Was that a little girl?
+- That really stings. Ah.
+- MACKINTOSH [ON MONITOR]: Whoever you are, we have Casey and the others.
+- Surrender, or we will k*ll them.
+- So you got lucky. You hit one. Still 14 left, and they'll never...
+- Morgan: I surrender.
+- I'm still surrendering. Please do not sh**t me.
+- Coming out. Just me. All alone. No one else knows we're here.
+- [PACKARD LAUGHS]
+- So much for your Special Forces.
+- You move, and you're dead.
+- Packard: Let's get the gold.
+- Casey, couch lock. T. I: Unh!
+- What?
+- The cable.
+- Good Lord. Lift your feet up. Do it. Do it now.
+- He's gonna try and shock them.
+- Morgan!
+- Morgan, no!
+- [GRUNTING]
+- Morgan.
+- Morgan, can you hear me?
+- Wake up, moron.
+- [GASPS]
+- What happened?
+- What happened? You just took 10, 000 volts is what happened.
+- You went into cardiac arrest. We actually lost you for a moment.
+- You lost me? You lost me? You mean I, uh... I died?
+- Yeah, for like three seconds.
+- What about the bad guys?
+- Oh. They're alive. A little crispy.
+- Buddy, that was the single bravest thing I've ever seen anyone do.
+- Don't ever do it again.
+- No. No. Could we go home now?
+- On your feet.
+- What? Okay.
+- [SNIFFS]
+- Casey.
+- Now that we know that you are "cool"... you should know that we do "installs" like that twice a week.
+- Count yourself in.
+- We wake up in some of the best Dumpsters in the city.
+- Just wanna make sure that we're, uh, good.
+- Hmm.
+- Oh, good. Good.
+- Uh, also, you don't have to worry about Alex and me.
+- We're pretty much over.
+- I can tell you're heartbroken over it. So, ahem, I'd also just like to give you this.
+- What is it?
+- It's an invite to my party.
+- You know, being dead for three seconds made me miss my friends.
+- So, I don't know, just think of it as people who'd actually be there... if it was ever a real funeral.
+- Come.
+- [DOOR OPENS]
+- Hey, buddy.
+- Hey, Casey.
+- Hey.
+- Hi.
+- You look great. You guys look beautiful.
+- Casey: Hi, guys.
+- Hi, buddy.
+- Let me get you a beer.
+- Yeah.
+- [KNOCK ON DOOR]
+- Alex. I didn't know you were coming.
+- Please, come in. This is good.
+- Lovely.
+- Uh, I'm really sorry. I said some stupid things the other day...
+- I already talked to my dad, Morgan. I know what happened.
+- He said that you dumped me because he told you you had to.
+- He also said that you stood up to him... and changed his mind, which could not have been easy.
+- So maybe I was wrong about you.
+- You are brave.
+- Look, I want you to know that I'm really sorry about all that.
+- And, uh, this may come as a surprise, but I don't care what your dad thinks.
+- Really. I like you, and I wanna be with you.
+- If you wanna be with me.
+- [CHUCKLES]
+- You do, right? You almost said no. You almost did... You almost...
+- Of course I do.
+- That's good for the confidence. Come on. Let's get a drink.
+- I'll be right back.
+- Alex is here.
+- Mm.
+- She looks beautiful, huh?
+- Casey... thank you.
+- Mm.
+- You break her heart... I break your everything.
+- There you are.
+- Is this the part where I'm supposed to ask you what you're thinking about?
+- [SIGHS]
+- My mom.
+- I thought she was a prisoner who needed to be saved... and then I come to find out she's just one of the bad guys.
+- We don't know what side your mom's on.
+- Maybe not.
+- But there's one thing I do know.
+- In order to find the one person who left me... l've endangered the lives of everyone who would never leave me.
+- Morgan, Casey, you.
+- I'm gonna stop looking for my mom.
+- Oh, Chuck...
+- No, it's okay.
+- I thought I had to bring my family back together, but I don't.
+- You guys, Awesome, Ellie, you're my family.
+- I love you.
+- I love you.
+- I'll see you inside.
+- Yeah.
+- [CELL PHONE RINGING]
+- Hello?
+- WOMAN [OVER PHONE]: Hello, Chuck.
+- It's your mother.

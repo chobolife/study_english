@@ -1,0 +1,732 @@
+# Chuck Versus the Coup D'Etat
+
+- Hi, I'm Chuck. Here are a few things that you might need to know.
+- Alejandro Fulgencio Goya,  chief military officer of Costa Gravas.
+- You saved my life.
+- How can I ever hope to repay you?
+- Sarah: Casey!
+- Gonna be laid up for a while. Well, maybe you could use the time to meet up with Alex, figure out what your role is in her life.
+- Why do you have my daughter's phone number?
+- (low growl)
+- I do need to take things... slow.
+- Super slow.
+- Sarah: Oh! Uh...
+- Whoa!
+- Whoa.
+- Wow.
+- The...
+- You're not... I-I mean...
+- No! Oh, no, no.
+- This... I don't want...
+- It was here, it was on the... it was on the ground.
+- Of course, with the one knee, you were assum... but no, not, that's not it.
+- Well, I'm going to go talk to...
+- I'm gonna go exercise.
+- Chuck: So awkward.
+- In a world filled with awkward Chuck and Sarah moments comes one moment so awkward...
+- Morgan.
+- That it will have...
+- Morgan!
+- Please, don't torture me.
+- Sarah and I haven't spoken one word about what happened, and even though I wasn't proposing, I'd like to know if thinking I might have been was, you know, good news or horrible news.
+- She's acting like nothing ever happened.
+- I get it, I get it.
+- Your woman is a hot mystery... we both know that... but I'm actually more interested in this piece of the puzzle.
+- Now... would you have been happy if she accidentally said yes to your accidental proposal?
+- That's what's on the table.
+- I mean, I didn't think we were there yet, but... maybe.
+- Well, I tell you what.
+- Before there are any proposals, I'll tell you what I know.
+- You both are, without a doubt, crap communicators.
+- Well, I... No, no, hold on a second.
+- Precious looks and whimsical little make-ups after big misunderstandings, you guys are fantastic, sure, but... actual real live day-to-day open communication about your feelings?
+- I get it.
+- We could be better communicators, fine.
+- So what now?
+- A self-help book?
+- No.
+- This isn't just any self-help book.
+- This is Dr. Fred's 101 Conversations Before "I Do. "
+- Yeah, but I can't bring Sarah a book about getting to "I do. "
+- We just had a talk about how she needs to take it slow, buddy.
+- Don't show her the book, but use it as a tool to help you guys talk, man.
+- Look, we can communicate without the help of a book, okay?
+- We're not that bad.
+- You're great. You're right, I'm sorry, yeah.
+- I mean, you don't know whether or not you proposed, or if you did, if you're happy about it, or if she said yes or no to what may or may not have been a proposal, or if either of you ever want you to actually ask her for real.
+- Yeah?
+- Yeah, you don't need no book.
+- You're fine.
+- You're the perfect couple.
+- Captain: And when you're older, You and Daddy can work out together.
+- This is one of Daddy's favorite jams for tri-blasting.
+- Devon. Yeah.
+- Do you realize that you haven't addressed me in over an hour?
+- Oh. Sorry, babe.
+- Hey, I gotta talk to Mommy for a minute, okay?
+- Hello, beautiful.
+- Hello.
+- We need to talk.
+- I am, uh, feeling a little over-babied.
+- I'm not even four months pregnant, and it's all we talk about.
+- My hot husband suddenly drives a minivan.
+- Yeah, an awesome minivan.
+- Toyota Sienna, safest family auto in its class.
+- I'm just saying that maybe we could... maybe we could get away, go somewhere, like...
+- Let's take a babymoon.
+- Oh, babe, I'd love to.
+- But colleges can cost over $300, 000 grand by 2028.
+- We gotta prioritize.
+- The baby's not even here yet.
+- Can't we just spend these last few months as just us?
+- You need a break from babyland.
+- Yes.
+- I am with you, honey.
+- Okay.
+- Okay.
+- (whispering): We'll talk later, huh?
+- Beckman: Good evening, team.
+- Comandante Juan Pablo Turrini.
+- Most trusted advisor to Cost Gravan Premier Alejandro Goya.
+- Ah! The Generalissimo.
+- Casey, you're supposed to in bed recovering.
+- Getting some fresh air.
+- In an underground bunker.
+- (Beckman clears throat) So what's with Turrini?
+- I ran into him a couple of times when I was trying to k*ll the Generalissimo.
+- He's the head of Costa Gravan Secret Police, and he's in town unannounced, which is extremely unusual.
+- I want everyone who wasn't sh*t recently to stake out the embassy to see if he turns up.
+- Everyone else should be in bed.
+- Sarah: No sign of Costa Gravan activity.
+- Sarah?
+- Yeah?
+- What is it, Chuck?
+- Um...
+- We are crap communicators.
+- What?
+- Why are we so afraid to talk about the whole ring thing?
+- You know? I mean, we're in love.
+- You wear your teeth-bleaching system in front of me.
+- We should be able to talk, no?
+- Okay. Well, um, let's talk about it.
+- Okay! Okay.
+- Well, first of all, first of all, you know that-that definitely was not a... proposal, right?
+- Yes! Yes, uh, totally, of course.
+- Of course.
+- Of course? I mean, it could've been misconstrued.
+- Morgan... I know... Morgan gave me this book.
+- This kind of, you know...
+- It's a silly book, full of silly things, like questions, that you're supposed to ask your partner to help you get talking about the hard to talk about things.
+- So I was thinking...
+- I don't know, maybe we'll... Should I read it?
+- No, no, no, no, no, no.
+- I'll read it.
+- I'll read it, and I'll ask you the questions, yeah.
+- And then we can have a series of emotionally stimulating conversations.
+- Or at least that's what the back cover says.
+- Walker, Bartowski, we have new information.
+- What is it?
+- Our satellite picked up Turrini's motorcade.
+- He's not headed to the embassy.
+- So then, where is he heading?
+- Buenas noches, Dr. Woodcomb.
+- Costa Gravas calls once more.
+- What's going on?
+- Hey, bro. Just in time.
+- Turrini: Good evening.
+- I am Comandante Juan Pablo Turrini.
+- I am here to deliver a personal message from the Generalissimo.
+- (Latin music plays)
+- Hola, Devon Woodcomb.
+- And bride!
+- (laughs)
+- I've been so wanting to thank you for saving my life, and I think the best way is just to invite you here to my little bit of Paradise.
+- Costa Gravas is beautiful at this time of year, as is my private jet that will fly you here.
+- Private jet.
+- Enjoy my beaches, eh?
+- My jungles! (monkey screeches)
+- My palace!
+- Allow me to drench you both, please, in luxury this very weekend.
+- Come... to Costa Gravas!
+- Devon, babymoon.
+- Captain: Babe, it's not safe.
+- We can't go. Come on...
+- Sarah, is it safe?
+- Well, actually, Costa Gravas is stable right now.
+- Actually, Costa Gravas is very stable.
+- We have peace now.
+- And Subway sandwich franchises.
+- Mmm. Mmm.
+- Come on. It sounds like the most amazing couple's weekend.
+- We could go, too, you know.
+- Yeah.
+- If it would make you feel safer, Sarah could... could be there, relaxing, talking...
+- In a bikini.
+- You are both more than welcome.
+- Plus, you will be staying at the palace.
+- There is no safer or more luxurious place in all the world.
+- Morgan: Prepare for luxury.
+- Oh... (sighs)
+- There you go.
+- Snuggles, huh?
+- Okay. Do you need anything else?
+- I don't need anything.
+- Okay.
+- That's fine. I understand.
+- (doorbell rings, knocking on door)
+- I'll get it.
+- I'll get it. No, no, no, no. Stay!
+- I will get it.
+- I'm supposed to be helping you, Casey.
+- Morgan! Alex!
+- Daughter. Dad.
+- You're in a wheelchair.
+- You said that you were just sick.
+- Oh, just sh*t in the leg. Fine.
+- Well, I... brought you soup.
+- I didn't know you were going to be here, Morgan.
+- How did, uh, how did the pot roast turn out?
+- Um... uh... great.
+- Yeah, no, it was perfect.
+- Thank you for the recipe.
+- You two talk often?
+- No.
+- No, I wouldn't say often.
+- Once in a blue moon, when we need to discuss meats.
+- Meat.
+- Assorted meats. Potted meat.
+- Oh, movies!
+- Good, good, good, let's see what we got...
+- Roman Holiday?
+- Yeah. Nothing makes me feel better when I'm sick than Princess Audrey.
+- Stop it, this is my sick day movie, too.
+- Come on. Seriously?
+- Okay, Grimes, you're done.
+- Go.
+- Well, I, uh, I better be going, too.
+- I gotta get back to work.
+- (grunts)
+- But I will talk to you later.
+- That sounds great.
+- Bye.
+- Yes. Grimes?
+- Right.
+- Give her a five minute lead, hmm?
+- Of course.
+- ♪ ♪
+- Okay, which one?
+- This one or the leopard print?
+- Uh, yes, that, both, all of the above.
+- Okay.
+- So... you, uh...
+- You just wanted to go on a vacation?
+- Exactly. Yeah.
+- You know, because Turrini's not a threat, and Beckman cleared us for a couple days off, and we've been so focused on my mom hunt, I thought it would be nice if we were just a couple of regular people relaxing on a tropical island.
+- Working on our communication exercises.
+- That's what you're excited about?
+- Our communication exercises?
+- Well, there are many ways in which to communicate.
+- Like that.
+- (both laugh)
+- Oh.
+- (laughing)
+- (laughs)
+- Welcome!
+- I'm so glad you've come.
+- Huh?
+- Oh! Oh! Generalissimo!
+- Thanks for having us.
+- And the bride. Hello.
+- (chuckles)
+- (kissing hands)
+- Mmm!
+- Oh!
+- (Ellie laughs) Mmm.
+- Ah.
+- There's an unmistakable fragrance.
+- (laughs)
+- You are with child.
+- Oh. He's good.
+- (Ellie laughs) Oh.
+- There is nothing sweeter than a ripe fruit, no?
+- (laughter)
+- May I introduce my wife. Amor.
+- The light of Costa Gravas.
+- The woman behind the man, Senora Hortencia de la Corazon Goya.
+- (applause)
+- Bienvenidos.
+- I apologize if my husband has charmed away any of your women.
+- Oh. (laughter)
+- Come. Tonight we dance.
+- ♪ ♪
+- Chuck: So, uh, where were we on the conversations?
+- Personal time. Oh, yes, yes.
+- Morgan is going to need at least five hours of my time every week for Halo purposes.
+- And I need 30 minutes of complete silence before sleep.
+- Which is gonna be a challenge of my cuddling needs.
+- Okay, how about we do one night cuddle, one night silent thing?
+- Hey, see, these are useful conversations.
+- Generalissimo: Everyone.
+- (band stops playing)
+- Please. (clears throat)
+- I would like to present now a gift to my guest of honor, Dr. Devon Woodcomb.
+- For your great service to our country.
+- (Generalissimo chants)
+- (crowd cheering, rhythmic clapping)
+- (chanting continues)
+- Wow.
+- (cheering)
+- Did you just flash?
+- Huh? No. No, no, no. Not now.
+- We were just starting to get somewhere.
+- We were talking, I was gonna have sangria. Chuck.
+- There's a...
+- There's a Soviet-era w*apon system down that hallway behind a red door.
+- But we're here for, like, five days, so why don't we just grab it on the way out, after rain forest zip-lining.
+- Chuck, if it's a threat... I know, I know.
+- I know, I know, but my sister's here.
+- I can't be spying around her.
+- What if something happens?
+- Move into position.
+- Now.
+- It's okay. We'll just go in, we'll check it out, we'll come back into the party, nobody will know, and nobody will get hurt.
+- Our time is here.
+- Our beautiful Socialist dream has been taken apart by Capitalist swine.
+- But tonight, our voices will heard.
+- I'm gonna call Casey about your flash.
+- He hunted the Generalissimo in this palace for a decade.
+- He can give us the layout.
+- Okay, okay, well, he, uh, did just get sh*t in the leg, and is resting up, so he probably won't be available.
+- (phone ringing)
+- Casey. What do you need?
+- A little bored, Casey?
+- Dear God, please give me something to do.
+- Hey. I just flashed on some stupid w*apon system behind a red door. I think it's down the northeast hallway off the ballroom?
+- I know that hallway.
+- When I was hunting the Generalissimo back in my Angel de la Muerte days,
+- I lived in one of those walls for two weeks.
+- You know, one of these days we really ought to write down all of these crazy stories of yours.
+- Let me talk to Sarah, and we'll call you back.
+- We have to figure out how to get past the guards.
+- We need a diversion.
+- Chuck: Oh, shucks!
+- Impossible. Not gonna happen.
+- I guess we're just gonna have to save the world after the party.
+- (man speaking Spanish over P. A. system)
+- I only do this once a year, but it's such a special occasion, no?
+- ♪ ♪
+- Fine, but I'm bringing my drink.
+- ♪ ♪
+- Captain: Look at the abs on this statue.
+- I think I've put on a little baby weight.
+- Hey, no baby talk, remember?
+- This weekend, we are just husband and wife on a sexy vacation.
+- How do you feel about taking a tour of some of the darker corners of the palacio?
+- Babe, is nine-foot marble me making you a little caliente?
+- Maybe.
+- (laughs) Well.
+- Way to go, marble me.
+- ♪ ♪
+- (slurping)
+- Okay, Casey, we're down the staircase.
+- Keep heading down the hall.
+- Just follow the stink of commie.
+- Roger that.
+- ♪ ♪
+- Well, in the meantime, let's keep going with the questions, huh?
+- What are five words you'd use to describe yo partner?
+- ♪ ♪
+- Start moving everyone into position.
+- My husband, the pig, and his American friends can roast together.
+- Brunette? Tall?
+- Okay, yeah, good, close, but how about, like, charming, terminally handsome, incredibly intelligent.
+- Uh, this is the door.
+- Here. Hold this.
+- ♪ ♪
+- (sighing)
+- Okay, this is the door.
+- So, what do you think?
+- Rock and roll.
+- This may take a few minutes. (banging at door)
+- Oh, God. Ramming happening right now. What do we do? Any ideas?
+- Ellie (laughing): Oh, Devon, you're so bad.
+- Captain: How bad am I?
+- (rhythmic banging on door)
+- Good Lord, get me out of here.
+- Ellie: Devon. No. Um... uh...
+- Oh.
+- Uh, hi, guys. (Ellie clears her throat)
+- Hey. Chuck, hi.
+- Sorry. Really sorry.
+- For me mostly.
+- I know what you two were sneaking off to do.
+- Looks like Costa Gravas makes everyone run a little more caliente.
+- (laughs) (g*n, people screaming)
+- What was that?
+- What was that? !
+- (g*n)
+- (people screaming, g*n)
+- (rapid g*n)
+- (screaming)
+- (screaming)
+- Bring me my husband's head!
+- I want him dead or alive.
+- So, not the strongest of marriage.
+- Okay, Chuck, I know you're not a spy anymore, but I really need you to do some spy stuff!
+- (screaming)
+- Dude. They blew my head off.
+- We have to get the Generalissimo.
+- (man shouts in Spanish)
+- Ellie: Oh, my God.
+- (overlapping chatter)
+- (man speaking Spanish)
+- (grunting)
+- Sarah: Chuck, the g*n!
+- (grunting)
+- Chuck?
+- Sis, you okay?
+- Uh-huh.
+- Yeah, yeah, we're good, man.
+- That was awesome, Chuck.
+- Good. Great. Let's go.
+- Casey, get us out of here.
+- If you can get to the basement, I can get you out.
+- (thudding)
+- Generalissimo, is there an escape plan?
+- Of course. I'm sorry about all of this.
+- My wife and I... we've been fighting a lot lately.
+- You know, women... Generalissimo, I once saved your life.
+- I need you to save ours. Of course. Of course. Come. Come. Right this way.
+- Funny story.
+- The Angel de la Muerte...  he hid in these very walls for two weeks trying to k*ll me.
+- I was in Havana with Castro the whole time.
+- (Generalissimo laughing) I heard that.
+- This way. My plane awaits.
+- (camera shutter clicking)
+- Come on, come on, come on.
+- (clicking)
+- I cannot believe that there was a coup on my babymoon.
+- Chuck, thank God that you were there.
+- You were so amazing, really.
+- Seriously, bro. Thank you.
+- I just wanted to save the day before Awesome got a chance to.
+- I am so sorry that I made us go there. It was so stupid of me.
+- No, it wasn't stupid.
+- We do need time away.
+- That's why, when we go home, we're going straight to Malibu.
+- I hear you, hon.
+- And this babymoon will happen.
+- Just look at them, Sarah.
+- They're like communication all-stars.
+- That's all great, but we have a homeless dictator on our hands.
+- Generalissimo: I mean, I knew things had cooled over the years between Hortencia and myself, but a coup d'état?
+- We used to finish each other's sentences.
+- Turrini: I know, Generalissimo, I know.
+- The Costa Gravan embassy in Los Angeles is preparing for your arrival.
+- Are you crazy?
+- If I cannot trust my wife now, how am I supposed to trust my embassy?
+- Uh, we can try to arrange a CIA safe house with some guards for the time being.
+- No, I know where I will go now.
+- There is only one person to whom I trust my life now.
+- John Casey.
+- So... roomies.
+- The wheelchair is not as intimidating as I would hope, but... your casa is my casa, huh?
+- What a freaking disaster.
+- Morning, boss.
+- Morning, Big Mike.
+- Oh, Big Mike, hey, I could use some advice.
+- I'm having a little lady trouble.
+- A son asking his new daddy for love advice. Yeah.
+- I could well up.
+- Please don't.
+- Here's the thing... I-I met this girl, and there's this wonderful connection, and I think she might be it, except there's this, like, this little detail.
+- It's Casey's daughter.
+- Yeah, well, that's not a daddy you want giving you a spanking.
+- We agree. Well, son, you have to decide whether this girl is really it or not, because if she is, there is no arm or leg worth as much as the love of a good woman.
+- Sarah: The computer is analyzing the photos I took in Costa Gravas.
+- I'm sorry our vacation didn't work out.
+- No, hey, whatever.
+- I mean, we can still keep having conversations anyway.
+- I mean, we've got, like, 87 more to go, and the next few are about sex.
+- Chuck, we have a mission.
+- We don't need to talk about our sex life.
+- Sarah, there's always going to be a mission, and I think it's important that we make time to talk, even about the awkward stuff.
+- In fact, you know, if it is the awkward thing, Dr. Fred suggests talking about the difficult things to your partner while they're sleeping.
+- I'm not going to talk to you while you're asleep.
+- This book sounds kind of ridiculous.
+- Okay, so it's not, it's not perfect, but I do think it's helping us talk.
+- Dr. Fred is world-renowned, after all.
+- 101 Conversations Before "I Do"?
+- That's the book, the one covered in wedding rings?
+- Yeah.
+- I thought we talked about this.
+- I thought we were going to take it slow.
+- I know, I know we did, and we are going to take it slow.
+- It's just... you know, someday maybe we could talk about that.
+- And it takes a long time to have 101 conversations.
+- Why do we always have to talk and push and change things?
+- Why can't we just be?
+- Uh, Sarah...
+- Everything is great.
+- What if we do "I do, " and it changes us?
+- It's nuclear.
+- Exactly, everything we love about us could be destroyed.
+- No, not us, the w*apon.
+- It's a nuclear control panel.
+- The Costa Gravans have nukes.
+- Beckman: Costa Gravas is nuclear? !
+- Generalissimo: All right, yes.
+- (chuckles)
+- I have a nuclear w*apon control panel in my basement.
+- This is such ugliness.
+- How does it work?
+- There are nuclear m*ssile at sites throughout the Costa Gravan jungle.
+- They're all aimed at different cities, mostly American.
+- Look, it takes two keys, okay, two keys to use the system.
+- One of them is right here.
+- It's around my neck, see?
+- You have one key.
+- Where is the other one?
+- This is so embarrassing, you know?
+- I gave it away years ago to the person I trusted the most.
+- Okay?
+- My wife.
+- The woman who has just taken over your country?
+- You have questioned the Generalissimo enough for one night.
+- He lost his country and his love today.
+- He must rest.
+- Beckman: All right.
+- Colonel Casey, watch the Generalissimo closely.
+- We'll speak more in the morning.
+- Walker and Bartowski, private line.
+- You two are going back to Costa Gravas.
+- We can't have a rogue leader with nuclear capabilities.
+- Meet with Colonel Casey about the layout of the palace tonight, and leave first thing in the morning.
+- Yes, ma'am.
+- Isn't life funny, Colonel Casey?
+- That I would be here, hmm, guarded by the Angel of Death?
+- Forgive me... the Angel of Life.
+- That I would be here and wondering where will I go next?
+- I got to be honest.
+- This isn't how I thought it'd end up for you.
+- Why?
+- Well, I wrote a report back in '91 theorizing you'd be taken down by someone else altogether, someone whose politics never moved to the center, as have yours.
+- Someone who could never take his eyes off your wife.
+- Move around behind me, Generalissimo.
+- Do not make me sh**t a man in a wheelchair.
+- Better?
+- Generalissimo, you're coming with me.
+- Hortencia and I need your key.
+- You're not going anywhere, Generalissimo.
+- I think you are.
+- (g*n cocking)
+- Cute.
+- Too bad you didn't bring enough.
+- Ahora...
+- ¿Quién quiere morir primero?
+- I'm sorry, my friend.
+- No harm comes to him.
+- ¿Comprende?
+- His bl*od runs in my veins.
+- You do not k*ll him, I go with you.
+- Vamos.
+- Beckman: Your task is to sneak back into Costa Gravas, destroy the nuclear control room, and find the m*ssile.
+- The U. S. wants the Generalissimo back in charge but without nuclear capabilities.
+- On it, General.
+- I know every corner of that godforsaken slime hole.
+- Colonel Casey, are you certain you're up for a mission?
+- He seems to be pretty determined. I think he is.
+- (beeping)
+- CHUCK (coughs): Casey.
+- You could have told me that when you said this place was a "godforsaken slime hole, " you were speaking literally.
+- Ugh.
+- Sarah: We're almost to the control room.
+- Yeah. (coughs)
+- We'll place the charges around it.
+- That way, if we have to, we can obliterate the whole thing.
+- (groans)
+- Oh, what is that smell?
+- That is the stench of tyranny.
+- Oh.
+- Dr. Fred.
+- Wow, big fan, really just a big fan.
+- Listen, I-I met someone recently, and it is of life-or-death importance that I make absolutely certain that she is The One.
+- Actually, that is the topic of my next book How to Know...
+- 250 pages of exercises guiding you through a revolutionary 40-step process.
+- (whistles) 40 steps, huh?
+- Yeah, that's a lot of detail, you know, but I just...
+- Excuse me.
+- Son, are you going to another man for love advice?
+- Have I not made your mama Bolonia sing like the happiest bird in the sky?
+- Probably, sir, sure.
+- Listen, here's the thing... this guy wrote the book on it, literally.
+- Boy, when has anyone ever learned anything important from a book?
+- You got to take your woman, kiss her on the lips, and see what happens.
+- If you hear sweet, smooth jams rise up from your soul, then that's your answer.
+- I've never, ever heard smooth jams.
+- The former head of our people became a puppet for the Americans and was getting fat off our land.
+- I think I've stayed very fit over the years, actually.
+- Shut up, Alejandro, you've ruined seven takes already.
+- Oh, I'm sorry, darling.
+- I just wish I knew why you were so angry with me.
+- Why?
+- Hortencia: I have been telling you for years that I was unhappy.
+- But would you work on it?
+- Would you go see someone with me? Amor,  what kind of rebel leader goes to a marriage counselor?
+- It's ridiculous.
+- Turrini: Hortencia.
+- Hortencia: For any who might want to remove the people from office, know that we hold the keys to the most powerful w*apon in the world and are not afraid to use force.
+- You know, darling, maybe you should unbutton one more button.
+- Shut up!
+- This is exactly the problem.
+- You have to do everything your way!
+- (whispering): We need to act fast right now.
+- Somebody's about to accidentally start World w*r III.
+- I say we blow the room, let the Costa Gravans start fresh.
+- We are more or less in the room.
+- It's better than an accidental nuking.
+- You're crazy.
+- We're all about to die over basically just one big relationship problem?
+- Hortencia: Por favor, move.
+- Make me sh**t you through the head like you sh*t me through the heart.
+- Wait, wait, wait, wait, wait, wait.
+- No sh**ting.
+- (clears throat) Excuse me.
+- Excuse me. Excuse me. I know this is a very private moment. I just thought maybe you needed a mediator.
+- Turrini: Grab him!
+- Whoa, whoa, whoa.
+- Sarah: Stop.
+- Stop.
+- We're here to help.
+- Hortencia: How did you get back into my country?
+- Who are you people working for?
+- Well, uh, technically, we're with the CIA.
+- sh**t them.
+- Chuck: Wait, wait, wait.
+- Wait. No, listen.
+- We are trained to deal with situations just like this, and by the way, you're right about your husband.
+- Totally right.
+- Guards, take them to the barracks.
+- Stop.
+- What do you mean?
+- So glad you asked. So glad she asked.
+- Interesting. Um, this is what I mean. This is what I mean.
+- We heard him undermining you when you were just trying to make, you know, your little new head-of-state video.
+- And you know, getting treated like that for 25 years? Who needs it? !
+- Thank you.
+- Chuck: You're welcome. You're welcome.
+- But, hey, I just call it like I see it.
+- Here's the thing, Hortencia.
+- You two clearly still care about each other.
+- You could have k*ll the Generalissimo at any point, and you haven't done it. What is happening? !
+- Hortencia, sh**t these people!
+- Lead your country.
+- I bet... I bet, when you started out, just the two of you crazy kids cuddled up in your little tropical cave, dreaming of revolution, and having sweet, sweet jungle love, everything was perfect, no?
+- But then we moved into the palace, and he changed.
+- So change ruined things?
+- But change is unavoidable.
+- Unavoidable. Life is full of changes.
+- Constantly changing, and the question is, no matter what the changes are, is the love still there?
+- Fine.
+- I'll sh**t them.
+- (gasps)
+- Generalissimo: Angel de la Vida!
+- Mmm...
+- Today I'm Muerte.
+- Mmm.
+- FYI, lady, this guy used to watch you sleep.
+- Trust me. I lived in these walls for two weeks.
+- Chuck, keep talking.
+- Talking, talking, yes!
+- We were, we were talking about change.
+- The fact is we were partners... comrades.
+- And then he stopped listening to me.
+- No, I listened.
+- No, it was different before when it was just us.
+- Uh, that-that, um, that love that you had in the cave?
+- That doesn't have to change.
+- (g*n cocks) (grunts)
+- Amor...  would you join me again in leading this country?
+- Will you?
+- I need you... just to challenge me, to feed my soul.
+- We'll get back to who we were, I know it.
+- My love never died.
+- And you will give me an official role?
+- You'll be Secretary of State.
+- I love it when you talk politics.
+- Baby... come to me.
+- ¿Por favor?
+- What about our plans?
+- Hey.
+- Hey. Hey.
+- I'm, uh, so glad you're here.
+- Look, I know we've had some flirtation going on, and, uh, I've been a bit... tentative.
+- Right? (both chuckle)
+- But I was talking to Dr. Fred, and he has this whole, like, you know, series of exercises that could help...
+- Or just go that route.
+- Morgan, I like you.
+- I know that you're freaked out about my dad, but I want to do this.
+- Do you?
+- Oh, it's not that I... it's not...
+- Just, I just, you know, I feel like there are steps that people need to take, you know.
+- There are questions that need to be... answered.
+- An answer, they don't get answered, then there's more.
+- Okay, I'm gonna go.
+- I don't... I... (groans)
+- Oh, screw it!
+- ♪ ♪
+- We got troops incoming shortly to collect and dismantle the m*ssile.
+- And we're almost done in here.
+- You come, my friends, and join the celebration.
+- In Costa Gravas, first we revolution, but then we party.
+- Did you purchase this system from Volkoff Industries?
+- What?
+- Yeah.
+- It was part of his underground w*apon pipeline.
+- It was called Project Beacon.
+- That's what Heather Chandler told us about.
+- Did any of Volkoff's men ever mention a woman, she was CIA, code name "Frost"?
+- Yeah.
+- I never met her.
+- He kept her tucked away back home.
+- Some kind of a kept woman.
+- Angel de la Vida,
+- I got a few Costa Gravan angels downstairs, huh, for the man who rescued their country from civil w*r.
+- General, do you remember anything else about Volkoff or-or Frost?
+- I'm gonna give you all my files of my dealings with him.
+- Just remember these are dangerous people, okay?
+- Proceed with caution.
+- These are people you don't want to find.
+- Hey, back from the babymoon, huh?
+- (chuckles)
+- (sighs) How was it?
+- It was beautiful.
+- I, uh, I was thinking about you a lot, actually.
+- You were pretty good at the spy stuff, weren't you?
+- I mean...
+- You just seemed so alive back there.
+- I don't think I really realized what you were giving up for me.
+- Ah! I didn't really give up all that much.
+- Yes, you did, and it must have been difficult.
+- And I just wanted to tell you that I'm so glad that you have a life now that we can talk about.
+- No secrets.
+- You know, especially with the baby and you being the only family on my side, anyways.
+- Ellie, I'm looking for Mom.
+- What?
+- Why?
+- Because I think...
+- I think we should know the whole truth about why she left us.
+- What story can possibly explain leaving your family?
+- I don't know. I don't know.
+- But did you ever think that maybe she had to go for some reason?
+- Like some reason that was beyond her control?
+- I don't know. I don't know.
+- But what if there isn't another side to the story?
+- What if our mother is exactly who we think she is?
+- Well, then we'll find that out, too.
+- ♪ ♪
+- Are you awake?
+- Can you hear me, Chuck?
+- I love you, Chuck.
+- Nothing's ever gonna change that.
+- And if you ask me for real, then my answer would be yes.

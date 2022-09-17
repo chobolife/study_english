@@ -1,0 +1,662 @@
+# Chuck Versus the First Fight
+
+- Chuck: Here's a few things you need to know.
+- I'm the magnet for bad guys? Are you kidding me?
+- I cannot believe you would use me as a human target.
+- Casey: Everything about Bartowski's mother's life is a fake.
+- Should've grabbed her before she dropped off the map.
+- Mom left a message. She wants to see Ellie before she goes back undercover.
+- No, no, let her go.
+- Stop, stop. You have no idea what's going on.
+- Your mom isn't the spy you think she is.
+- Ellie, I'm sorry, but Mom is not coming.
+- Why does she keep doing this to us?
+- Because she's a spy.
+- Beckman: Colonel Casey.
+- The Project !sis file you discovered was authentic.
+- Mary Bartowski, alias Frost... was a CIA agent working undercover for Volkoff... until 20 years ago when she turned and we never heard from her again.
+- Agent Walker, you made the right decision by bringing in Frost.
+- Agent Walker?
+- Walker.
+- Oh, uh, yes, general. What's the next step?
+- We're moving Frost to a black site facility tomorrow.
+- That means no one is to see her. Especially Bartowski.
+- Agent Walker, I suspect I can trust you to keep an eye on Chuck.
+- Of course, yes.
+- Good. How is he handling all of this?
+- Uh, he...
+- He's fine, general.
+- Calm, actually. Very calm.
+- Calm? How am I supposed to stay calm? Sarah, I had everything under control.
+- My mom was gonna meet Ellie and then disappear forever.
+- I asked you to trust me. You went behind my back.
+- Why is it so hard for you to believe in me?
+- How was that?
+- You were certainly passionate, but I wouldn't use the F-word.
+- I didn't.
+- No?
+- No.
+- It seemed that way. You were intense.
+- Didn't Sarah have proof your mom was working with Volkoff?
+- Whose side are you on?
+- Do I have to pick a side?
+- Yeah.
+- Then you.
+- Or no. I don't know.
+- Sarah and I have never really had a fight before.
+- Not a real one, not like this.
+- I hear you.
+- All right.
+- A couple's first fight sets the tone for all future arguments.
+- Trust me. I'm going through it, myself.
+- You and Alex?
+- No, me and Casey, actually. Yeah.
+- So I'm just, you know, taking some time, cool off, clear the old mechanism.
+- You should do the same thing with Sarah.
+- You're right, it's certainly not getting me closer to proving my mom's innocence.
+- My dad spent his whole life searching for her.
+- Nothing here can help us prove she's not a traitor.
+- [WHISTLES]
+- You're telling me. This technology is ancient.
+- But maybe if we clean it up a little bit and sell it on eBay.
+- Are you joking? Nobody's gonna buy a Phalanx XR-12 computer.
+- I mean, the thing only takes triangle-shaped disks.
+- Whoa. Hmm. This is everything, huh?
+- What do you mean?
+- Your father left this stuff for you.
+- Is there a possibility he might have left something for Ellie?
+- Ellie: What do you mean, "left something"?
+- I don't know.
+- Information, uh, something about Mom, maybe.
+- You know, Dad used to send me those coded messages in the Classifieds.
+- But I haven't found anything since before he passed away.
+- What is this about, Chuck?
+- I guess it's just all this stuff with Mom.
+- I was hoping that Dad had left us answers.
+- I wish that we knew both of them better.
+- But since the only person who can give us answers... is locked away in a CIA base...
+- It's not like you can just waltz in there and ask her.
+- Right, no. Yeah, I can't.
+- Tom, Jerry. Good to see you guys again.
+- Keep up the good work.
+- Just keep doing what you're doing. Have fun with it.
+- Hey, Ginger.
+- Wow, Casey, a lot of new faces down here, huh.
+- Hmm.
+- Huh.
+- We should have a mixer or something, a little get-to-know-you.
+- We can exchange fake names and backgrounds.
+- Okay, great. Good times.
+- Chuck?
+- Sneaking into your own... ? Aah!
+- Uh, Morgan, how long have you been hiding behind that door?
+- An uncomfortably long time, but that's not the point.
+- The point is this: You and Chuck are in a relationship crisis.
+- Crisis? Did he say something to you?
+- Yeah, actually, he told me everything.
+- And I think he just needs some time to cool off.
+- He always wants to talk about anything.
+- What do you want me to say here?
+- You did go have his mother arrested...
+- I was trying to protect him.
+- Ellie said the same thing.
+- He told Ellie too?
+- Contrary to belief, there is a heart of gold underneath this cold exterior.
+- Morgan, don't touch my chest.
+- I meant that non-sexual.
+- This is ridiculous. Neither of us should be sneaking around at all.
+- If I could talk to Chuck, everything would be okay. Where is he?
+- [SIGHS]
+- You shouldn't be here.
+- I need your help.
+- Why? CIA thinks I'm a traitor.
+- Yeah, well, I'm gonna prove you're innocent.
+- If I'm gonna help you, I need the truth this time, okay?
+- Casey found a file that said Project !sis was abandoned 20 years ago... and you betrayed the CIA and joined forces with Volkoff.
+- Yes, that much is true.
+- What?
+- Twenty years ago, Volkoff had started to suspect I was working with the CIA.
+- He was one step away from discovering my real identity.
+- That you're a Bartowski?
+- That I was a mother.
+- So I did the only thing I could, I admitted I was CIA... and I told Volkoff I wanted join him.
+- I broke all ties with the agency and I went to work for Ml6.
+- Tell me who to call and I will fix all of this.
+- No, it's not that simple.
+- Volkoff has sources at the CIA, that's why I had to leave.
+- A 20-year mission will be wasted if he gets wind of any of this.
+- But you can trust me.
+- You're not gonna tell your girlfriend?
+- That's not gonna be too hard... considering we're in a fight and not really on speaking terms.
+- Do you wanna talk about it or... ?
+- No, that's okay, thank you.
+- You'd think that being boyfriend and girlfriend she could trust me...
+- It doesn't matter. I can keep it a secret.
+- Good.
+- There is one person at Ml6 who can confirm... that everything I'm telling you is true.
+- His name is Gregory Tuttle, he's my handler.
+- We have a preset meeting for today at 2:00 at the Old Duke Tavern.
+- Go there, and give him this code: "Per fas et nefas. "
+- "Per fas et nefas. "
+- Okay.
+- Okay.
+- It's the only way he'll know he can trust you.
+- And, Chuck, he doesn't know that you're my son.
+- Nobody does.
+- Okay, I got it.
+- I'm sorry, the code one more time?
+- Babe, what is all this? What are you doing?
+- This sounds crazy, but what if Dad did leave me a message in the Classifieds?
+- I thought you decided months ago there was nothing here.
+- But I just found out that my mom was a spy... and Chuck said something today.
+- This can't be just a coincidence.
+- Look, every day since he's passed away, there has been an ad for a '68 Mustang.
+- If there was a hidden code, you would've found it by now.
+- I don't know. There's something about it.
+- Could it be my dad's last message to me, something important?
+- Hey. Ahem.
+- Yes?
+- Because I... I value our relationship, John, I need to be frank with you.
+- We are in a fight.
+- Okay.
+- "Okay"? That's all you have to say to me?
+- My shift ended two minutes ago.
+- You lied to me.
+- You never told me the Project !sis file... had proof that Mrs. Bartowski was working for Volkoff.
+- You asked me to shadow you to make me a better spy.
+- How am I supposed to do that if I'm always the magnet... or having to wait in a van or being lied to by my partner... and friend?
+- [GRUNTS]
+- Hey. Hey, Morgan. I'm so glad I found you.
+- I need your help on a super top-secret mission.
+- Do I get to parachute out of a plane on a wild horse?
+- No, you do not, because nobody ever does.
+- But you do get to wear an earpiece.
+- Sold. Ha, ha. Yeah.
+- Morgan, buddy, remember we're undercover.
+- A little subtlety goes a long way.
+- Ahem. Copy that, Chuck.
+- Oh, Charles.
+- Okay, so earpiece is in place and I believe it is working.
+- Yes, hello? Hello? Check.
+- Stop touching it.
+- You're drawing attention to the fact that you're wearing it, okay?
+- You are to be my eyes and ears on this. I need you to sit at the bar, unnoticed.
+- Tuttle can't know that anyone came with me, ready?
+- Break.
+- MORGAN [OVER RADIO]: Do me a favor.
+- Uh, can you make out the board with the specials?
+- We're undercover. We're not here to order food.
+- These earpieces are not for personal conversations.
+- Remind me to tell you what Sarah thought of your fight.
+- Sarah? You talked to Sarah? What did Sarah say?
+- Whoa, whoa. What are you so nervous about? I did all the talking.
+- Kept it simple and explained to her that by not believing in you... she betrayed your trust and your family.
+- Your words, not mine.
+- Morgan... Morgan, why would you... ?
+- That was supposed to stay between us.
+- [EARPIECE SQUEAKING]
+- Yeah, okay, one second. But hold... Ow, ow, ow.
+- Sorry, hold on one second. This thing is not working right.
+- [BLOWS AND MUMBLES]
+- [CLEARS THROAT]
+- One second, Chuck.
+- Oh, my goodness.
+- [CLEARS THROAT]
+- Cheers.
+- Just one... I just have to...
+- [MORGAN SIGHS]
+- I hate to make a scene, but I'll rip your throat out... with this plastic fork if you don't tell me who you are... and why you're wearing an earpiece.
+- That certainly would be a scene, wouldn't it? Aah!
+- Wait, wait, wait. Ha, ha, you're Tuttle. You're Tuttle, right?
+- You're Tuttle and I have a code word for you. It's Latin.
+- And it's...
+- What is it?
+- Morgan: Just great.
+- Now I need to dry this out.
+- [HAND DRYER WHIRRING]
+- [HAND DRYER POWERS DOWN]
+- [MOUTHING] Oh, man.
+- I got it, I got it.
+- Per fas et nefas.
+- Oh, thank God. Frost sent you.
+- I'd like to apologize for questioning you in such a harsh tone... and, of course, for threatening to rip out your throat.
+- I wouldn't even know how to do that.
+- You seemed very convincing to me.
+- Oh, that's kind of you, but I'm just a handler for Ml6.
+- I'm not a trained field agent. You know, field-ready as they say.
+- Okay, time's up now, Hawk. There's a limit.
+- All right, let's go, dry it off. Polyester, so it's really absorbent.
+- Good? Okay, thank you.
+- Come again.
+- Wait, why did Frost send you?
+- Where is she?
+- My name is Charles Carmichael. I'm her ally at the CIA.
+- They have her in custody right now.
+- If she's in custody, then Volkoff will be looking for her.
+- We don't have much time.
+- He'll start with whoever she was last seen with.
+- Oh, please don't tell me it was you.
+- [DART WHIZZES THEN GROANS]
+- Bloody hell.
+- [GRUNTS]
+- Morgan, help.
+- Testing, testing. Chuck, I'm back.
+- I'm now back in business, buddy. Let's just...
+- No. No, no, no. What... ?
+- What?
+- Gotta be kidding me.
+- I lost him.
+- Hello, Agent Carmichael. May I call you Charles?
+- Sure, yeah, that's fine. Are we on a plane?
+- Yes.
+- Been kidnapped by Volkoff's operatives.
+- Nasty buggers. They must think we've got Frost.
+- What are you looking at?
+- Not that scar, or that scar.
+- Neither one of those scars.
+- Or your... Or your mole. Mole.
+- That is a beauty mark.
+- Which is what I meant by...
+- By mole, beauty mark. "Tomato, " tomato.
+- Ha, ha, you're so stunning, I can't even look away.
+- You're going to tell me what you've done with Frost... and you're going to do it now.
+- He doesn't know anything.
+- And you do?
+- I know that if you use those tweezers... on those rather large hairs in your nostrils... it would work wonders.
+- I mean, when was the last time a man expressed interest in you?
+- Hmm? Be honest.
+- What are you doing?
+- Torture 101, I've read every manual on the subject.
+- Weaken the enemy emotionally, then take the power.
+- Plus, what could she do with those tweezers... ?
+- No, no, no. Please stop, stop, stop.
+- I'll tell you everything.
+- Don't.
+- My address is 17 Talley Place, my dog's name is Kipper... and I had my first sexual experience watching Lawrence of Arabia.
+- I'm not proud of it, I...
+- I came from a broken home.
+- All I want to know is what you've done with Frost.
+- You are going to regret that.
+- I think I already do.
+- Look, I don't know anything, all right?
+- Chuck was there and then he was just gone.
+- We just did what Mrs. Bartowski told us to do.
+- I don't understand why he keeps trusting her.
+- She just hurts him.
+- Not anymore.
+- She's gonna tell us what we wanna know.
+- Morgan: Yeah, just let me... Let me...
+- Uh-uh.
+- That's why we keep you in the van. You stay here.
+- I should try one last thing from the manuals.
+- Please don't.
+- [GROANS]
+- The Swedish slip. It actually worked.
+- And I didn't have to break my thumbs.
+- What do we do now?
+- Oh, cool. A tiny w*apon stand-off.
+- En garde.
+- [GRUNTING AND GROANING]
+- Oh, hello there.
+- [GROWLING]
+- Please! A little help here or anything?
+- Here, catch.
+- [BREATHING HEAVILY]
+- [GASPS]
+- Enough. You're gonna tell us where Chuck is now.
+- I wanna see my daughter.
+- Casey: We're not having a discussion.
+- Chuck came here this morning because he trusted you and now he's gone.
+- If he's with my handler, I know he's safe.
+- Sarah: Right, then why hasn't he called in?
+- Perhaps he doesn't want to see you.
+- Chuck told me about the fight.
+- Okay, listen, I can't protect your son if I don't know where he is.
+- I am trying to protect him too... which is why I am not saying a word to either of you.
+- The only one I know I can trust is my son.
+- [DOOR SLIDES OPEN]
+- Mrs. Bartowski?
+- Morgan Grimes?
+- [GROWLS]
+- I haven't seen you since you were 9 years old.
+- I haven't had a decent Rice Krispie treat since.
+- What are you doing here?
+- Kind of a long story... but the thing is it's a little bit my fault that Chuck's gone.
+- So if you could tell me where he is... l'll make sure that they give you what you want.
+- I promise you, you will get to see Ellie, but you have to tell us.
+- You can trust me, Mrs. B.
+- [SIGHS]
+- If you take me to see Ellie, I will tell you where Chuck is.
+- We can't get in the cockpit. You find any parachutes?
+- I found one.
+- Oh, Charles, girlfriend's moving.
+- We gotta find another parachute.
+- There isn't one. I've looked.
+- What are we gonna do?
+- I'm just taking the piss out of you. Of course there's another parachute.
+- Come on, who ever heard of a plane only carrying one parachute?
+- [BREATHING HEAVILY]
+- There we go.
+- You okay?
+- Yeah, it's just so thrilling.
+- Right, it reminds me of that great episode of Alias.
+- I loved that show.
+- You ready?
+- Yeah, as ready as I'll ever be.
+- Let's do something fantastic.
+- [SCREAMING]
+- [SCREAMING]
+- [BAAING]
+- [SIGHS]
+- What... ?
+- Oh, Charles, you're up.
+- How did we get here?
+- It was exciting until you knocked yourself unconscious when we landed.
+- Luckily, I was able to get us into this sheep truck.
+- Well done, well done. Where are we, uh, going?
+- This lot are going to the lamb-chop factory... so don't say anything about mint sauce.
+- Oh, it's all right. I'm sorry, I'm sorry.
+- We are going to the City of Angels to get the intel that will clear Frost.
+- That's great news.
+- Now, I hope you don't mind me asking... but why are you so intent on helping Frost?
+- I mean, you're not giving her one, are you?
+- Giving her one... ? Oh, giving... ?
+- Giving her one? No, no, no.
+- I would never give her one. Simply, just no, no.
+- We have, uh, a very professional relationship.
+- You know, um, plus I have a girlfriend anyway.
+- Good for you.
+- Yeah, yeah, good. Yeah, good.
+- Normally, usually it's good.
+- It must be really hard being a field agent and having a relationship.
+- Especially when she's a spy too.
+- Well, that would bring in a whole host of complications.
+- We're in the middle of our first fight.
+- I don't need to, please.
+- Chuck: I don't mind talking about it. It all began a few years ago...
+- She knows you're coming.
+- No.
+- [KNOCKING ON DOOR]
+- Come in.
+- Eleanor.
+- I'm sorry, Ellie. I have to stay.
+- That's okay. I understand.
+- Lemonade?
+- That would be lovely, thank you.
+- I'm sorry you have to see me like this.
+- Things are complicated right now, but I wanted to see you... just you and me.
+- I don't know what I'm doing with these coasters. I don't...
+- I don't even use coasters, I don't...
+- It's okay.
+- [SIGHS]
+- You're all grown up.
+- I mean, I know that's obvious... but when I think of you, I still see a gangly little girl... too tall for her age, unsure how she fits into her own skin.
+- Your dad and I... used to take you for drives in his g*n '68 Mustang.
+- You would sit between us... with your legs curled up. Do you remember?
+- [CHUCKLES]
+- I can't believe I forgot.
+- I remember, uh...
+- Ha, ha, I remember those blue leather seats.
+- Oh, your dad special-ordered those blue leather seats.
+- Watching you sleep in between us on those long drives... was one of my favorite things.
+- I just wanna know what happened. I wanna know the truth.
+- [SIGHS]
+- I guess it all begins with a scientist.
+- His code name was Orion.
+- But his real name was Stephen Bartowski.
+- I wish that telling you that I did this all for you and Chuck made a difference.
+- But I know it doesn't.
+- And...
+- Casey: Sorry.
+- We have to go.
+- Okay.
+- Thank you.
+- You kept your end of the bargain, I'll keep mine.
+- I know you don't think I care for my family. I do.
+- If your Ml6 handler actually exists, tell him to bring Chuck here.
+- There's a relay station that I call into.
+- If my handler has posted his location, I can take you there.
+- Once he sees me, he'll know he can trust you.
+- Make the call. Let's go.
+- All the intel we need to prove Frost is an Ml6 agent... is in a series of disks in that safety-deposit box.
+- Sir?
+- [CLEARS THROAT]
+- [DEPOSIT BOX BEEPING]
+- There it is.
+- Babe, are you okay?
+- I got home as soon as I could. How'd everything go?
+- She said something when we were talking.
+- She told me a story about an old car that my dad used to have.
+- A 1968 convertible Mustang.
+- With blue leather seats.
+- This isn't a code, Devon, this is a real car.
+- My dad must have left this for me. Let's get it.
+- Ha-ha-ha. Quickly.
+- Sarah: Chuck.
+- What are you doing here? Beckman gave you orders...
+- I thought you were in trouble.
+- Oh, Agent Frost. Glad you're okay.
+- Tuttle, you have the disks.
+- Yeah, we're halfway there.
+- These will prove that I'm not a traitor.
+- Yes, but there's a little problem.
+- Um, these disks can only be played on a special computer.
+- Ml6 has got one in London.
+- Wait a minute, no, no, no.
+- These disks are for a Phalanx XR-12 computer.
+- We don't have to go to London, I know of one here in L.A.
+- Well, then what are we waiting for? Let's go.
+- Frost isn't going anywhere, Beckman's orders, I'm taking her back.
+- No, no, Sarah, you can't. We're so close.
+- MAN 1: Nobody move. Everybody on the ground now.
+- MAN 2: You heard him, get on the ground.
+- You gotta be kidding me. A robbery?
+- They're not bank robbers, Charles.
+- It's Volkoff's men.
+- And that indestructible woman.
+- Please. Nobody here wants to be a hero.
+- Just take the money, take whatever you want.
+- Just don't take our lives.
+- Keep your pants on.
+- You're not my type. You're not who I'm looking for, anyway.
+- How did Volkoff's men find us?
+- Somebody must have led them here.
+- Don't just accuse her.
+- No, he's right.
+- They must've followed Charles and me. Let him explain, really.
+- It will make the fight you're having like nothing.
+- Just like a blip on the radar.
+- Is there anybody you haven't told about our fight?
+- Well...
+- Oh, they got them surrounded in there, Casey. What are we gonna do?
+- If we go in through the roof, we can surprise Volkoff's men.
+- Sweet. Give them hell, sir.
+- You coming?
+- I figured you wanted me to stay in the van, you know?
+- You're never gonna learn anything if you stay in here, hmm. Let's go.
+- Yes, sir. I forgive you too, Casey.
+- Can't believe you've talked to everybody about our fight except for me. Let's go.
+- [SPEAKING INDISTINCTLY]
+- I was just waiting until I calmed down a little bit, okay?
+- It's our first real fight as a couple.
+- Everyone knows that sets the tone for future fights.
+- You're gonna set the precedent... by telling everybody what you're thinking before me?
+- See, that just makes it sound bad.
+- Go. All right, come on, come on.
+- You might as well have posted about our fight on Friendster.
+- People stopped using Friendster five years ago.
+- Okay, you know what I'm talking about.
+- You only met him and he knows everything about us.
+- How do you know that you can trust him?
+- Oh, I forgot. You can't believe in anyone unless Beckman tells you to.
+- Oh, that is not fair.
+- That is not fair? You wait a second.
+- No, what's not fair is what you did.
+- You could've told me before you arrested her.
+- And watch you commit treason and go to prison?
+- Kids, you need to stop this now. We need to do something.
+- You're not doing anything.
+- I'll stay. I'm just a handler.
+- Yeah, he's just a handler.
+- Okay.
+- Okay, in 10 seconds we're gonna go over the counter.
+- I'll take the big guy, you take the small guy.
+- I'm capable of handling a big guy too.
+- Fine.
+- Fine.
+- Fine.
+- Fine.
+- [SIGHS]
+- [GASPS]
+- Ready.
+- [ALL GRUNTING]
+- This is exhausting.
+- Tell me about it.
+- How do you always fight these big guys all the time?
+- No, I mean, fighting with you is exhausting.
+- I hate it.
+- Me too.
+- I've been thinking about you all day.
+- [SHOUTS]
+- I'm just trying to protect you from getting hurt.
+- Behind you.
+- I don't need you to protect me.
+- I need you to believe in me.
+- I do believe in you.
+- I mean, really believe in me.
+- Even when you think I'm wrong.
+- Two field agents in action.
+- What a show.
+- [g*n COCKS]
+- No!
+- Chuck: Tuttle!
+- [GRUNTS]
+- Oh, my God.
+- No.
+- [GROANING]
+- [BREATHING HEAVILY]
+- I'm so sorry, Charles.
+- It's up to you now.
+- No, no, no. Tuttle, we're not leaving you here.
+- Casey.
+- We've got a man down, where are you?
+- I'll be okay.
+- Get those disks to the computer and finish it, Charles.
+- For Frost.
+- Casey is on his way. You're gonna be in safe hands, okay?
+- We need to go now.
+- What are you saying?
+- What about orders?
+- I'm not gonna fight you.
+- If you trust her... then that's gonna be enough for me.
+- You're gonna be just fine.
+- Let's go to Orion's base.
+- I guess I always assumed your father sold the house.
+- How long has this been under here?
+- I... I really don't know, I only found out about it after he...
+- It's his life's work, Mom.
+- The computer's right here.
+- You're welcome.
+- Just, uh, another day in the life of a public defender.
+- Casey: Nobody move, freeze.
+- Oh, no! Please, I have children.
+- Here, take the keys to the vault. My car key's on there too.
+- I drive a very nice Camry.
+- Shut up, I'm a federal officer.
+- [COUGHS]
+- And I'm with him. Ahem.
+- Look into the roof. I saw a piece on asbestos.
+- Dangerous stuff. You got it everywhere...
+- Grimes, Grimes, muzzle.
+- Right, shutting up.
+- I'm looking for an injured agent.
+- Where did he go?
+- Yeah, he's right over...
+- There.
+- This doesn't make sense. This has to be some misunderstanding.
+- The Ml6 files are supposed to be on here.
+- Mom?
+- Stay here.
+- Sa... Sarah? Where'd you go?
+- Mary: Chuck.
+- Your father never wanted you to see this.
+- See what?
+- But I know now he was wrong.
+- [CHUCK GRUNTS]
+- [SIGHS]
+- Chuck, get down.
+- What did you... ?
+- Sarah: Aah!
+- Tuttle?
+- How are you here? You were... You were sh*t.
+- What are you doing here?
+- There is no Tuttle, Charles.
+- My name is Alexei Volkoff.
+- I believe you were looking for me.
+- Chuck: What are you... ?
+- Why are you doing this?
+- It's really pathetic.
+- Orion spent his whole life searching for a woman... who didn't want to be found.
+- The wife he wanted so much to believe in... was exactly what she appeared to be: A traitor.
+- You told him about...
+- About my husband?
+- Of course.
+- And that he meant nothing to her.
+- You know, Charles... it is shocking how Orion was able to convince you to follow in his footsteps.
+- What was he to you?
+- Your mentor?
+- He was a good man.
+- He was a fool.
+- Just like you, Charles.
+- If you'd just let it alone... none of this ruse would've been necessary.
+- But you couldn't let it go.
+- I had my reasons.
+- I'm sure you did.
+- Frost here is a master of deception.
+- But she wasn't able to fool your girlfriend, was she?
+- And you.
+- When you locked up Frost, it became clear I had to step in... to find Orion's little base here and destroy all his intelligence.
+- Along with all the people... who know about it, of course.
+- [b*mb TICKING]
+- Thank you for leading us here, Charles.
+- I couldn't have done it without you.
+- I believed in you.
+- Oh, don't take it personally.
+- There's no point in going to the grave with regrets, is there?
+- Frost?
+- Mary: Ready.
+- Protect him.
+- Shall we finish this?
+- Apologies.
+- It really was a pleasure getting to know you.
+- You were right about her the whole time.
+- I couldn't see it, I didn't...
+- I didn't wanna see it.
+- Flash. Come on, flash.
+- Sarah, my mom did something to me with that device.
+- Chuck, your mom gave us a way out.
+- She might be working for Volkoff, but she certainly has a reason... for not wanting us to die right now. Come on, hurry. Let's go.
+- What about my father's work?
+- No, we don't have time. Let's go.
+- Chuck?
+- Ahem.
+- Chuck, are you okay?
+- Sarah.
+- Sarah, I can't... I can't flash.
+- The Intersect is gone.
+- And now all of my father's research, everything he ever created... it's all gone.
+- Devon: He said it'd be outside waiting for us.
+- It really is my dad's car.
+- I can't believe it's been here this whole time.
+- Babe, it's beautiful.
+- Stephen: Eleanor, if you're reading this then it means I'm not with you anymore.
+- And I know you'll be okay.
+- I only wish that I could've been the father you deserved... but our family had a lot of secrets.
+- Secrets I kept from you because you were so young.
+- Because I didn't wanna hurt you.
+- I know you're a grown woman now.
+- But no matter what... you'll always be my little girl... curled up on the middle seat of this car.
+- This is my final gift to you, Eleanor.
+- And I'm giving it to you now for a reason.
+- I trust you'll know what to do.
+- I love you always. Dad.

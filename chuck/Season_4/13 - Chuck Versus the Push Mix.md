@@ -1,0 +1,718 @@
+# Chuck Versus the Push Mix
+
+- New things that you might need to know.
+- Sarah: I'm going undercover into Volkoff Industries.
+- I'm gonna take them down from the inside.
+- Volkoff: Hydra is the heart of Volkoff Industries, but it has a flaw.
+- Sarah: So you just destroyed the whole system?
+- Of course not.
+- I just downloaded all the data to a more secure backup location.
+- All I want you to do is k*ll John Casey.
+- Casey: Throw me out the window.
+- There's a little platform down there.
+- Give this to Chuck.
+- (grunts)
+- Oh!
+- (screams)
+- (monitor beeping)
+- (knocking on doorframe)
+- Hey, what'd he say?
+- John's in good hands.
+- His doctor's a friend of mine.
+- He thinks that he'll regain consciousness in a day or two.
+- Thank you.
+- Casey's family; Chuck and I do anything for family.
+- Thanks for coming by, El.
+- Of course.
+- Thanks.
+- Hey, he is the strongest man I've ever met, okay?
+- He'll pull through.
+- (Casey grunts softly)
+- Morgan: You guys hear that?
+- I think I did.
+- I don't know, did I?
+- (grunts softly)
+- That's a grunt, that is a Casey grunt.
+- I think he's trying to say something.
+- What do you got? Go ahead.
+- Pants.
+- Pants, pants, he said, "pants. "
+- Pants?
+- Why pants?
+- The man's never going to wear pants again.
+- No, he means his pants.
+- Maybe there's something in 'em.
+- That's... yeah, of course.
+- Yeah, good observation.
+- Yep, got it, here it is. It's a, uh, like, half an eye.
+- That's half an eyeball.
+- What is he doing with that?
+- Casey, where did you get this, where did you get this eye?
+- Sarah.
+- Sarah.
+- What'd he say?
+- He said, "Sarah. "
+- ♪ ♪
+- Mary: Volkoff's security is down.
+- We have exactly two minutes.
+- Let's hope this tells us where he downloaded the Hydra Network to.
+- (cell phone ringing)
+- You should answer it.
+- (sighs)
+- Hello, Alexei.
+- Frost, it's me.
+- Yes, I know, I can see you.
+- It's really dark there.
+- Where are you?
+- I'm just getting ready to go to bed.
+- Oh.
+- Okay, first ask me how my day was.
+- How was your day?
+- Awful.
+- Andre wasn't working out in Budapest, so I had to let him go... off a 20-story building.
+- 20 seconds.
+- Oh, that's just awful.
+- Well, I really should be going.
+- All right.
+- Sweet dreams, my sweet little pea.
+- Good night, darling.
+- Did you find its location?
+- Looks like Volkoff is entrusting the Hydra to another person after all... the Contessa.
+- Beckman: We've received a message from Agent Walker.
+- Seems she'll be in the field a while longer.
+- She's learned that Volkoff is planning to transfer the Hydra Network to a woman called the Contessa.
+- General, what about the piece of Hydra that I flashed on?
+- Roni Eimacher designed Yuri's eye.
+- There's a good chance he designed something for the Contessa, too.
+- General, there's got to be another way, okay?
+- Sarah pushed Casey out a window, for crying out loud.
+- This needs to end now, she needs to come home.
+- As I said before, my superiors will follow up on Eimacher and the rest of the information in the Hydra fragment.
+- I'm sorry, but you're too close to this, Agent Bartowski.
+- Okay, fine, well, then what am I supposed to do?
+- You wait.
+- That's all you can do.
+- O- Okay, hey, it's gonna be all right, buddy.
+- You know what? We'll go outside, we'll get some fresh air, play a little bocce. No.
+- No, Morgan, I can't do this anymore.
+- I watched my mom leave us and my dad follow her.
+- I let Sarah go and now Casey, and the whole time I did nothing... nothing... while one man took everything away from me.
+- Ellie's right.
+- Bartowskis take care of their family, and right now it's time I put mine back together again.
+- This was my father's mission, and I have to finish it.
+- We're gonna take down Volkoff. We? Really?
+- 'Cause you were kind of talking in the first person there, and I'm not usually invited on these sort of climactic missions, so...
+- I'm, I'm in, though.
+- I mean, which g*n do we grab?
+- No g*n.
+- We need...
+- Office supplies?
+- No, Morgan, we need a plan.
+- ♪ ♪
+- This is gonna work.
+- Yeah, it is.
+- Of course it is; it's a good plan.
+- Thanks. You know, I've been doing a lot of yoga lately, so I feel like I'm peaking mentally and physically, so no problems there.
+- You think this is what they call a, uh, su1c1de mission?
+- What? No, of course not.
+- Look, the first step is we find the guy who designed Hydra: Roni Eimacher.
+- And Morgan, this is going to work.
+- I promise.
+- Of course.
+- Oh, man, we're going to need some help.
+- Budapest, Hungary (clang)
+- (buzzing hum)
+- (clang)
+- (buzzing hum)
+- (speed-dials)
+- Get someone up here immediately.
+- We've got a problem with the... (phone clicks, beeps)
+- What the hell is going on?
+- Who's doing this?
+- My God.
+- He's still alive.
+- Armand.
+- We have a problem in the form of Stephen Bartowski.
+- Orion was k*ll by The Ring.
+- Well, then somehow a dead man broke into my computer system last night.
+- He wants something very dear to me.
+- I'm gonna take Frost to a safer place.
+- I want you to figure out where Orion has been hiding all these years.
+- Where can I find you?
+- I'll be visiting an old friend... the Contessa.
+- Hey, hey. Hey.
+- Thanks for meeting me here. I appreciate that.
+- Hold on one second.
+- There you are.
+- And boom.
+- Push mix for Ellie.
+- Just what the doctor ordered.
+- Captain: Oh, thanks, bro.
+- I know you're busy; it's just, Ellie hates my music.
+- But Rusted Root is rad, right?
+- Yeah, yeah.
+- They're rad-radical.
+- Awesome. Good.
+- Happy to help. Plan is in place.
+- No deep terror can eat away at me from the inside now.
+- "Deep terror"?
+- Did I say, "deep terror"?
+- You said, "deep terror. "
+- Huh. Listen, I got to run.
+- I still got to find someone to make Ellie's placenta into vitamin pills.
+- I... have to unhear that.
+- How do I unhear that?
+- I don't know how to unhear that.
+- Um... one more thing really quick.
+- I'm gonna be gone for a little while, so I took the liberty of setting up some protection for you and Ellie through the CIA, just in case.
+- Protection?
+- Just in case.
+- But promise me, if anything out of the ordinary comes up, you call that number and an undercover team will show up at your front door, and they will take you anywhere you need to go.
+- Well, thanks for everything, Chuck.
+- Yeah.
+- (exhales)
+- Pardon me, Jeff.
+- I bet you Bartowski put a bunch of indie crap on this-this push mix.
+- It's like, we get it, dude, you're cool.
+- You know. Has he no respect for the unborn?
+- The first sounds that a child hears should not be from an audio disc.
+- What is the matter with these people?
+- Yeah, they should be raw, unfiltered, live.
+- This baby needs a performance, delivery room style.
+- This baby needs... Jeffster!
+- Morgan: So I tracked
+- Eimacher through his online Settlers of Catan league.
+- Ooh. Yeah. Turns out, he is a engineering professor at UC Irvine.
+- That's great, great. This will be easy.
+- I've done a thousand missions like...
+- But wait a minute...
+- Beckman told us to back off.
+- I actually don't think we need Castle.
+- (panting)
+- Man: Oh, my God, where am I?
+- Is this a bathroom?
+- No. This is hell.
+- Listen, you're gonna tell us who the Contessa is.
+- The Contessa? I have no idea who you're talking about. Do not play games with us, Roni Eimacher.
+- Roni Eimacher? My name's Barry Greenfield.
+- Barry Green... Oops.
+- If you'll excuse us for just a moment, Mr. Greenfield.
+- (mutters) (door slams)
+- (whispering): That is not Roni Eimacher!
+- (whispering): I know it's not Roni Eimacher!
+- But you got to admit, looks a lot like him. Well, it's...
+- Okay. All right. Fine, fine, fine. What are we gonna do?
+- Gonna tranq him, then we'll just put him back where we found him.
+- Perfect. No, wait a minute.
+- He's seen half of our faces.
+- Chuck, does that mean we have to, uh... you know...
+- (muffled groan) Are you crazy? ! We just have to find the real Eimacher, all right?
+- And this time, bring the picture!
+- Eimacher: Please don't hurt me, I'm just an engineer... Wait.
+- Am I in a bathroom?
+- What? No... geez! No.
+- It-it's hell. I mean, it's clearly...
+- It's clearly hell. (stammers)
+- We went through all this trouble... it's hell!
+- All right? We know you designed the glass eye that Alexei Volkoff stored his Hydra Network on.
+- You two are in serious trouble.
+- Volkoff kidnapped me and forced me to create the Hydra Device.
+- He said he'd k*ll everyone I know, if I didn't do it.
+- So you've never met the Contessa?
+- The Contessa?
+- No, that's where he took me to-to design the Hydra.
+- What does that mean?
+- The Contessa's not a person.
+- It's a...
+- Welcome to The Contessa.
+- What do you think?
+- Beautiful.
+- Yeah. Well, um... bought the old girl years ago, on craigslist Dubai.
+- She's got anti-aircraft m*ssile, sonar stealth technology, and an old-fashioned ice cream parlor. (chuckles)
+- I like to think of her as my floating fortress of fun.
+- Captain!
+- Welcome. Good to see you.
+- The Hydra Network must be on the ship somewhere.
+- This is our chance.
+- Yes. But Volkoff brought us here because he's nervous about something.
+- Wants to stay mobile.
+- We have to go for the Hydra tonight.
+- And nothing can get in our way.
+- Let's do this.
+- (whispers): I told you to take the flippers off!
+- (flippers clattering)
+- We're in.
+- Morgan: Okay. (flippers clattering)
+- Okay. All right, listen...
+- We gotta get down to the lower decks, okay?
+- That's where Eimacher said the server was. (panting)
+- Hey, hey. (snaps fingers)
+- What's going on, buddy? We gotta go. You never told me you were gonna be wearing something else underneath that wetsuit.
+- Morgan, are you telling me you're not wearing any clothes under there?
+- Underwear, Chuck. I'm wearing underwear. I mean...
+- 'Cause how do you even fit anything else under there?
+- Where does it all go?
+- It doesn't matter, doesn't matter.
+- You know what? I'm cool like this.
+- I look like a seal... a seal that does yoga.
+- Yeah. Yoga seal.
+- Yoga seal. All right, just... Yeah.
+- Just don't squeak. Copy.
+- Mary: We're as close as we're ever going to get.
+- Tonight, whether or not we find the Hydra, you're going home.
+- What do you mean?
+- No, I can't. I promised Chuck that I wouldn't come home without you.
+- Yes. I made a lot of promises, too.
+- I don't want you to become me.
+- And I will not allow my son to become his father.
+- So, tonight, it ends.
+- (cell phone vibrates)
+- Armand?
+- Whatever system Orion used to contact you is untraceable.
+- I need to figure out if he's working with someone on the inside.
+- I told you to find Orion.
+- I'm well aware of his connections inside my organization.
+- Then let me prove Frost's loyalty's only to you.
+- Give me access to Hydra.
+- (sighs) Hold on.
+- (computer beeps)
+- Do it.
+- It's not on this deck.
+- MORGAN (whispering): What the... ? !
+- Chuck?
+- Sarah!
+- What are you two doing here?
+- Taking down Volkoff.
+- How did you even find us?
+- You shouldn't be here!
+- She's right. This is my mission, and it's too dangerous.
+- Chuck: No. No, no.
+- This is our mission, okay?
+- I never should have let you go; either one of you.
+- You don't have to do this alone. We're here to help.
+- Morgan: Seriously, guys, it's going to be okay.
+- Chuck has a plan.
+- Chuck: The server room is right down there.
+- (sighs)
+- (whispering): Mom. Mom! Mom.
+- (silenced g*n) (soft groans)
+- When we get back, we need to have a serious talk about the benefits of tranq g*n.
+- Chuck: There's the door to the server room.
+- I'll try to hack in.
+- Morgan: Hang on a second.
+- This dude's got a key card, right?
+- Maybe this will help us with the way in. Uh, Morgan, we don't know what's going to happen if you do that. (beep)
+- See? Easy.
+- Wait. This can't be right.
+- Oh!
+- (whirring)
+- (clink)
+- Morgan: Guys! I think I'm going to die in here!
+- Morgan! What's happening? Lasers.
+- Lots and lots of lasers. And-and they cut things!
+- (beeping) CHUCK: Hang on, buddy!
+- Hang on, buddy. I'm in the system.
+- (whoosh) MORGAN: Awesome, Chuck! Nice work!
+- You got the door to the server room open!
+- Now, just turn off the lasers! (beeping)
+- (groans) I don't think I can do it from here.
+- Morgan!
+- If you can get into the server room, you can power them down and open the door for us.
+- Are you crazy? He can't go through all those lasers!
+- You kidding me? I can't go through those lasers!
+- This could be the only chance you have. We have to hurry.
+- (softly): Yes, you can.
+- Yes you can. Morgan... I... !
+- I can do this!
+- 'Cause I'm... a yogi.
+- All right? I am peaking mentally... and physically.
+- I just need to use my Ujjayi breath, okay?
+- Come on.
+- (labored breathing)
+- ♪ ♪
+- (beeping)
+- Warrior Two pose.
+- Transition... slowly... into Warrior Three pose.
+- Easy...
+- (beeping) (groans)
+- (exhales)
+- (soft gasp)
+- I didn't know I could do that.
+- (beeping)
+- ♪ ♪
+- Guys!
+- I'm stuck!
+- Okay. Okay, okay, buddy.
+- I'm gonna try something else.
+- Easy... easy.
+- Your strength is in your core.
+- (beep)
+- Oh, God!
+- Oh! Not good!
+- Lasers are moving, now!
+- Not good!
+- No. No, no, worse now!
+- Worse now! Oh God!
+- It's slicing through my wetsuit!
+- Morgan? ! Are you okay?
+- (panting)
+- ♪ ♪
+- Chuck: Morgan!
+- Morgan, don't you ever do that again.
+- It's all right.
+- It's okay.
+- (sighs)
+- Yeah.
+- Chuck: You're not cold?
+- Morgan: Yeah.
+- (beeping)
+- (clicks)
+- Uh... Morgan...
+- Here.
+- I'm glad you're okay.
+- Thank you. Thanks. And thank you for this.
+- Although I don't think it's going to... fit over these shoulders; my lats have been, uh...
+- It's, you know...
+- It's just-just kind of, barely. (clears throat)
+- (beeping)
+- (door crashes)
+- Mary: Careful, Chuck.
+- Don't touch that.
+- Okay.
+- Mary: I'm in.
+- All of Volkoff's contacts are here.
+- I am transferring Hydra to a CIA offshore server... now.
+- Hey, babe!
+- Watch me glide.
+- Devon! My water just broke.
+- But you're not due yet.
+- What is Baby Clara thinking?
+- Well, it happened about ten minutes ago.
+- I took a shower, and had a protein bar, and now I'm ready to go, so...
+- Let's go have a baby.
+- Okay.
+- I'm prepared for this. Yes, you are.
+- You have a plan. You have an awesome plan.
+- Okay, everything's gonna be just fine.
+- Where's my push mix? I just got it from Chuck.
+- It couldn't have disappeared. Devon! It's fine, really.
+- I don't need a push mix. Let's just go.
+- I'm going to grab some water for the road.
+- ♪ ♪
+- I'm not ready for this.
+- Perfect plan not perfect. Oh, God! It's gone!
+- No push mix: no baby.
+- It's all gone!
+- (keypad beeping)
+- (knocking on door)
+- Are you expecting someone?
+- Mrs. Woodcomb?
+- Your transport service has arrived.
+- Let's move quickly.
+- Devon, did you arrange this?
+- Automated voice: Voice identification required.
+- Damn it.
+- Only Volkoff can access this.
+- (beeping) It's connected to his voice.
+- (alarm blaring) Okay, Chuck, you and Morgan need to get out of here right now.
+- No. You all need to get out of here.
+- Volkoff will be here any second. No, not without you.
+- Hey, we're all going, okay? Let's go.
+- Frost, I am very disappointed in you.
+- (alarm continues blaring)
+- "Death is the solution to all problems. "
+- That's a quote from my favorite poet and humanitarian...
+- Joseph Stalin.
+- Good job I didn't tell you all my secrets, isn't it?
+- Just know... you did this.
+- sh**t them.
+- Mary: All right, then sh**t 'em, but not before I get one sh*t off, and one is all I need.
+- Get out of here, Chuck.
+- Morgan, go.
+- Go! Now!
+- Come on, Sarah.
+- Come on, come on, come on. Mom, come on!
+- You do realize for them to get out of here alive, you have to stay.
+- Yes, I know.
+- (g*n)
+- Run!
+- Mom!
+- Chuck, come on! Mom!
+- (alarm continues blaring)
+- (panting)
+- Are you okay? Yeah.
+- Look, we better get out of here.
+- No, no, this wasn't part of my plan.
+- Come on, we have to go.
+- You have nothing to say to me? No perfect excuses?
+- No "Trust me, Alexei"?
+- No. Nothing? !
+- Give me the g*n.
+- (g*n)
+- No one touches my Frost.
+- Armand.
+- (panting)
+- Come, please.
+- You need to see this.
+- I have something I've got to show you.
+- Please, you have to see this.
+- "Meet me at Twin Pines cabin. Godspeed, my love...
+- Orion. "
+- What is this?
+- Volkoff: You tell me.
+- Armand found it on our server a few moments ago.
+- Mary: I've never seen this before.
+- Really?
+- Because this message led Armand to hundreds more.
+- You've been talking to Orion every day for years.
+- Night after night, behind my back!
+- That's why you didn't want me near you.
+- I have no idea what you are talking about.
+- Stop lying to me!
+- You knew your husband was alive.
+- You knew the whole damn time.
+- I believed in you.
+- You want the truth, Alexei?
+- The truth is, my husband, alive or dead, will always be ten times the man you are.
+- And every moment that I was with you, I was thinking of him.
+- I'm going to visit your husband, and when I come back...
+- I'll bring you his body.
+- (monitor beeping steadily)
+- Moron Grimes.
+- You're here.
+- Of course, I am.
+- I, uh...
+- I brought your bonsai.
+- Thought it might feel more like home.
+- Would have brought your g*n, but don't think they really would have let me through the door with those, so...
+- (chuckling)
+- (groans)
+- No, save your strength, Dad.
+- The doctor says you need to rest.
+- Listen, I, uh...
+- I... kind of like having my dad around.
+- I don't just like it; I've gotten to used to it, so...
+- I've spent most of my life thinking that my dad was dead, and...
+- I'm not ready to do it again, okay?
+- (wheezing)
+- (groans)
+- My contractions are only ten minutes apart.
+- Let's go ahead and administer the pitocin, please.
+- Can I get ten cc's of Compazine?
+- I'm a little nauseous.
+- Of course, Dr. Woodcomb.
+- Is your husband all right?
+- Yeah.
+- He'll snap out of it.
+- He was like this once before, during his exit exams.
+- He'll be fine, I'm sure.
+- This is the location Orion listed on his communique.
+- Then let's finally put this ghost in the ground.
+- I'll do this myself.
+- Stay here and keep guard.
+- Orion... we finally meet.
+- Charles. Hello, Alexei.
+- I believe you were looking for me.
+- Morning, sunshine.
+- (chuckles softly)
+- Oh, you seem very proud.
+- Using your father's toys to lure me in.
+- Well...
+- I'm not dead yet, so you must want something.
+- You're right, actually.
+- There is still something I want.
+- I hadn't figured you as the vengeful type.
+- Is it because I spoke disparagingly about your father?
+- This is because you took my mother from him.
+- You took his whole life, and his death...
+- His death was ages ago.
+- Isn't it time you moved on?
+- Bearing grudges.
+- A bit childish, isn't it?
+- You can't k*ll me.
+- For the same reason your mother and your girlfriend couldn't.
+- What do you think's gonna happen to all those people you love if you put a b*llet between my eyes?
+- I have access to everyone.
+- (deep breaths)
+- I have to admit, it was a good plan.
+- Using my own jealousy against me.
+- But it had its problems.
+- How could it not?
+- After all, you are your father's son.
+- Just know this.
+- If it wasn't for you, everyone could have gotten out of this alive.
+- (rapid beeping)
+- (steady electronic tone)
+- And now for the sister.
+- I told my men to k*ll your mother, if they didn't hear from me.
+- And they won't.
+- So... cheers, Charles.
+- Here's to a family reunion.
+- (g*n hammer cocking)
+- I can't believe you haven't figured out the solution yet.
+- Solution?
+- To what?
+- Gotcha.
+- Volkoff: "Death is the solution to all problems. " Got it, Chuck.
+- We got the pass code.
+- What is this?
+- Volkoff: "Death is the solution to all problems. "
+- That fake communique you received from Orion... that wasn't just a play on your weird affection for my mom.
+- That was also a virus that my father created.
+- And now that I have your pass code, that virus will begin to transfer the entire Hydra Network onto this computer.
+- Technically, I guess you could say that in the end, it was Stephen J. Bartowski who took you down.
+- Fitting. Don't you think?
+- You know, my father... he taught me a lot of things.
+- Like, looks can be deceiving.
+- (flatine monitor tone)
+- (grunts)
+- (sighs)
+- Fight for your family.
+- (rapid beeping) Something's wrong.
+- (grunts) SARAH: Mary, quick!
+- Oh!
+- Chuck: And of course,  never use a g*n...
+- (click)
+- ... unless you absolutely have to.
+- Yeah, I probably should have told you, I have this... thing about b*ll*ts.
+- I was never going to k*ll you, Alexei.
+- After all, I am my father's son, aren't I?
+- (computer chirps)
+- You made one mistake, Charles.
+- All the information you've got is right here in your father's little cabin in the woods.
+- And outside that door, I have dozens of heavily-armed men.
+- If I don't walk out of here, they're gonna come in for me.
+- You're gonna need an army to get out of here alive.
+- (loud knocking)
+- Chuck: Will they suffice?
+- Arrest him.
+- I just received word from Frost and Walker.
+- They're en route to Burbank.
+- It was a good plan, Agent Bartowski.
+- Thank you, General.
+- Tell your mom to come visit.
+- It's been fun.
+- (helicopter whirring)
+- Morgan: Chuck? Chuck?
+- Excuse me, guys.
+- No, you first.
+- As you were. At ease... gentlemen.
+- We have to get out of here right now.
+- What's up, buddy? Is everything okay?
+- Just got a call from the hospital.
+- Ellie's having her baby now.
+- What?
+- Oh. Oh, hey. Yeah, yeah, yeah.
+- Uh, General, General, can we borrow a van?
+- Agent Bartowski, you just arrested Alexei Volkoff and obtained the Hydra Network we have spent the last 20 years searching for.
+- Lieutenant, get this man a chopper.
+- Thanks.
+- Nurse: You're dilated to ten and fully effaced, Dr. Woodcomb.
+- The contractions are two minutes apart. The baby's coming.
+- Can you get the doctor?
+- Babe?
+- (panting)
+- Honey, look at me.
+- (panting)
+- I need you to go outside and take five minutes for yourself, pull yourself together and then come back to me, okay?
+- You're all I have right now, Devon.
+- I need you.
+- (whimpers)
+- (high-pitched sigh)
+- (door closes) (panting)
+- Ew, pregnant women.
+- Ooh, pregnant women.
+- Excuse me, candy striper?
+- Hi. Listen, could you point us in the direction of the Woodcomb womb?
+- What? Without us, that kid is gonna grow up listening to Snow Patrol and... Coldplay.
+- (shudders)
+- And we just can't have that, can we? So...
+- I'm sorry, but no one goes in there unless they're a family member.
+- So I suggest that you take a seat.
+- Dr. Adler, Room 315, please.
+- (baby crying)
+- (crying)
+- (sighs)
+- Hey, Awesome?
+- Heard Ellie's in labor.
+- Where is she?
+- Why aren't you in there?
+- Oh, listen, don't make the same mistake I did.
+- I missed my daughter's birth, missed her whole damn childhood.
+- Alex's mom had to raise her all on her own.
+- There's not a day that goes by I don't regret that.
+- Now you get in there.
+- Move it.
+- (seethes)
+- (Ellie sighs)
+- (panting)
+- It's time to push.
+- Okay.
+- (microphone feedback squeaks, Ellie groans)
+- (hip-hop b*at plays over P. A. )
+- Lester: ♪ Ah, push it ♪
+- Oh, God!
+- ♪ ♪
+♪ Ooh, baby, baby ♪
+♪ Ba-ba, ba-baby ♪
+♪ Ooh, baby, baby... ♪
+- Jeffster!
+- ♪ Ah, push it ♪
+♪ Ah, push it ♪
+- Oh, no. ♪ Hey, get up on this ♪
+♪ Ow, baby ♪
+♪ Salt-N-Pepa's here ♪
+♪ Salt, Salt, Salt, Salt, Salt, Salt-N-Pepa's here ♪
+♪ Salt, Salt, Salt, Salt... ♪
+- John.
+- Walker.
+- I'm sorry.
+- I- I didn't know the... Glad you're back.
+- ♪ Salt-N-Pepa's here, and we're in effect ♪
+♪ Want you to push it, babe ♪
+♪ Coolin' by day, then at night ♪
+♪ Working up a sweat ♪
+♪ Come on, girls, let's go show the guys that we know ♪
+♪ How to become number one in a hot party show ♪
+♪ Now push it ♪
+♪ Ah, push it ♪
+♪ Push it good ♪
+♪ Ah, push it... ♪ (squeak)
+- (music stops) It's over.
+- No! No! We did what we came here to do, Jeffrey.
+- Cover song by cover song, we are shaping the youth of America. Aah!
+- I'm not allowed to do that anymore.
+- Are you family?
+- All: Yes.
+- Okay. Well, only one of you can come in.
+- Um, Mom.
+- Mom, go ahead, please.
+- Just make sure she knows we're all out here, okay?
+- I will.
+- (panting)
+- You came.
+- We all did.
+- ♪ ♪
+- (chuckles)
+- I got it.
+- Where'd Alex go? She went home.
+- Alex: No, I didn't.
+- I just went to get a coffee.
+- Whether you like it or not, Dad, I am not going anywhere.
+- Neither am I.
+- Good luck trying to get rid of me, guys, 'cause... (chuckles)
+- I like you guys.
+- Your, your line is "I like you, too, Morgan. "
+- (breathes deeply)
+- Ellie, she's so beautiful.
+- Congratulations.
+- Thank you.
+- (Clara coos)
+- (Ellie chuckles)
+- Hello, my angel.
+- (cooing)
+- (sniffles)
+- Awesome.
+- (chuckles)
+- ♪ ♪
+- (polisher humming loudly)

@@ -1,0 +1,599 @@
+# Chuck Versus the Ring (1)
+
+- Hi. I'm Chuck. Here's a few things you might need to know.
+- I programmed it to remove the Intersect from Chuck's head.
+- It's over, Chuck. The Intersect is out.
+- You're a spy, Chuck?
+- Yeah, more or less, yeah.
+- Awesome!
+- Don't you have a dream, Morgan?
+- I'd like to be a Benihana chef.
+- Morgan out.
+- You're free, Morgan!
+- Chuck, where have you been?
+- I was getting your wedding present.
+- Dad...
+- Where're you headed?
+- Burbank.
+- Got a wedding to go to.
+- Hmm, thank you for joining us.
+- Emmett, I've waited a long time for this day.
+- Thought of so many ways I could say it out loud and how it'd finally feel to get it off of my chest.
+- Let me stop you, Chuck.
+- I am incredibly flattered.
+- But I am a flaming heterosexual.
+- What?
+- What?
+- No, no, I'm, I'm, I'm out of here.
+- I'm, I'm done.
+- Well, leaving is not the answer.
+- I am just touched that you are taking it so hard.
+- Emmett, you don't understand!
+- I quit!
+- No more Buy More.
+- No more you.
+- You can take your flag and your job and shove it.
+- Ditto.
+- Just what do you think you're gonna do for the rest of your life? !
+- Anything I want.
+- Chuck,  what are your plans for the future?
+- Well, I was gonna get a good champagne buzz going on at my sister's wedding followed by a nice extra-long slow dance with my date.
+- Vocationally speaking?
+- Oh, that, no, nothing, nothing lined up just yet.
+- How would you feel about working on the new Intersect project?
+- Your government has been rebuilding its own Intersect.
+- You've shown real promise.
+- We'd like you to be an analyst.
+- Your country is calling you, Mr. Bartowski.
+- Uh, well, then I think my country might have the wrong number, 'cause I'm just Chuck Bartowski, not a hero.
+- Very well.
+- I guess that concludes Project Bartowski.
+- Colonel Casey, please issue Mr. Bartowski his final papers before you and your Special Forces team ship out to Waziristan.
+- Agent Walker, I'll need you for just a moment more.
+- What exactly is this?
+- It's your pay packet, numbnuts.
+- Hi-yo! Whoa!
+- Yeah, you know, if you were a true patriot, you wouldn't even cash it.
+- Casey?
+- Hmm?
+- Thank you for saving my life at least once a week. Hmm.
+- See?
+- Guys can hug.
+- Not if they don't have their man parts.
+- That's a good point.
+- You've done good work here.
+- Thank you.
+- It's in case of emergencies.
+- My personal number, but, uh, your fingers better be on fire when you're dialing.
+- Agent Walker,
+- I'm sure you'll be pleased to know you're in charge of the new Intersect project, working in tandem with Agent Larkin.
+- And this time, the Intersect goes in my head.
+- Bryce?
+- Now that we've got the Cube, it's ready for upload.
+- You leave for Zurich together at 0800.
+- Auf Wiedersehen.
+- Walker and Larkin... together again.
+- Finally, you can get out of here.
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- Hey.
+- Hey.
+- Everything is going to be perfect.
+- I even had your Toyota washed for you, man.
+- Oh, perfect, thanks, bro.
+- Oh, uh, I'll be right back.
+- Okay.
+- Just a second.
+- Hi, can I talk to my sister?
+- It will only take a second.
+- Oh, no, Chuck.
+- It's bad luck to see the bride...
+- It's fine, I don't believe in that stuff.
+- All right, just get in, get in.
+- Get in, get in!
+- Hi.
+- What?
+- Look at you.
+- Ellie, your dreams are coming true.
+- If it were up to me, I would have a small ceremony on a beach.
+- Sand between my toes, people I love.
+- But we all make sacrifices for family, right?
+- One, two, three...
+- Where the hell is my blonde?
+- Anyway, uh...
+- I don't know exactly yet what I'm going to get you for your wedding present.
+- But I'll start with this: I quit the Buy More today.
+- What? !
+- The Buy More is no more.
+- Oh, Chuck, that is... that is incredible.
+- What are you going to do with your future?
+- I don't know.
+- Oh, there she is!
+- I made my dreams come true, Chuck.
+- What are you gonna do about yours?
+- Sarah, can we talk for a moment?
+- Look, I wanted to tell...
+- Oh, uh...
+- Ellie wanted me to make sure that you have the rings.
+- Yeah, right.
+- You look like a real spy.
+- You look like a real bridesmaid.
+- Sarah, I...
+- Wait, uh...
+- There's something that I have to tell you.
+- I can't wait.
+- I can't wait, I can't wait any longer.
+- Okay, everyone keeps asking me what I'm going to do with my future, and the truth is, I don't have a clue.
+- All I do know is that I want you to be in it.
+- Please, I really have to tell you.
+- No.
+- No g*n, no lies, just us.
+- Just like I've always wanted it.
+- I've recently come into a little bit of money.
+- So, any place you want to go, any place at all as long as it's sunny, with little umbrella drinks.
+- What I'm getting at here is...
+- Sarah Walker, will you do me the honor of taking a vacation with me?
+- Chuck, I'm leaving in the morning.
+- The details are classified but I'm working on the new Intersect project with Bryce.
+- Bryce.
+- I-I'm so sorry.
+- I wanted to wait until after the ceremony to tell you.
+- Thank you for coming to the wedding.
+- Good for the cover.
+- Today's a day we'll remember forever, son.
+- Oh, my God!
+- I believe we've met before.
+- Ted Roark.
+- No, I'm Ted Roark.
+- You're the CIA agent who's in deep trouble.
+- By the way, congratulations on your sister's happy day.
+- Her gown is gorgeous.
+- Full bodice, love the beading.
+- What the hell do you want?
+- Ooh, there's no need to curse.
+- You know damn well what I want.
+- I...
+- I want the Intersect Cube.
+- I-I can't, I can't, I can't give you that.
+- Oh, you'll find a way, I'm sure.
+- Oh, sorry, I forgot the threat part.
+- If you don't deliver that Cube within a half hour, 40 minutes tops with traffic, I'm going to k*ll the bride.
+- Nice.
+- Hey, Chuck.
+- Sorry, can I talk to you real quick?
+- I'm just feeling a little nervous.
+- Buddy, I'm so sorry, I can't talk right now.
+- Hey, hey, hey, hey.
+- What's the matter?
+- You could tell me, I... I might be able to help.
+- It's, uh... It's, uh...
+- It's the rings.
+- It's the rings. I have to go home and get them.
+- Find Sarah, pull her aside, and specifically tell her that I forgot the rings.
+- The wedding is in 20 minutes. Ellie is gonna k*ll you.
+- Thanks for that.
+- Unless...
+- I stall the wedding.
+- Okay, no one will even know you're gone.
+- They'll just blame me. It'll be fine.
+- You'd do that for me?
+- Of course I would, dude.
+- You've saved my ass a million times.
+- It's about time I saved yours.
+- But go.
+- Oh!
+- What is that smell?
+- There he is!
+- Ladies.
+- You ladies get soft without me?
+- It's been a while. Good to see you, sir.
+- Yeah, a long time, Miles...
+- Come on, Casey.
+- This is Casey. Leave a message.
+- Who's ready to do some hunting?
+- Hurrah! Hurrah!
+- Dr. Awesome.
+- Don't take another step.
+- My wife warned me about you.
+- Good warnings, I hope.
+- Retreat two steps back.
+- I need to get in there.
+- You...
+- Oh, uh, Dr. Woodcomb, your wife wants me to tell you to go to the car and get backup hosiery.
+- Does that make sense?
+- Man my post. Don't let this one in.
+- Yes, sir.
+- Sarah, listen to me.
+- Uh, Chuck forgot the rings, so he-he went home to go get them.
+- He what?
+- Yeah, the wedding rings. He blew it.
+- I have to stall the wedding.
+- How do I stall a wedding?
+- Uh, do it, Morgan, by any means necessary.
+- Right, right.
+- How the hell do I stall this wedding?
+- Think, man, think.
+- It's gone.
+- Bryce?
+- To the new Intersect.
+- Where? Where? Where is it? !
+- Chuck, you know I can't tell you that.
+- That's top secret. Not even Beckman...
+- No, I need it, Bryce. I need it. My family's in danger.
+- Ted Roark and his FULCRUM team are at the wedding.
+- He's going to k*ll Ellie unless I bring him the Cube.
+- Roark can't have it.
+- No.
+- He'll m*rder everyone.
+- No. You're going to give them me.
+- They think you're the Intersect.
+- They've been looking for me all along.
+- The Cube can't fall into the wrong hands.
+- I made a promise to Orion.
+- You knew.
+- That was the deal.
+- Your dad knew I protected you at Stanford.
+- I was the only spy he would trust.
+- I can't believe you've known this whole time.
+- He wanted to keep you out of this.
+- But I knew you could handle the Intersect, I knew Sarah would find you, and most importantly, you deserved to know the truth about your father.
+- He's a hero.
+- Now, let's go get your sister married.
+- Yeah, just...
+- What's the holdup?
+- Uh, the bride is perfect.
+- She'll only wilt from here.
+- Oh, we can't find Chuck.
+- Oh, and the blonde is gone, too.
+- Sarah?
+- Yeah.
+- Just now?
+- Yes.
+- Excuse me.
+- This is a really weird family.
+- Don't chew gum.
+- Sarah?
+- Something's wrong.
+- Ted Roark and his men are inside.
+- He's alive?
+- How did... ?
+- Did you bring a g*n?
+- I'll think of something.
+- Please, check the chapel and the bridal chamber.
+- Make sure there's nobody else.
+- Wait.
+- Use the South East entrance, through the kitchen.
+- Okay, thanks.
+- Hello.
+- It's on? It's on?
+- Hello.
+- Uh, I-I'm Morgan Grimes, unofficial member of the wedding party.
+- Uh, so, uh, we have some pre-wedding entertainment planned for you guys.
+- So, without further ado, I present to you Jeffster!
+- It's Jeffster!
+- What's going on?
+- I don't know, but this wedding just got good.
+- Dude, we got the perfect song.
+- Knock 'em dead. Knock 'em dead.
+- Okay, this is in four/four time.
+- It's in D.
+- Watch me for the changes.
+- Morgan, you are ruining my wedding!
+- Listen to me. If you hit me, know that it only teaches me to hit.
+- Okay, now for reasons I cannot say, I have to stall this wedding.
+- Tell me why.
+- Because Chuck is in trouble, and I'm saving him, man.
+- Chuck told you to do this?
+- Yes.
+- Okay, okay, I'm with you.
+- Okay, no Sarah.
+- And that is definitely not the wedding march.
+- Um, can one of you please go see what's going on out there?
+- Now! Thank you. Thank you.
+- Focus on the calm.
+- Kevin, why are you letting Sam Kinison and an Indian lesbian wreck your wedding?
+- Dad, just chill out, okay?
+- Come on.
+- You know what?
+- I'm feeling a bit peckish.
+- Don't you dare!
+- Chuck.
+- If you ever want to see the Intersect again, you will not touch anything in this room.
+- Do I make myself clear?
+- Today is my sister's wedding day, and believe me, you don't want to see her angry.
+- Where's the Intersect, Chuck?
+- Uh, a-about that...
+- k*ll him.
+- Ho! Ho! Ho! Ho!
+- Ho down. Ho down. I mean, hold on.
+- Just hold on a second, all right?
+- Finally.
+- I did bring an Intersect with me.
+- An Intersect?
+- Mr. Roark.
+- Mr. Larkin.
+- The Human Intersect.
+- Roark, you want me.
+- Now let Chuck and his people go.
+- We leave, they stay, nobody else needs to know.
+- Terrific plan.
+- Thing of it is, FULCRUM wants Chuck here dead no matter what.
+- So, with that said, sh**t Mr. Bartowski, or...
+- Sarah, take him.
+- Oh, God, not the flowers!
+- Not the centerpieces.
+- I'm dry. Any more knives?
+- Nope. I threw all eight.
+- Get up!
+- Okay.
+- Oh, God.
+- Someone just sh**t me now.
+- I can help you with that, Chuck.
+- Mm.
+- A real g*n wedding.
+- Just think, that terrible pun is the last thing you'll ever hear.
+- Hello, Ted.
+- Waited 20 years to do that.
+- All clear, sir.
+- You rang.
+- Chuck.
+- What happened?
+- Uh, everything's all right, Ellie.
+- There was just a minor centerpiece problem.
+- Oh, no.
+- Wedding canceled.
+- This is officially a disaster.
+- I can't believe that my spy life has wrecked my real life.
+- Again.
+- I've completely ruined my sister's wedding day.
+- I'm sorry, son. I...
+- If anyone knows how you feel, it's me.
+- You had no choice, Charles.
+- You saved her life.
+- Hey.
+- Hey.
+- You okay?
+- No, I'm not.
+- I'm not okay.
+- I don't want to have to save my sister using a Special Forces team.
+- I just want to be a normal guy who helps his sister in normal ways.
+- Like right now, if I could give her anything in the world, I would...
+- Excuse me.
+- I think I might know how to fix this.
+- You got time for one more mission before you take off?
+- It's not what a normal guy would do.
+- Don't forget to lock it.
+- Yeah.
+- Yeah, Walker, what is it?
+- You're kidding.
+- Roger that. We're on it.
+- Ellie, are you all right?
+- Chuck, just please go away.
+- I can't believe your idiot friends ruined my wedding.
+- I'm just-- I'm never going to forgive Morgan for this.
+- Well, I think you're going to have to.
+- Because Morgan... and Lester, and Jeff-- they only did what I asked them to do.
+- What?
+- I did all this.
+- I forgot your rings.
+- So I told them to stall.
+- So if you're going to be mad at someone, you should be mad at me.
+- Please say something.
+- You... ruined... the most important day of my life.
+- Look...
+- Ellie, you have to trust me, okay.
+- Take these... and I'll take care of the rest.
+- Trust me.
+- Sir, how do you spell begonia?
+- Sound it out.
+- No, no, no, that clashes with the bunting.
+- Yes, I-I appreciate that you require extra time to permit the area, but this is a national security matter.
+- We are gathered here to join together
+- Eleanor Faye Bartowski and Devon Christian Woodcomb in matrimony.
+- Who gives this woman in marriage to this man?
+- We do.
+- We do.
+- I love you.
+- I love you.
+- Watch him.
+- A partnership should not be entered into lightly, but with much consideration.
+- If any person can show just cause why they should not be joined, let them speak now or forever hold their peace.
+- Sarah.
+- You're not coming with me, are you?
+- Do you have the rings?
+- Whoo!
+- Was that... you were talking about, secondhand smoke?
+- Three hundred.
+- Sir.
+- Roark wants to talk to you.
+- Watch my cards.
+- Watch them.
+- Better not be about food.
+- Don't!
+- Sorry, sir.
+- We've been through a lot.
+- How long you been FULCRUM?
+- I'm not with FULCRUM.
+- Go ahead and pull the trigger.
+- I don't want to look at your face.
+- You just k*ll three Marines in cold bl*od.
+- Yeah.
+- But none of them saved my life.
+- Hi.
+- Thank you.
+- For what?
+- For what? For-for all of this.
+- For my wedding gift.
+- This is...
+- I don't how you did all this.
+- Well, I can't exactly take all the credit.
+- Well, first the beach and now this.
+- I don't know.
+- You're pretty amazing, little brother.
+- Sometimes I think you have super powers.
+- I wish.
+- I know.
+- Chuck, man, you saved the day.
+- Looks like you're the big hero.
+- Thanks, bro.
+- Well, now I really am your bro.
+- Yes, you are.
+- I can't believe you're actually leaving me.
+- All right, don't, Chuck.
+- I'll cry. We don't want that now, do we?
+- I'm happy for you, buddy.
+- I think that you are going to be the greatest Hibachi chef in the world.
+- I don't know, man. This whole...
+- "making your dreams come true thing" is hard.
+- And the bigger the dream, the harder it gets.
+- You know, on one side, you know, the girl you love.
+- And then on the other, life as you know it.
+- It's just, you know, friends and family, and job you can't stand.
+- I don't know, man.
+- I should just go with Anna, right?
+- But then I, uh... I'm overthinking this, aren't I?
+- Yeah, yeah, you are.
+- Go with your heart, buddy.
+- Our brains only screw things up.
+- Where's Bryce?
+- Gone.
+- They're uploading him with the new computer tonight.
+- Off to save the world.
+- I guess both of you are.
+- You want to dance?
+- You know I do.
+- Mr. Bartowski.
+- Or is this an Orion conversation?
+- A bit of both.
+- I reconfigured the Cube for you under two conditions: You stop looking for me, and you leave my son alone.
+- We asked Chuck to be on my team. He said no.
+- Good-bye, Orion.
+- You made changes-- to the Intersect.
+- To my initial designs.
+- The data architecture is different.
+- What does this new computer do?
+- You don't want to know.
+- Agent Larkin.
+- It's time to go.
+- You belong out there, saving the world.
+- I'm just...
+- I'm just not that guy.
+- How many times do you have to be a hero to realize that you are that guy?
+- But I want more, Sarah.
+- I want a life.
+- I want a real life.
+- Chuck, I don't want to save the world.
+- I want...
+- Chuck, the agent... the agent who came for Bryce... he isn't a CIA agent.
+- He's supposed to be dead.
+- Dad, how could you possibly know that?
+- Screw it.
+- I... I have an Intersect in my head.
+- I... I tested the computer on myself.
+- I was young and stupid, but the intel was good.
+- That man isn't CIA.
+- Bryce.
+- Bryce is getting the upload tonight.
+- They're going to k*ll him.
+- They'll download the Intersect into their team instead.
+- Well, if they know about Bryce, they know about Casey.
+- Sarah...
+- Let her go, son.
+- You've done your part.
+- No, I have to go.
+- No... no, you don't.
+- You're not a spy.
+- Dad...
+- I love her.
+- I can't follow you, son, but take this.
+- Thank you.
+- Be safe, Charles.
+- Thank you.
+- Hey, I'm coming with you.
+- Stay here-- it's not your mission.
+- Wait... this is the Interect we're talking about, and I'm a Bartowski.
+- You need me.
+- Let's go.
+- Did you see her?
+- Agent Walker?
+- She was amazing, right?
+- Yes, sir.
+- She loves another guy.
+- Bad day to be me.
+- You have no idea.
+- Mr. Larkin.
+- Open this door!
+- They're already here.
+- Bryce must be in the vault!
+- Chuck, go get help.
+- Help!
+- Hello, Chuck.
+- Bryce.
+- Bryce, Casey and Sarah are pinned down outside.
+- I'm on it.
+- Oh, my God... oh, my God.
+- Oh, my God, you've been sh*t.
+- Yeah.
+- I'm really sorry about this, Chuck.
+- No.
+- No, it's okay... it's okay.
+- You're going to be fine-- it's not that bad.
+- Take care of her.
+- Don't... don't say that.
+- You're not dying.
+- She needs you, man, okay?
+- You... you guys are going to go on missions together and do exciting things and save the world.
+- You'll be a team again-- it will be great.
+- She wasn't going to come.
+- She wants...
+- Come on.
+- Hold on, hold on, hold on.
+- This will destroy the Intersect.
+- This new computer is too powerful.
+- It's too dangerous.
+- But you need... you need the computer to fight FULCRUM.
+- FULCRUM doesn't matter, all right?
+- They... they're just... they're just one part of the Ring.
+- They'll use it against us, Chuck.
+- You have to do this.
+- All right?
+- You have to destroy that computer, and then get out of here.
+- Yeah, but you can b*at them.
+- You're a real... hero, Bryce.
+- Bryce.
+- Oh, my God.
+- I can't figure out why Bryce did this, why he chose me.
+- You can do anything-- I've seen you in action.
+- You can't put him out in the field.
+- He won't survive.
+- It's time for you to become a spy.
+- I'm just Chuck Bartowski, not a hero.
+- How many times do you have to be a hero to realize that you are that guy?
+- What did you do?
+- What did you do? !
+- I destroyed it.
+- You're too late.
+- For that, you'll die last.
+- Bryce.
+- Bryce!
+- Bryce, no... help me.
+- No, don't you touch him!
+- There's nothing left.
+- So, you lose.
+- You should know this.
+- No one stops us.
+- No one ever has.
+- Who are you?
+- Spies, Agent Walker.
+- The best.
+- Sir, you should look at this.
+- Chuck, did you just flash?
+- He uploaded it.
+- Oh, Chuck me.
+- k*ll him.
+- Chuck?
+- Guys... I know kung fu.

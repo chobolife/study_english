@@ -1,0 +1,814 @@
+# Chuck Versus the Curse
+
+- Hey I'm Chuck. Here are a few things that might need to know or maybe you just forgot.
+- Why'd you bring us here?
+- I need you to do a job for me.
+- We've been tracking a computer super virus named the "Omen. "
+- Bring it back to me, Mr. Casey goes free.
+- The virus is too dangerous to be released into the world!
+- It could wipe out everything.
+- What are you planning on doing with it?
+- The real question is what do you plan to do with it, Chuck?
+- You're gonna break me out of here alone?
+- Prisoner transfer, section 38.
+- Man: Copy that.
+- Give me one reason not to k*ll you.
+- It will only further prove your guilt.
+- Chuck: Let's go right now.
+- Hey, Decker, aren't you forgetting something?
+- (beeping)
+- So Verbanski blew up Decker.
+- That was pretty messed up.
+- And now the CIA wants to frame me for something awful.
+- That's bad, too.
+- But there is something else going on here.
+- Something personal. Who's after us, Sarah?
+- I don't know, but we're gonna get the team back together and we're gonna figure this out.
+- Where are they, anyway?
+- They were supposed to be here an hour ago. Did they get caught?
+- You want to explain to me what I'm doing in the ducts of Castle?
+- This is our Castle. Our secret base.
+- Maybe my plan was a bit overly cautious, okay, but Verbanski was very complimentary of it.
+- We should have gone in through the front door.
+- Whoa, whoa, whoa.
+- You're are a fugitive, okay, and there's a mysterious CIA plot to destroy you, Chuck and Sarah, perhaps even me.
+- Ah. Keep your ego in check, will ya, huh, Grimes?
+- Okay. What if, though?
+- What if Castle's been compromised?
+- That's...
+- I'm proud of you, moron.
+- Did you just compliment me... and insult me?
+- (grunts) We're here.
+- Chuck!
+- Hey, stand back!
+- Sorry we're late.
+- Someone needed a sandwich.
+- And then someone needed a fruit cup, so...
+- Well, we're just happy that you're back.
+- Where's Verbanski?
+- Well, since she disposed of Decker, she felt it best to stay out of the country till things die down a bit.
+- Just when things were getting going between you two. So painful!
+- I mean, that hurts.
+- Man, that's tough.
+- I just said what I was thinking out loud, didn't I?
+- I'm sorry, Casey.
+- Yeah, she was a hell of a woman.
+- Still is. She's not dead and neither am I. Let's get on with it.
+- Right, well, before Decker blew up, he was after this, the Omen.
+- A computer virus that can erase a hundred zettabytes of data per second.
+- Whoa. A hundred zettabytes?
+- Is that a real thing?
+- It could take down the Internet, crash airplanes and erase every database in the world, so, yeah, it's real.
+- If the people trying to frame Chuck are coming from inside the CIA, we need to find Beckman.
+- Or... she can find you.
+- This is an official communique I requested to tell you myself.
+- For the m*rder of Agent Decker as well as the crime of treason against the United States, the CIA is placing all of you under arrest.
+- What? General, how can you do this?
+- I'd ask your team the same.
+- If you know what's good for you, you'll stay put.
+- Agents are on the way.
+- I put my trust in you for years and look what you've become: traitors.
+- Gen... ! How can she... ?
+- Even Beckman's against us. How did this happen? !!
+- You clever dame.
+- What are you doing?
+- She's amazing.
+- What are you talking about? !
+- Casey: Look, Morse code. She was giving us a warning, telling us to run.
+- We have exactly five minutes to get out of here before the CIA comes charging in.
+- She said all that?
+- We need to get out of here.
+- All right, let's go to my father's cabin and access the CIA's database using his Orion system.
+- Find out who's after us.
+- Roger that. I'll find Beckman.
+- Let you know when I know something.
+- Guys, I know we've been chased before, but I got a bad feeling about this.
+- It's like were being hunted.
+- Chuck, it's okay, we can handle it.
+- Damn right. If we are being hunted, I need to get to the apartment and wipe my computer clean.
+- Too dangerous.
+- The complex is probably surrounded by agents.
+- Then I go.
+- Makes sense. I'm not a fugitive. They're not hunting me.
+- I can do this.
+- Okay, I'll show you what to do.
+- You all right? You ready to go?
+- Yeah.
+- Babe, you ready to go?
+- Don't come in here! I'm still getting ready.
+- ♪
+- Babe?
+- Okay. Ready.
+- Whoa.
+- It is so awesome that you're my wife.
+- Thank you.
+- Honey, are you sure Clara's gonna be okay?
+- Babe, Clara's fine.
+- She's with my parents.
+- This is what we wanted, remember?
+- Fancy dinner, a nice hotel... mini vacay.
+- You're right, you're right.
+- It's been way too long since we've had time, just the two of us.
+- It's gonna be a great night, I promise.
+- And I have a little surprise for you.
+- Mmm... I might have a little surprise for you, too.
+- One more move and I will end you.
+- Damn it. And I was trying to be discreet. Man!
+- Morgan? !
+- Yeah. Yeah, it's me.
+- Morgan, what are you doing breaking into your own apartment?
+- Doing a favor for your dad... and not trying to be seen.
+- I broke him out of jail.
+- The CIA's kinda sorta hunting him.
+- I know.
+- The authorities contacted me.
+- I just, I thought maybe he would be here.
+- The whole team's on the lam.
+- He's not coming back here. Not for a while, anyway.
+- Okay.
+- How have you been?
+- Are you all right?
+- (knocking)
+- I got this.
+- (g*n cock)
+- Okay.
+- Please, whoa. Yeah, sure. I mean, could you at least wipe your feet before you... ?
+- Robyn Cunnings. Special Agent, CIA.
+- I'm looking for John Casey and the rest of your team. Where are they?
+- I don't know.
+- Technically, I'm not part of the spy team anymore, so...
+- What are you two doing here, anyway?
+- Me and her?
+- He's my boyfriend. You know, we're just hanging out at the apartment.
+- The apartment that I live in... with her father.
+- You live with your girlfriend's father?
+- Yes, I do. Yes, I do.
+- Seems a little awkward, sure, but it works, you know, for us.
+- It's clear. He's not here.
+- See? We told you.
+- We don't know where my dad is.
+- But I want him safe.
+- He's a good man.
+- Good men don't go on the run.
+- If you see him or help him, you'll be aiding and abetting a fugitive.
+- Enjoy the rest of your evening.
+- We'll be right outside.
+- Okay, okay.
+- Nice. No, that was good, that was good.
+- You all right? - Yeah. You did great.
+- It was perfect.
+- I'm your boyfriend, huh?
+- It was a lie, Morgan.
+- Don't get so excited.
+- Not that excited.
+- So I know we're gonna fix this and all, but do you think they're gonna bring Ellie in for questioning?
+- Man, I wish I could call her.
+- I know, I know, but they could've tapped her phone, and we don't want her implicated.
+- We're not staying at this cabin, right?
+- I mean, this thing's gonna blow over.
+- I'm not disappearing on my sister, am I?
+- Of course not, why would you say that?
+- You know, us, wanted by the CIA, my family history. I'm just saying.
+- Chuck, we're not gonna disappear like your parents.
+- We're just hiding out for a little while, okay?
+- Everyone's gonna be fine.
+- Captain: Reservation for two under Woodcomb.
+- I'm sorry, I don't have a reservation under that name.
+- You know what? Check "Bartowski. "
+- Boss, we've got a lock on the Bartowskis.
+- Excellent. Let's get on it then.
+- I used Chuck's Open Table account.
+- He loves the points.
+- There you are. Table for two.
+- Mr. and Mrs. Bartowski, right this way.
+- ♪ Chuck 5x06 ♪
+Chuck Versus the Curse
+Original Air Date on December 16, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- To a very special night.
+- And a few little surprises.
+- Babe, you look beautiful.
+- Thank you.
+- I, uh, I wanted something a little different, so I borrowed a dress from Sarah.
+- She wore it on a mission in Bulgaria once.
+- How wild is that?
+- You ever wonder what it would be like if we lived a life of mystery and adventure like that?
+- Like Chuck and Sarah?
+- Like spies.
+- Well, you know, spy work does run in our family.
+- There's no reason why you and I can't pretend to be spies for tonight.
+- Man, I'm glad we're not on the lam forever because I got to tell you, standing here, I'm feeling a little bit like I'm becoming my father.
+- I can only imagine this is what he felt like the first day he had to leave us behind.
+- You know, all alone in exile.
+- That's not gonna happen, not if I've got anything to do with it.
+- It's like it's my family's thing or something, u know The Bartowski Curse.
+- The what?
+- Every Bartowski has put their family in danger, then had to leave them in order to protect them.
+- And I'm next.
+- Chuck, there is no such thing as the Bartowski Curse.
+- You're not going to be like your father, okay?
+- You know why? Because you've got me.
+- You're not alone. (computer chiming)
+- Access granted.
+- Okay, okay.
+- It worked. We're in the CIA's mainframe.
+- Okay, let's figure out who Decker was working for.
+- Who's behind this?
+- There's an active case file, but no lead agent listed.
+- Not even the CIA knows who's in charge.
+- It's a dead end.
+- Captain: So we're gonna be spies?
+- What do you say, six pack, are you in?
+- Well, all right, hot mama.
+- Maybe we should come up with a code word in case things get too hot.
+- How about "martini"?
+- And we can communicate with hand gestures.
+- When we need to send a signal to one another, we can just tuck on our ear like so.
+- Baby, you look so cool when you do that.
+- May I take these plates?
+- Well, if you'll excuse me, it's time to bring out your surprise.
+- Copy that.
+- Wait. Wait, wait, wait, wait.
+- They've confirmed they have a I.D. on the target.
+- It says they found us.
+- If they're closing in on us, then we've got to get out of here.
+- We have to run, for real this time.
+- Sarah, this is exactly what I was afraid of.
+- I'm sorry, Chuck. I know that... that you're not ready for this, but nobody's ever ready for something like this. We've got to go.
+- Well, how long are we talking here?
+- I don't know.
+- But I know what you're thinking, and this has nothing to do with your parents. It has to do with us.
+- You have to trust me.
+- I've been on the run my entire life.
+- And the only way this is going to work is if we stick together, okay?
+- Okay.
+- Okay, fine. But there's one thing I can't leave without.
+- What? My pants.
+- Your pants?
+- Yeah, you got it, Chuck. I will get you your pants.
+- It will be an honor.
+- Hey, listen, I love you, man.
+- Chuck's going on the run and he needs his pants?
+- Well, they're his secret pants.
+- Secret... You know what, it's best I just show you mine.
+- Watch your hand.
+- Right. Okay.
+- Here.
+- What's so special about them?
+- Not so fast.
+- Not so fast.
+- Ever since we were kids, Chuck and I each had a box of pants.
+- Private Artifacts Never to Share.
+- We kind of went through an acronym phase.
+- Anyways, this is where we kept our most sacred possessions.
+- In case of a fire, this is what we save.
+- And you both have these?
+- Well, you know, Chuck's generally neurotic, and I was just terrified of my house burning down, since, you know, my house b*rned down.
+- Here we go.
+- The 2000 Sangiovese.
+- A little surprise for the wife.
+- The same bottle we had at our wedding.
+- She is going to love it.
+- I'm thrilled for you. Really.
+- Perfect.
+- You okay, bro?
+- Project Eagle is in effect.
+- I'm here to take you and your wife to a secret location.
+- We should leave quickly.
+- Project Eagle?
+- Your limo's just outside.
+- I'll be waiting there for you and your wife.
+- My wife.
+- Project Eagle, hmm? Right.
+- Be right there.
+- Hey, what is it? Are we surrounded? Are there too many guys?
+- No. That's just it-- there's nobody out there.
+- Doesn't make any sense. Could they have made a mistake?
+- They must have. (phone beeping)
+- What's the matter?
+- Nothing. Just kind of weird.
+- It's a reminder from Open Table to review my dining experience from tonight.
+- Ellie must have used your Open Table account.
+- She always does. She knows how I love the points!
+- That means the operatives think that Ellie and Devon...
+- Are us.
+- (both laughing) (phone ringing)
+- Oh, come on, babe, you're harshing on my spy vibe.
+- I'm sorry, I thought it was off.
+- There, done.
+- Straight to voice mail again. No answer from Devon either.
+- Oh, God.
+- Sarah, I think Ellie and Awesome were taken.
+- Honey, this is...
+- Exactly what we needed.
+- Yes.
+- ♪
+- (footsteps) (g*n cocking)
+- It took you long enough to find me.
+- So this is where we come in our darkest hours.
+- Iran-Contra, Nicaragua.
+- The Clinton years.
+- A group inside the CIA is conspiring to destroy Chuck.
+- Who's behind it?
+- I don't know.
+- I need one of the conspirators.
+- In the meantime, I'm doing everything I can to help Chuck and Sarah from here.
+- But they're being hunted as we speak.
+- And so is their family.
+- (laughter)
+- Captain: This is totally great.
+- This car is so rad, babe.
+- Where we going, anyway?
+- Well, I don't know, Sixer, you tell me.
+- Whoa!
+- (tires squealing)
+- You, uh, you sure your driver has his livery license?
+- My driver? This is your surprise.
+- My surprise?
+- My surprise was a bottle of Sangiovese at the restaurant.
+- Honey, are you telling me that neither one of us booked this car?
+- There must be some mistake. We just have to talk to him.
+- No, no, no, no, don't do that.
+- What? Why?
+- Because Project Eagle, the limo, what if... what if we open that thing and he sh**t us?
+- I've seen it in movies.
+- Babe, what if we're on a real spy mission?
+- Martini! Martini!
+- Please tell me you're not about to do something foolish.
+- Me, foolish? No.
+- This is just me preparing.
+- This is the gear that I need to get Chuck's pants without being seen by those very large, very scary agents who are waiting outside for us.
+- And how exactly are you planning on doing that?
+- That's the easy part.
+- See, I hop out the side window and I climb up onto the roof and I sh**t a cord over to Chuck and Sarah's place.
+- I zip line across, I sneak into the back patio, grab Chuck's pants. In and out.
+- Never even being seen. Easy.
+- At least it was when I had a computer in my brain.
+- That is crazy.
+- Not only are you going to get caught, but you'll probably break your neck.
+- Oh, thanks.
+- Look, I know I was a jerk, and I know that you're mad at me, and I deserve that, okay?
+- I've made many, many poor decisions.
+- This is not one of them, okay?
+- I have to help my friend.
+- Morgan, wait.
+- I have a better idea.
+- (voice breaking): Hi. Yes, I'd like to report an emergency.
+- Yeah, my crazy ex-boyfriend's outside my house.
+- And I think that he might do something really dangerous.
+- Yeah, that's right. Okay, he's, uh, six-feet tall and he has blond hair and he's wearing a black suit.
+- Could you hurry please? Because I'm really, really scared.
+- Thank you.
+- There. Okay, so as soon as you hear the sirens, just go.
+- I think I bought you about ten minutes maybe.
+- That was-- diabolical.
+- Ellie: Honey, we have to form a plan.
+- Babe, deep breath.
+- It's going to be okay. I have an idea.
+- Okay, I'm listening.
+- All right... We need to dive out of the car.
+- We'll be fine.
+- All we need is a sturdy combat roll.
+- I can't do it.
+- Of course you can.
+- You have done way harder things.
+- You need to just open the door and roll out.
+- Devon, you don't understand, okay?
+- I went to Agent Provocateur and I got an outfit, and the panties were optional and I didn't opt to wear them.
+- Really?
+- Surprise.
+- Whoa.
+- Casey, Casey, finally.
+- Look, we got big problems.
+- I think Ellie and Awesome were abducted.
+- Yeah, I know.
+- You know?
+- Yeah, they were taken by Beckman's men.
+- Don't worry, she's helping us.
+- Oh, thank God.
+- Listen, we have to get her agent on the phone, okay?
+- Ellie and Awesome are probably freaking out.
+- I'm going to meet up with the car and bring them to Beckman myself.
+- Roger that.
+- (phone ringing)
+- Yes, General?
+- What kind of lingerie was it again?
+- Devon, concentrate!
+- Okay. Babe, babe, the car's slowing down.
+- We can do this. Just like Chuck and Sarah.
+- Tuck and roll.
+- Okay, ready?
+- Ready.
+- No peeking.
+- One...
+- Two...
+- Three!
+- Babe, babe, are you okay?
+- Yeah, yeah.
+- We got to get out of here.
+- (alarm chiming)
+- General, we may have a problem.
+- See, they're safe with Beckman's men.
+- Nothing to worry about.
+- I'll track them down, and then I'll call you back.
+- Looks like you lost your passengers.
+- Robyn, what are you doing here?
+- Oh, Simms.
+- (silenced g*n)
+- I think we lost him.
+- Yeah, for now.
+- Oh, God!
+- Mr. and Mrs. Bartowski.
+- No, there's a mistake, okay? We're the Woodcombs.
+- Chuck's my brother, though. Who are you?
+- Robyn Cunnings, Special Agent with the CIA.
+- Somebody's after you.
+- But don't worry, I work with your brother.
+- You work with Chuck? W-Where's Chuck?
+- He's on his way, but I was closer, so he sent me to get you.
+- Please, you have to come with us immediately.
+- I'm here to help.
+- Captain: Okay. Let's go.
+- Who is that?
+- Sarah, where are they?
+- Captain: Thank you.
+- No, thank you, Mr. Woodcomb.
+- It's now or never, Morgan.
+- Move like the wind.
+- (garbled radio transmissions)
+- The coded message we found was from Decker's men.
+- They were following Ellie and Awesome the whole time, mistaking them for us.
+- Beckman: And they sh*t Simms to cover their tracks.
+- We have to find whoever is in charge and put a stop to this.
+- If they think Ellie and Awesome know anything about the Omen, they'll torture them for sure.
+- What are we doing just sitting here then?
+- What's the plan?
+- I'm sorry, Chuck.
+- But for now, we wait.
+- They'll call to set up a meet.
+- How can we just wait?
+- Ellie and Awesome are probably having their fingernails ripped out of their hands as we speak.
+- (Captain groaning)
+- (chair humming, Captain groans)
+- (laughs)
+- Babe, it's like a real masseuse.
+- I can literally feel her fingers on my spine.
+- Or his or whoever's, but, you know...
+- Oh, we got to get one of these in the living room.
+- Sounds great.
+- Mr. and Mrs. Woodcomb, again, I'm so sorry for the inconvenience.
+- Your brother will be here soon to pick you up.
+- In the meantime, I hope these accommodations will suffice.
+- We reserve this room only for the most regarded of spies.
+- Can I offer you anything to drink?
+- A soda pop?
+- Some water perhaps?
+- Actually, we-we were on a date tonight.
+- So some wine, if possible.
+- Sangiovese, perhaps?
+- It would be my pleasure.
+- Bring that insufferable woman a bottle of wine and get me Chuck Bartowski on the phone.
+- (phone vibrating)
+- Oh.
+- Ellie, thank God.
+- Robyn: Lovely sister you have.
+- Husband's not so bad, either.
+- Can't say I'm fond of them long-term, though.
+- You listen to me. I don't know who the hell you are, but if you touch one hair on my sister's head...
+- Come on, Chuck, spare us both.
+- They're comfortable for now, and I prefer it stay that way.
+- But if things get complicated, I can't guarantee their safety.
+- Let me tell you how this is gonna work.
+- What'd they say?
+- We have three hours to deliver the Omen... or they k*ll Ellie and Awesome.
+- Mm, they're bluffing.
+- We need to start making a fake to deliver right away.
+- No. A fake? What if they figure out it's a fake?
+- I know you're scared, Chuck, but we just can't hand over a w*apon.
+- Casey: It's bigger than us, Bartowski.
+- It's national security.
+- Look, I promise that we will take every precaution.
+- I will not let them do anything to your sister.
+- You guys are the pros.
+- You know what you're doing.
+- So... let's go with the fake.
+- Hey.
+- Look, I know you're concerned.
+- Talk to me. I'm scared, Sarah.
+- This is a mistake, this whole plan is a mistake.
+- Giving them a fake virus is a mistake.
+- Ellie and Awesome are in danger, and we need to give them the real virus in order to get them back.
+- And I-I think I have to do it alone.
+- No, you don't have to do it alone.
+- There are people here who are with you.
+- I'm with you, and I happen to think you're right.
+- This is my curse, Sarah.
+- Don't you understand?
+- The people I love are in danger, it's my fault, I need to fix it. Forget about the curse.
+- I'm gonna go out there, I'm gonna talk to Casey and Beckman, convince them that your plan is the right thing to do, and then we'll go together.
+- You heard them.
+- Th-They're never gonna be on board with this.
+- Trust me.
+- I will talk to them.
+- And what if they say no?
+- It's gonna take some time, okay?
+- Okay, fine.
+- I'll wait right here.
+- Okay, good.
+- Honey, I can't find my phone.
+- Probably just fell out when we, when we rolled out of the car, babe.
+- Yeah, you're probably right.
+- Hey.
+- I'm sorry, there was no Sangiovese.
+- But, uh, I managed to rustle up some Chardonnay.
+- My apologies if it's not that good.
+- It's only a 2009.
+- No worries, bro.
+- This'll be fine.
+- Hardly.
+- I forgot the ice.
+- Oh, but we did find this in the car.
+- Oh.
+- Thank you.
+- See, babe?
+- All's well that ends well, huh?
+- Right? (chuckles)
+- Anyway, I'll go get the ice.
+- Okay.
+- What the hell are you doing? !
+- They're gonna k*ll us.
+- What are you talking about?
+- He just brought us wine.
+- No, no. Okay, I've been in this situation before.
+- The CIA doesn't bring you wine.
+- Look, they stole my phone and they called Chuck with it.
+- So it's clearly some sort of ransom situation.
+- I don't know.
+- We got to find another way to get out of here.
+- General, I think we're making a mistake.
+- Ellie and Awesome are not spies, they're civilians.
+- We know what this group is capable of.
+- Suppose a fake could put them over the edge.
+- They're savages-- reckless and single-minded.
+- I think we need to support Chuck.
+- This is his family, and it's my family, too, now, and we need to do everything we can to protect them.
+- Let's get the Omen and find Chuck.
+- (doorbell buzzes)
+- Boss, I think you need to look at this.
+- (doorbell buzzes)
+- Hi there.
+- It's me, Chuck Bartowski.
+- From the phone call.
+- Right on time.
+- Well, hand over the Omen.
+- You didn't think I was actually dumb enough to bring it in here with me, did you?
+- It's hidden.
+- Release my family or you can spend the rest of your lives searching for a virus you're never going to find.
+- Follow me.
+- What the hell?
+- How did this happen? !
+- I guess you've never met my sister.
+- Upstairs clear.
+- No sign of the Woodcombs.
+- Man: Copy that.
+- Orders are sh**t to k*ll on sight.
+- This is really hard-core.
+- I told you.
+- I'm not giving you anything until I know my sister and her husband are safe.
+- (scoffs)
+- You're not exactly in a position to bargain now, are you?
+- There's something I'm known for, Chuck.
+- Some people call it torture.
+- I like to think of it as more of an art form.
+- You're going to give me exactly what I want.
+- And I'm very, very good at this.
+- Ellie: Honey, Chuck came to save us.
+- He's in trouble, babe.
+- We have to help him.
+- We can't just go down there.
+- We need, we need a tactical advantage.
+- I can handle anything you throw at me.
+- (clicking tongue)
+- They always say that.
+- So sad.
+- Bring out the Toy.
+- Whoa, whoa.
+- R-Really? Really?
+- That's the Toy?
+- I don't think children should be involved with that device in any way, shape or form.
+- Ellie: It looks like all the lits are hooked up to that electrical panel.
+- If we can get that guard away, we can short the circuits, cause a blackout.
+- That's genius, babe.
+- Okay, okay, you cause the distraction, I'll blow the power and I'll go grab Chuck.
+- We can do this, honey.
+- Like real spies.
+- Babe, right now we are real spies.
+- Do you ever cry, Chuck?
+- Sometimes.
+- Particularly during sports movies.
+- Field of Dreams is just-- it's gut-wrenching but also uplifting.
+- A good cry is cathartic.
+- (machine starts)
+- I need a piece of metal, something to short the fuse.
+- Oh. Here, here.
+- But you can't just jam that piece of metal in the circuit breaker.
+- You're gonna burn your hands.
+- You're right, you're right.
+- I need something to insulate it.
+- Here, shirt, shirt.
+- Oh, you look hot.
+- So do you.
+- I love you.
+- (machine humming)
+- One last chance.
+- Omen... or pain?
+- The Omen?
+- Or pain?
+- Shouldn't there be a third option?
+- (sighs)
+- What are you doing?
+- Who? Me?
+- Where's your shirt?
+- It's kind of a long story.
+- Let me tell you the short one.
+- This is going to be very, very painful.
+- Here we go.
+- (g*n cocking)
+- Sorry, Chuck.
+- There's usually a backup generator.
+- Oh.
+- Just FYI.
+- Oh, my God.
+- Sarah: I can't believe he'd do the drop on his own, without me.
+- He thinks it's the Bartowski Curse-- that he can somehow protect me by leaving me behind-- and instead, he's walking into a trap.
+- Let's just hope he's smart.
+- If he gives up the Omen, they're all dead.
+- Chuck: Hey, thanks for trying to save me, by the way.
+- I... I really do appreciate it. No sweat, man.
+- It just kind of seemed like the right thing to do, you know.
+- Are you done?
+- (electrical crackling)
+- Tell me where you hid the Omen, or I permanently change this man's face.
+- Not the face.
+- No.
+- Out the front door.
+- It's out the front door. It's 30 paces south, buried under the yellow rosebush just to the right.
+- You're joking.
+- You're not joking.
+- (clang)
+- (silenced g*n)
+- (gasping)
+- Oh, my God! Thank you!
+- It's going to be okay.
+- Rescuing Bartowskis is our business.
+- Robyn: I'm a little upset I didn't get to use the Toy.
+- It's truly my favorite part.
+- Why are you doing this? Do you have any idea how much damage that virus will cause?
+- In truth, Chuck, the virus is just a piece of the plan.
+- What do you mean?
+- Means I don't know.
+- I'm just doing my job, cleaning up Decker's mess.
+- I release the virus, and then I'm done.
+- What happens now?
+- That's the real surprise, isn't it?
+- You've pissed off a lot of powerful people, Chuck.
+- There.
+- The Omen is officially unleashed upon the world.
+- I'm sorry, Mr. Woodcomb.
+- I'm afraid I don't need you anymore.
+- You still don't know who you're dealing with, do you?
+- Right now, there's a spy in your midst, and she's going to take you and all your men down to save her husband.
+- Your sister? The doctor?
+- (clanging)
+- Are you kidding me?
+- Again?
+- (rapid g*n)
+- Casey: All clear.
+- Sarah: All clear.
+- Put down the g*n.
+- Now.
+- Walker. Casey.
+- I give up.
+- Robyn Cunnings.
+- You don't get off that easy.
+- Safe. Come on out.
+- Chuck?
+- Devon, honey, are you okay?
+- Are you okay?
+- Yeah, yeah, I'm good.
+- I'm good.
+- I'm just really cold.
+- Ellie: I love you. I love you.
+- We are so not meant to be spies.
+- Don't worry. I'm fine, too. Really.
+- I love you... so much.
+- You're upset. I can see you're upset.
+- This isn't over.
+- Hey, Sarah.
+- Guys?
+- I'm still... I'm still...
+- I'm still tied. I'm still bound.
+- Little help.
+- Looks like we found the conspirator.
+- You're going to tell me everything, Robyn.
+- What exactly the plan is.
+- Who you're working for. All of it.
+- I have nothing to say to you.
+- You're not my general.
+- You know, we found something interesting at the factory.
+- I'm very excited to see how it works.
+- I believe you call it the Toy.
+- (high-pitched whirring)
+- (electrical crackling)
+- Robyn has confessed to the conspiracy.
+- I am happy to say, on behalf of the U. S. government, all charges against this team have been dropped.
+- Oh, and Casey, your record shall be expunged.
+- You're free to go home.
+- General, that's all fantastic news, uh, but what about the Omen virus?
+- And who did Robyn work for?
+- Robyn didn't know, but we have our top people working on the virus.
+- For now... well done, team.
+- It was a bit like old times, wasn't it?
+- So... no living on the lam, running from the law.
+- Sounded a little romantic, didn't it?
+- You're still mad.
+- You left without me.
+- I'm sorry, Sarah.
+- I'm sorry.
+- Okay? It was stupid. But I didn't want to take you down with me and my family's curse.
+- There is no curse.
+- You're not your father, Chuck.
+- You're not fated to be alone or to hurt anybody.
+- Those things happen because of the choices that people make.
+- That you make.
+- You're right.
+- I'll never do it again, leave without you.
+- The Bartowski Family Curse ends here, and-and-and not with me; with us.
+- If you ever go out alone again, just remember, I'm a trained assassin.
+- Noted.
+- Good.
+- You wouldn't sh**t me, would you?
+- Morgan: Yeah?
+- Great news, man.
+- The agents are dispersing.
+- I wonder what's going on.
+- Yep. You got it, Chuck.
+- Mission aborted.
+- I'll see you soon. Okay.
+- Great news-- we're not on the lam anymore.
+- We don't even need Chuck's PANTS box.
+- That's great.
+- But you just got it.
+- Yeah. It's all right. I'll sh**t over to the apartment, and I'll put it back.
+- It's not a problem. Just got to ask-- what's in Chuck's PANTS?
+- No, no, no, no.
+- Not allowed.
+- Here's something I can show you, however.
+- (sighs) I want you to have this.
+- You know, in case something terrible has happened.
+- You keep an eye on it.
+- Last night was nuts, huh?
+- Yeah. Crazy.
+- It was crazy. It was.
+- But despite all the craziness, kind of a nice date.
+- Morgan... that was not a date.
+- Yeah, no, well, not in the conventional sense.
+- You're right.
+- I should go.
+- Okay, I'll go. Okay.
+- Okay.
+- Um... thank you for everything.
+- Yes. You, too.
+- All right.
+- (sighs)
+- I know that I am supposed to be tired and a little freaked out, but last night was...
+- Kind of incredible.
+- Yeah.
+- When you cracked that baddie over the head with the bottle, that was pretty hot.
+- I was going to say the same thing when you took out that electrical panel.
+- What were you saying earlier about Agent Provocateur?
+- So all's forgiven?
+- Maybe.
+- Okay, fine.
+- All's forgiven.
+- Oh, something's wrong with the computer.
+- (rapid electronic trilling)
+- You mean all the computers.
+- What is going on?
+- Sarah, it's the Omen virus.
+- It's affecting our entire system.
+- It's not just our system.
+- That is the Internet. That is everybody.
+- Oh, my God. This is all my fault.
+- I let it out, and now the code is digging in.
+- It's... it's hiding in every networked computer in the world-- just waiting.
+- Waiting for what?
+- I don't know.
+- (static droning)

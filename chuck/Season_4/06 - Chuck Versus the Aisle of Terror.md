@@ -1,0 +1,722 @@
+# Chuck Versus the Aisle of Terror
+
+- Chuck: I'm Chuck. Here's a couple things you need to know or maybe forgot.
+- I have to find the truth, Morgan. Why my mom left and never came back.
+- This is my search.
+- This is all I could find.
+- Chuck: I thought she was a prisoner that needed to be saved.
+- Then I come of find out she's just one of the bad guys.
+- [RINGS]
+- Hello.
+- Mary: Hello, Chuck?
+- It's your mother.
+- What are you doing back here? This is a secured area.
+- Oh. Oh, I'm... I'm sorry. I was just looking for the, uh, fitness center.
+- I'll just be on my way, then.
+- You're not going anywhere.
+- Show me your security ID.
+- No need to be rough, I...
+- [GASPING]
+- [YELLS]
+- What is this?
+- I see your hands are shaking.
+- [DISTORTED] That means the toxin is taking effect.
+- It's flooding your brain now... turning your entire consciousness into one gigantic nightmare.
+- The only difference, this nightmare you never wake up from.
+- [GROWLS]
+- [YELLING]
+- As you can see, my toxin is fully functional.
+- Impressive, isn't it?
+- Mary: Very impressive, Dr. Wheelwright.
+- I believe I have a buyer in Los Angeles who will be very interested in this.
+- [RINGING]
+- Hello.
+- Mary: Hello, Chuck. It's your mother.
+- I want to see you, in person.
+- Is this a joke?
+- Mary: Griffith Park. One hour.
+- Is this... Is this a joke, Mom?
+- You have any idea how long I've been looking for you... these last couple of months? Where have you been since I was 9?
+- Mary: Chuck, now is not the time. Just meet me.
+- Tell no one. Come alone.
+- Okay, bye.
+- Hey. Ellie's putting out dessert.
+- If you don't come in soon, I'm gonna eat yours and blame it on Morgan.
+- What's the matter? You look like you've seen a ghost.
+- I just talked to one.
+- [COYOTE HOWLS]
+- [CELL PHONE RINGING]
+- Had a feeling you wouldn't show up. I guess I should have expected it.
+- MARY [OVER PHONE]: Look to your 3 o'clock.
+- I had to make sure you came alone.
+- I did everything you asked. Why all the secrecy?
+- You've been working for Volkoff. Afraid the bad guys will see you with your son?
+- Oh, it's much more complicated than that, Chuck.
+- Meet me at the playground.
+- Uh...
+- You just hate saying goodbye like a normal person, don't you?
+- Okay, Chuck, I'm in position.
+- [g*n COCKS]
+- And who are you?
+- Wow.
+- I didn't even hear a twig snap.
+- You must have been doing this for a long time.
+- You're calling me old?
+- Not old.
+- Just slow.
+- Government-issued sidearm.
+- What are you? CIA? FBI?
+- My story is not as interesting as yours, so we'll start with you first.
+- Why did Volkoff send you here?
+- Oh, jumping to conclusions, are we?
+- Oh, I think my conclusions are pretty justified.
+- I am here because I need to see...
+- Hey, whoa, whoa. Hey, hey, hey.
+- Hey there. How you guys doing?
+- You brought someone. I told you to come alone.
+- No, no, no, technically not just someone, okay?
+- Mom, this is my girlfriend, Sarah.
+- Sarah, this is my mom, Mary.
+- I don't know how to say this exactly, but please don't k*ll each other.
+- Great, great, see? I can see the connection already.
+- BFF Facebook buddies.
+- I'll shut up now.
+- Did you think he wouldn't come alone?
+- I thought maybe he would trust me.
+- Okay, considering that you left me when I was, oh, I don't know, 9 years old... and I don't know if you're good or bad, I have every right to have... a mother issue or two right now.
+- You're right.
+- You are absolutely right.
+- Thank you. No sh**ting necessary, none whatsoever.
+- Great, good. Here we go, fully hanging out.
+- What should we do? Sit down?
+- I know a wonderful bakery...
+- Chuck.
+- Or we could just hang out here in a creepy dark playground.
+- Where to start? Ooh, ooh, I know.
+- I got a story. Tenth birthday. You haven't even heard this one.
+- I ate so much chocolate cake, frosting came out my nose.
+- I could smell it for a year after.
+- Chuck, Chuck, stop.
+- I don't wanna know anything about you.
+- Excuse me?
+- I am deep undercover in the Volkoff organization.
+- And if my cover is blown, they will torture me for secrets.
+- I don't wanna know about you or your sister that could put you in danger.
+- So just leave it at that.
+- You're undercover?
+- That's funny because we didn't find any files on you in the CIA database.
+- No, you wouldn't.
+- When I went undercover, my records were expunged.
+- That's convenient.
+- Then how do we know that you're not making this up?
+- Because I brought you this.
+- Atroxium, a nerve gas that causes extreme terror in its v*ctim... and within minutes drives them completely insane.
+- The scientist, Wheelwright, who created it... wants to meet Volkoff's most trusted w*apon buyer.
+- Chuck, I need you to pose as that buyer.
+- Atroxium is dangerous, far too dangerous to be on the open market.
+- One warhead of this could debilitate an entire army.
+- I had to break cover so that I could make sure that the CIA gets hold of this.
+- Okay, fine. Why me?
+- Because I thought I could trust you.
+- Just say you flashed on him.
+- That I... ? I'm sorry, what? You know about the Intersect?
+- I may not know anything about you... but I know everything there is to know about Charles Carmichael.
+- [SIRENS WAILING NEARBY]
+- We're done here.
+- Set up the meet.
+- I'll make sure the CIA gets the nerve gas.
+- Goodbye, Chuck.
+- Goodbye.
+- [WOMAN SCREAMING ON TV]
+- Hello. Welcome to the Buy More.
+- Stop by this weekend and check out our Halloween Haunted House Spectacular.
+- It's gonna be scary. I mean, good scary, like pumpkins and ghosts.
+- Not bad scary, like w*r and bears. You know, because I find...
+- Oh, good day, sir. Welcome to the Buy More.
+- Coming in hot today, aren't you?
+- Ah, it's tough.
+- Once I turn on the charisma, I can't turn it off. It's my curse.
+- Listen, that little incident in Iran showed me something.
+- You're either exceptionally smart or incredibly stupid.
+- My father used to say the same thing. Without the "smart" part.
+- Anyway, the whole situation has me thinking that maybe... you do have something to offer as a spy.
+- This is what I've been telling you.
+- Come on, Bartowski has something to show us down in the Castle.
+- Thanks.
+- Sarah, you know I have a huge blind spot with my mom.
+- I mean, are we crazy for doing this? Should we even be getting involved?
+- I know that you've been looking for answers about your mom.
+- And we're gonna find some, okay?
+- We just have to be very cautious.
+- Thank you.
+- Just got your message.
+- What's happening?
+- Good, you're all here.
+- Bartowski, your flash on Wheelwright was 100 percent correct.
+- He is currently in Los Angeles to sell the Atroxium...
+- I'm sorry, what is Grimes doing here?
+- Oh, uh, he's with me. I felt he could be of some use to the team.
+- Is that right?
+- Yeah.
+- Apparently, I'm quite the hot commodity in the spy world.
+- Morgan Grimes, not just for the ladies anymore. Ha, ha.
+- Silence.
+- Of course.
+- Good. Now we need to focus.
+- Atroxium is extremely dangerous.
+- Uh, general, Sarah and I were discussing a plan.
+- Um, if I pose as the buyer, not only would I be able to get the Atroxium off the market... I could also flash on any Volkoff operatives involved.
+- So it's, uh, it's a win-win.
+- Very impressive, Bartowski. We'll set up the meet.
+- Good work, Chuck.
+- Mm.
+- I smell a rat.
+- I found her. I found my mom.
+- What? You found your mom?
+- That's fantastic, dude. I am so happy for you.
+- Thanks, man. I still can't believe it.
+- When? Where?
+- She came to me with the Wheelwright info.
+- Chuck, your mother works for Volkoff.
+- Which is her cover, Casey.
+- Chuck: She's legit.
+- Better run it by Beckman.
+- I've checked and it's a dead end.
+- Her CIA credentials were erased to protect her cover.
+- Chuck: We have to keep this to ourselves.
+- If Beckman goes digging, she could put my mom in danger. Just trust me on this.
+- Devon, your two little ladies are home.
+- Hey, babe.
+- Little babe. How are you doing, huh?
+- Ha, ha.
+- We rushed home early so we could get a few moments of peace... before your mother makes my life a living...
+- Hello.
+- Heaven. Ha, ha, it's just a heavenly visit every time she's here.
+- Ellie.
+- Hi, Honey.
+- It's good to see you. What were you doing back there?
+- Oh, uh, just a little dusting.
+- We have to keep this place clean for my little granddaughter-to-be.
+- So I just thought I'd try tidying up a bit.
+- As a surprise.
+- Surprise.
+- Mom has another surprise for us too.
+- What?
+- She canceled the room we booked for her at the W.
+- She's spending the week with us.
+- The whole week?
+- That's... That's great.
+- I know, I can't believe it either.
+- Oh, here, let me take that from you.
+- Okay.
+- Okay. Are you sure you're okay with this?
+- Because if not, I can bite the b*llet and I can ask her to stay at the hotel.
+- Uh...
+- Mm, no, you don't have to do that. She should stay.
+- You sure?
+- Yeah, yeah.
+- I felt the baby kick on the way home.
+- Oh, my God, really?
+- Yeah. It's starting to feel so real, you know?
+- I'm gonna be a mom.
+- Mm-hm.
+- I don't know how to be a mom.
+- Of course you do.
+- Your mother and I aren't best friends, but it might be nice to have her around.
+- I could use a little motherly advice.
+- I'll go make up the guestroom.
+- Okay.
+- [DEVON CHUCKLES]
+- I could stay at the W.
+- You wanted to see me, boss?
+- One second, buddy.
+- Everything okay?
+- Just, uh... a bit overwhelmed right now, you know?
+- Work stuff, and, uh, I promised Chuck that I would help him with something.
+- Can I ask you a question? How do you do it?
+- Balance the Buy More and your life... ?
+- Son.
+- In my 12 and a half weeks at the El g*n School of Finance... I learned one very important word: Delegate.
+- That word is the key to being a successful manager.
+- There's even a catchy phrase for when you got too much to do.
+- Get it off your plate, give it to other people.
+- What you mean to say is get it off your plate, delegate.
+- No, I do not.
+- You are not a rhyming monkey, you are a manager.
+- You're right. Of course. You're absolutely right.
+- And thank you for the offer.
+- I would love for you to dress the Buy More for Halloween.
+- Ha, ha, Lord, no, I do not have time for that. I'm knee-deep in this Danielle Steel novel.
+- Anyway, Big Mike isn't nearly scary enough to build a haunted house.
+- You need to put some real crazies on that.
+- [CASCADA'S "EVACUATE THE DANCEFLOOR" PLAYING ON TV]
+- Turn up the music Let's get out on the floor Watch me getting physical Out of control If you want it done correctly.
+- Good afternoon, Mr. Carmichael. I'll show you to your table.
+- That would be perfect, thank you.
+- We just got word that Wheelwright is en route.
+- Remember, cool, calm and collected. You're Volkoff's top w*apon buyer.
+- Just one question.
+- Can we get one of those hostess outfits for back home?
+- Focus, Bartowski. Grown-ups are trying to work here.
+- Morgan: So sorry I'm late.
+- You weren't here already?
+- Ha, ha. Nice, I love our little give-and-take.
+- Classic Ross and Rachel.
+- Okay, what can I do to help?
+- Grimes.
+- Yeah?
+- A good spy is trained in the art of silence.
+- Silence. Got it.
+- Chuck, don't fill up on bread, you'll ruin your appetite.
+- Sorry, Chuck...
+- No.
+- Target is approaching. Give the signal.
+- Ahem. Uh, Mr. Carmichael?
+- Please, sit. Make yourself comfortable.
+- So, um... do we talk price?
+- Dr. Wheelwright, relax.
+- I'm about to make you a very, very rich man.
+- Would you care for a drink to calm the nerves?
+- Toasting already?
+- What's going on there, Walker?
+- That's Chuck's mother.
+- Casey: What's she doing there?
+- You must be Mr. Carmichael.
+- Chuck, remember, keep your cover and make the deal.
+- Chuck: I am Mr. Carmichael.
+- And who might you be?
+- I work for Volkoff. It's my job to ensure a smooth transaction.
+- Smooth? Smooth? Is that right?
+- Well, this transaction couldn't be going smoother.
+- It is chock-full of smoothness.
+- Yes, the, uh, transaction was progressing just fine.
+- Well, it may appear that way.
+- But sometimes appearances don't tell the whole story.
+- I've done some digging on Mr. Carmichael here... and unfortunately his story doesn't check out.
+- It's a CIA trap. He's a spy.
+- What?
+- Man down, man down. Walker, get in there.
+- [PEOPLE SCREAMING]
+- Oh, holy...
+- Chuck, you okay? Chuck?
+- Chuck?
+- [GASPS]
+- [COUGHING]
+- Chuck, you okay?
+- Sarah.
+- My mom sh*t me.
+- My heart hurts.
+- I know. I can't believe your mom betrayed you.
+- No, my heart actually hurts. She sh*t me in the heart area.
+- Oh, okay, here.
+- Thank you.
+- Ah.
+- Oh, I'm such an idiot, Sarah.
+- After everything I knew about my mom, everything I learned... I still trusted her anyway. That's really great spy work.
+- You know, Chuck, even in the spy world, where everything is run by deceit... you still manage to somehow genuinely trust people.
+- You know what? That's what I love about you.
+- That's what you love about me, huh? Not my dashing good looks?
+- Or the giant computer in my brain?
+- And you're funny even if your mom has sh*t you in the heart.
+- So two fugitives and a dangerous w*apon on the loose. Go team.
+- We could go back to the restaurant, see if they left any clues behind.
+- No, no, no, we got this, dude.
+- You just got sh*t by your mom, okay? Take a break.
+- Have a little Chuck time.
+- Yeah, maybe you're right.
+- Maybe I should.
+- [CELL PHONE RINGS]
+- Sorry.
+- Spy work or the Buy More?
+- Nah.
+- Huh.
+- [GROANS]
+- I don't know. What about there?
+- And then it could come swinging and screaming at everybody.
+- Oh, Morgo, hey.
+- Um, listen, we have a few questions regarding these Halloween decorations.
+- Um, what are we allowed to show?
+- What do you mean?
+- I know a really good morgue that gives discounts on unclaimed merchandise.
+- Mm-hm.
+- We could sprinkle some dead ones in here.
+- Right. I'm gonna say no on the dead bodies.
+- So, what, I just lose my deposit?
+- Shh.
+- Okay, look, here's the thing.
+- I put you in charge so I can get it off my plate.
+- So you're gonna have to figure it out for me.
+- Make it big, make it fun, but most importantly, let's make it scary, okay?
+- Lester: Hmm.
+- Morgan's right.
+- We gotta tap into a place that is so scary, so demented... that it'll change Halloween as we know it.
+- We gotta tap... into your head.
+- Okay.
+- Yeah, you gotta start using conditioner. Your hair feels like hay.
+- Hey, Steve.
+- [CAR ACCELERATES]
+- Get in.
+- Are you crazy?
+- You know, I didn't think you could top abandoning me for the last 20 years.
+- And then you sh*t me.
+- And I will do it again if you don't get in this car right now.
+- [CELL PHONE BEEPS]
+- Sarah: That's every bus-station, subway and traffic-light camera... within a mile of the restaurant.
+- And we have no lead on where Wheelwright and Chuck's mom fled to.
+- Come on. What rock are you two hiding under?
+- Chuck just activated his tracking device.
+- Mom, you hit one pothole, and this ride gets very messy very quick.
+- Oh, I'm sorry. I have to keep up appearances.
+- Oh. Oh, is that all? What the heck is going on here? This is crazy.
+- Chuck, when I left you and Ellie... I was embedded into a secret operation called Project !sis.
+- My mission was to destroy the Volkoff organization from within.
+- But I got in way too deep... and I was forced to close the door on my old life.
+- But then you came looking for me, and that set off the alarm bells.
+- Right. So you sh*t me?
+- I knew you were wearing a vest.
+- Volkoff was tapped into the security footage at the café.
+- So he thinks that Charles Carmichael is dead... and that means you and Ellie are safe.
+- You did this to protect me and Ellie?
+- Chuck, you and your sister are, and always have been, my only concern.
+- Not being in your lives has pained me more than you could ever imagine.
+- But you had a mission.
+- [SIGHS]
+- [TIRES SQUEAL]
+- I constantly relive that day when I walked out the door.
+- Over and over.
+- And I want you to know that if I could do it over again... I never would have left.
+- I would still be there, with my family.
+- But that's all in the past.
+- So come with me.
+- Because I never got you a present for your 10th birthday.
+- Come on.
+- Follow me.
+- See, I knew that if I sh*t you, Wheelwright might panic... and try to unload the w*apon on his own.
+- But Atroxium is far too dangerous, so I just went ahead and handled it.
+- Handle? How did you handle it exactly?
+- This is Wheelwright's mobile lab.
+- He's tranqed up inside, and the Atroxium's ready for extraction.
+- And, Chuck, sorry I sh*t you.
+- Hey, it's okay. No harm, no foul.
+- [SIRENS WAILING NEARBY]
+- Mom...
+- I know.
+- You activated your tracking device when you got in the car.
+- Good boy.
+- Okay, come on. Chuck's signal is coming from in there.
+- Agents will be here any second.
+- You're gonna vanish for good now?
+- I did what I came here to do.
+- And now you and Ellie are safe, and I've got to go back undercover.
+- Okay, okay, fine. But, listen, before you disappear, please go and talk to Ellie.
+- Just for a second. Just tell her what you told me about why you left us.
+- Sarah: Two hundred meters.
+- [TRACKING DEVICE BEEPING]
+- I'm sorry.
+- I'm sorry, Chuck.
+- Mom, Ellie's pregnant.
+- She's pregnant and you're going to be a grandmother.
+- We're getting closer, 80 meters.
+- Oh.
+- [BANGING]
+- Chuck, how'd you get here?
+- My mom dropped me off.
+- Well, she may be a bad mom, but she makes a great spy, right?
+- Either way, I guess it doesn't matter. She's gone.
+- You okay?
+- Yeah.
+- I'm just wondering what to tell my sister.
+- Do I casually drop that Mom came back to town to sh**t me in the chest... and hand over a deadly chemical w*apon?
+- Well, I know that you'll figure out the exact right thing to say.
+- WOMAN [ON MONITOR]: Excuse me.
+- Lucky for me, I know the foremost authority on all things Ellie Bartowski.
+- I'll be right back.
+- You save some of that fun for me.
+- I will.
+- I don't trust her. If Bartowski's mom works for the good guys, why disappear?
+- I don't know, but Chuck believes her.
+- Yeah.
+- I know a decommissioned NSA agent who specializes in expunged documents.
+- Unsavory character, but I think he can get us what we need.
+- You want backup?
+- No. I got someone.
+- I knew it. I knew Mrs. B wasn't a bad guy.
+- Bad guys don't make such delicious lemon bars.
+- k*ll brownies too. Look, I need your advice for this, Morg...
+- Hey. Ah.
+- Ow. Ow.
+- What... ? What the... ?
+- Wow. They did it. Jeff and Lester pulled it off. This looks great.
+- Guys, hey, excellent work with the Halloween decorations.
+- The store looks incredible.
+- This garbage?
+- No, no, no, this is just to whet your appetite for the main event.
+- Gentlemen, prepare yourselves for the Aisle of Terror.
+- [RECORDED EVIL LAUGHTER]
+- Prepare to be terrorized.
+- [BAT SCREECHES]
+- Fernando, not now.
+- I mean...
+- [HOWLING]
+- We got the idea from an experiment... that the UCLA Psychology Department did on our friend Jeffrey.
+- Nothing I won't do for $30 and a sandwich.
+- Lester: Um...
+- Or just a sandwich.
+- You see, there's this world-renowned professor, Professor Schofield... who specializes in examining the subconscious of the mentally disturbed.
+- He gets right up in there.
+- Shh.
+- So using Jeffrey and a bunch of other nutbags as test cases... he discovered that there are certain images... that can cause terror in even the most fearless lunatics.
+- Let's do this.
+- Jeff: So now... get ready to see some of the scariest things in the world.
+- Old people.
+- Public showers.
+- What's going on, Chuck?
+- Interspecies relationships.
+- Okay. Well, stop now. Stop.
+- Uh, huh, I'll be honest with you, this might be one of the worst things I've ever seen.
+- One of the best things?
+- I think he said "best. "
+- I don't want any customers in here. Guys, it's scary... but just in a really bad way.
+- I give up. I give up.
+- [BABY GIGGLES]
+- Babies in costume.
+- Really?
+- Is it a baby or is it a snail?
+- I don't know.
+- Good.
+- So, Honey, you have any parenting tips?
+- I mean, Devon turned out so good.
+- I figured you could give me some inside scoop.
+- Well, you know, Devon was amazing right from the start.
+- Really great genes, I guess.
+- I guess. Ha, ha.
+- But don't you worry, this little wonder is already halfway there.
+- [BOTH CHUCKLE]
+- You know, we really have to make sure that this baby... has positive female influences.
+- So I'm here to help.
+- Thanks, Honey.
+- Is this not the most adorable thing you've ever seen?
+- It's adorable.
+- It plays the "Chicken Dance. "
+- ["CHICKEN DANCE" PLAYING]
+- Devon, like this stuffed bear is gonna teach this baby... how to read and write?
+- [CLEARS THROAT]
+- Here. Babies love dictionaries.
+- I'm gonna see if they have an encyclopedia.
+- [SIGHS]
+- Devon: You okay, hon?
+- Ellie: I'm fine.
+- Ha, ha. Your, uh... Your mother might be, uh, a bit much... but underneath it all, she just wants to be a part of the baby's life.
+- It's more than I can say for my mom.
+- Chuck: I've been thinking about my mom.
+- It's weird. The woman I found is nothing like the one from my childhood.
+- You're trying to justify not telling Ellie?
+- Am I that transparent?
+- No.
+- But you don't wanna hurt her.
+- Okay, let's get started on the detonator.
+- [EMITTING HIGH-PITCH TONE]
+- That's not good.
+- Wheelwright. Quick, quick.
+- Why is the device counting down?
+- Oh, that?
+- Well, just a safety measure to protect against tampering.
+- It counts down until I verify that the w*apon is in my possession.
+- Okay, tell us how to turn it off.
+- Well, you'll need this.
+- But why should I help you?
+- Remember, if the device goes off, you'll be exposed.
+- So be a good boy and turn it off.
+- Well played.
+- Get out. Come on.
+- [SIGHS]
+- There, I deactivated the safety check. It shouldn't bother you again.
+- Okay, good. I'll get the handcuffs.
+- Keep him close while we continue to work on this.
+- Yeah, hurry up. Here, you sit.
+- [HIGH-PITCH TONE]
+- Aah! What have you done?
+- Oops.
+- Sarah, get back.
+- [ALARM BUZZING]
+- Chuck, no! Chuck!
+- [GASPS]
+- Your hands are shaking.
+- Unh.
+- That's how it begins.
+- Okay, you exposed both of us?
+- Why? Why would you do that?
+- [DISTORTED] Well, I developed this nerve gas by testing it on myself.
+- It was a long, terrifying process.
+- But after a while, I gave in, surrendered to my insanity.
+- And now I'm not scared of anything, so...
+- What scares you, Chuck? Hmm?
+- [LAUGHS]
+- [YELLS]
+- Everything, everything, everything.
+- Almost everything.
+- [GROWLS]
+- Make it stop. Make it stop. Somebody turn it off.
+- Listen, it's all in your head. You need to fight it.
+- I'm trying, but it's horrible.
+- This is exactly why I don't see scary movies... and I stick mainly to the PG-13 region.
+- Wheelwright: Let's go.
+- [GRUNTING AND PANTING]
+- Come on.
+- If you get me out of here, I will consider taking you to the antitoxin.
+- Anything. Anything you want.
+- Now I'm gonna k*ll that bitch Frost for double-crossing me.
+- No, no, I can't let that happen.
+- [ALARM BUZZING]
+- Did you just lock us in here?
+- Oops.
+- Oh.
+- Look who's the comedian now.
+- Unh!
+- Ha-ha-ha.
+- [PANTING]
+- [SQUAWKS]
+- [LAUGHS MANIACALLY]
+- Chuck.
+- Sarah?
+- [g*n]
+- Wheelwright: It's getting worse. These are your deepest fears.
+- No, please make it stop.
+- Wheelwright: There's no escape.
+- We're both locked in here.
+- Chuck: No, no.
+- Come on, Casey, pick up.
+- Okay, our informant should be here soon to give us that data on Project !sis.
+- This is so cool. "Our informant. " That is so cloak-and-dagger. I love it.
+- What does that make me? The inside man, the mole?
+- You're the magnet.
+- The magnet. I love that, yeah.
+- Spies have such... The coolest names.
+- Okay, what do you need the magnet to do?
+- You already look like a spy.
+- Now all I need you to do is stand here by the Vic and act like one.
+- Yeah?
+- Done.
+- How was that?
+- Wonderful.
+- [PANTING]
+- Boo! Found you.
+- Aah!
+- Oh, look. Aisle of Terror.
+- An unfortunate place for you to be trapped.
+- [CHUCK YELLS]
+- [DISTORTED] Now do you feel like getting us out of here?
+- Aisle of Terror.
+- Images that can cause terror in even the most fearless lunatics.
+- What... ? What the hell is this?
+- Public showers?
+- That's peculiar.
+- It reminds me of Professor Schofield's work.
+- That hack, thought he knew about fear.
+- [BABY GIGGLING]
+- A baby in a snail costume.
+- It is Schofield's work.
+- It's crazy, I...
+- Is it a baby or a snail?
+- No, no. Oh.
+- Old people.
+- Oh.
+- Get it out of my head.
+- Interspecies relations.
+- The terror, the terror. It's all flooding back now.
+- Black licorice.
+- Oh, please.
+- Please make it stop.
+- Chuck: Man feet.
+- Aah!
+- Otters.
+- This can't be happening.
+- Schofield!
+- [GRUNTS]
+- Chuck. Chuck, are you okay? What happened?
+- Sarah, I don't wanna see you like this... so I'm just gonna keep my eyes closed till we get the antidote, okay?
+- Okay, okay, bye.
+- Let's get up, come on.
+- Oh, God.
+- [WHISTLING]
+- Give me your g*n.
+- [g*n COCKS]
+- Uh, no, uh, but it's not a real g*n.
+- It's just a heavily modified paintball p*stol.
+- I know paintball's still dangerous, but what I'm trying to explain... is it's not real.
+- I'll take that folder.
+- Morgan: Casey.
+- Casey, what is going on? Why is there a g*n to my head?
+- I'm the magnet.
+- I'm the magnet for bad guys?
+- Are you kidding me?
+- Come on, man. I can't believe you.
+- I cannot believe you would use me as a human target.
+- What nerve.
+- Grimes.
+- No, I need to finish, and this may sting, but you need to hear it.
+- You, sir, are not very thoughtful, not one bit.
+- I mean, am I alone here?
+- Well...
+- Yeah.
+- Are you agreeing with him?
+- Whose side are you on?
+- Can I go?
+- Yeah, run along.
+- Ugh. Not cool, man. That is just not cool.
+- You did good, Grimes.
+- Really? Thank you.
+- I tried to really kind of sink into the role, you know...
+- Hmm.
+- Oh, I know that "hmm. "
+- Why? What does it say?
+- Chuck's mom's story checks out. She's totally clean.
+- Perfect.
+- Oh, ahem, that was not a fun trip.
+- Thank God we got Wheelwright to give up that antitoxin... before he went completely off the reservation.
+- Thank you, Sarah. You're the greatest partner ever.
+- [CELL PHONE VIBRATES]
+- Mm.
+- Oh, my God.
+- What?
+- My mom, she left a message.
+- She wants to see Ellie tonight before she goes back undercover.
+- I honestly thought Ellie would never see my mom again.
+- Uh, I'll come with you.
+- No, no, no. Hey, I appreciate your concern, Sarah, but trust me.
+- It's my mom.
+- Hey, sis.
+- Brushing up on your vocab, huh?
+- Uh, just trying to get away from Honey for a few minutes.
+- It's ironic, isn't it?
+- The mother that I wish would disappear is here to answer all of my questions.
+- And the mother that I wish I could talk to has disappeared forever.
+- Hey, Ellie, you, uh... You got plans tonight?
+- What's with all the secrecy?
+- Needed to get away from Castle in case Grimes was hanging around.
+- If he knew the truth, he'd go running to his BFF.
+- Everything about Bartowski's mother's life is a fake.
+- Project !sis? It ended 20 years ago when Frost went rogue.
+- So, what, she's a double agent? She's working directly for Volkoff?
+- We should've grabbed her before she dropped off the map again.
+- What? What is it, Walker?
+- So, what do we do when she walks through the door?
+- I... Part of me wants to be reserved, show her I'm an adult... that I've been just fine since she left.
+- The other part of me just wants to hug her.
+- Do whatever feels right.
+- I'll take a look. She might've got lost.
+- Okay.
+- Chuck.
+- [RADIO CHATTER NEARBY]
+- Mom. No!
+- Chuck!
+- Chuck: Stop!
+- No, no! Let her go!
+- Stop! You have no idea what's going on. Your mom isn't the spy you think she is.
+- Sarah?
+- I'm protecting your blind spot.
+- Sarah!
+- Chuck, what is it?
+- Ellie, I'm sorry, but Mom is not coming.
+- Why does she keep doing this to us?
+- Because she's a spy.

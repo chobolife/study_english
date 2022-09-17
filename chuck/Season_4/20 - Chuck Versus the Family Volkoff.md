@@ -1,0 +1,774 @@
+# Chuck Versus the Family Volkoff
+
+- Hi I'm Chuck. Here are a few things, that you might need to know:
+- Wait... Vivian Volkoff is trying to k*ll me?
+- It appears she's going after the man who took down her father.
+- CAPTAIN (on phone): I've got some bad news.
+- Ellie's been working on your dad's computer.
+- My dad was trying to figure out a way to input knowledge into the human brain without having to learn it.
+- Chuck (on phone): Replace the computer's hard drive with a blank one when Ellie's not looking.
+- I'm great Mom, you know?
+- Uh, she's sleeping halfway through the night, now.
+- And Devon has that breast-feeding simulator which is great, so...
+- I'm-I'm fine.
+- You know I love babysitting my granddaughter, but I am a trained spy.
+- What gives?
+- I didn't want to say anything until I had any solid conclusions, but...
+- Is that your father's old computer?
+- Yeah. I found it underneath the seat of his Mustang.
+- I had a major breakthrough a few days ago, and then I found thousands of pages that I've never seen before, all labeled X.
+- How far into them are you?
+- Not very.
+- But there's references in here to you and Dad, and this Agent X.
+- Do you... know anything about this?
+- No. Did you happen to run this by your brother?
+- No. I don't want Chuck involved.
+- I mean, obviously this has to do with Dad's spy life.
+- Look at this.
+- This Intersect project: downloading information into the human brain.
+- This is amazing stuff.
+- I've never heard of it.
+- Do you think that Dad actually had the Intersect up and running with this Agent X?
+- I really don't know, honey.
+- I don't know.
+- (sighs) All right.
+- I'm going to go give Clara her bottle.
+- I'll be back.
+- (whispering): Oh, Stephen, what did you do?
+- Eddard, you don't let your kids keep a direwolf.
+- That's a terrible idea.
+- Are you ready to head out?
+- Hmm? Mm-hmm.
+- Will you sign these when you get a chance?
+- Just wedding prep docs.
+- Mm-hmm.
+- Hmm? "Prospective husband... Prospective wife... "
+- "Legally binding... prenuptial... "
+- Prenup?
+- There's Post-it notes on the signature pages.
+- Just sign and date.
+- I forgot to shower.
+- Why don't you go in, and I'll just get a ride from Morgan. You didn't shower this morning?
+- Just the body. Not the hair.
+- So now I feel dirty, smelly, European.
+- Okay, okay. Um...
+- I will see you there.
+- Great.
+- Morgan: Prenup? Geez...
+- I-I thought things were going so well.
+- It was. Is.
+- She's just taking precautions.
+- You know, half of all marriages go down.
+- ♪
+- Well...
+- It's good to see yours is going so well.
+- Hilarious.
+- But you know what? It works.
+- So you? Spending a little money on the side?
+- And maybe some secret gambling debts I don't know about?
+- Of course not. You know me. I...
+- I don't know why she'd do this.
+- Look, something has got your girl's dukes up, okay?
+- Get the facts.
+- Smaller bites, please. Don't henpeck.
+- You overanalyze everything, Bartowski.
+- You talk every issue to death.
+- It's exhausting.
+- Morgan: I'm exhausted just sitting here.
+- Casey: Mmm. Wow. I really do that?
+- Spies have secrets.
+- If you're going to take it to the next level with Walker, you have to understand that.
+- Sign the papers. Be cool.
+- Yeah, Chuck. Be cool.
+- Be cool.
+- It's kind of new territory for me, honestly. Cool.
+- Chuck: Good advice.
+- Well, I'm just going to get out of here before I'm scarred for life.
+- Mail call.
+- Thank you, sir.
+- Me, me...
+- Casey: Alex's return address.
+- Looks like an invite.
+- No, a love letter, I think. Invite.
+- What is it, Grimes? Spill.
+- An invite to Alex's graduation.
+- Look, she desperately wanted to invite you, all right?
+- But, technically speaking, in her mother's eyes, anyway, you are still sort of, well, mostly dead.
+- She just can't.
+- Stupid of me to think otherwise.
+- (phone buzzes)
+- Duty calls.
+- Team, as you know, the b*mb planted in Castle have Volkoff parts and design.
+- Vivian Volkoff Langley has tagged as the responsible party.
+- They put out a k*ll order.
+- Off parts? What?
+- Two men dead, Bartowski.
+- But it could be a rogue in Volkoff's organization.
+- Look, all I'm saying is that I've spent time with Vivian, okay?
+- And she's not a cold-blooded k*ll.
+- Just give me a chance to persuade her to come in.
+- She worked for us; we owe her that.
+- We don't owe her squat.
+- I'll compromise.
+- Set a meet with Vivian.
+- If she gets hostile, take her down.
+- Casey, prep a sn*per team. Roger that.
+- No matter how much you believe in this broad, remember she's still a Volkoff.
+- Don't let him get to you. He's just being Casey.
+- Sure. No, it's... it's cool.
+- Look, I know I sprung those papers on you this morning.
+- So, uh, I assume you want to talk about it?
+- No. Prenup.
+- Signed, sealed, delivered.
+- So, we better gear up, huh?
+- CASEY (over comm): I'm in position.
+- She makes one wrong move, I take the sh*t.
+- Look, Chuck, a prenup doesn't mean the end of our marriage.
+- Well, look, hey, you're-you're a spy, and spies have secrets they need to protect; that's cool.
+- No. I-I don't keep secrets from you.
+- It's just, uh, family stuff.
+- Got it. Done.
+- Yeah. Cool.
+- Casey: Heads up. Here they come.
+- Okay.
+- I'm here in the middle of nowhere... why?
+- Volkoff b*mb were planted in Castle.
+- Two men died, and the CIA holds you responsible.
+- I... I would never do that.
+- I'm a business woman; I'm trying to make Volkoff Industries into a legitimate enterprise.
+- I gave INTERPOL a list of every black-market agent; I swept out all the old operatives; I even brought you something.
+- From an arsenal of my father's deadliest w*apon.
+- What is it? I don't know.
+- Look, I want nothing to do with my father's world.
+- Please, do you trust me?
+- (g*n)
+- Guard: sn*pers! Hit the ground.
+- Sarah: Casey, stand down! Stand down!
+- Casey: It's not us! I don't know who it is... I can't pinpoint the sh**t.
+- sn*pers? ! Is this a setup?
+- Huh? No, no, no. Wait. Wait!
+- Wait, Vivian, wait! No, this is not a setup.
+- Guard: Go. Go, go, go!
+- I trusted you! How could you do this to me?
+- (grunts)
+- (screams) Vivian!
+- (g*n ceases)
+- We couldn't determine the source of the sh*t, General, but it wasn't us.
+- And the w*apon Vivian offered up?
+- It's not in the Intersect, and we can't figure out what it does.
+- So it proves nothing.
+- The k*ll order stands.
+- But, what... okay, hang-hang on.
+- But what if she was being straight with us and it really is a deadly w*apon.
+- Wouldn't that be enough to recall her k*ll order?
+- And who exactly is going to give us that intel?
+- There's only one man who can tell us.
+- Unfortunately, he's also the most dangerous man in the world.
+- It's true.
+- I cut in front of William in the cafeteria line.
+- I admit I... have entitlement issues.
+- I owe an amends.
+- My apologies.
+- Explore the feelings.
+- I feel...
+- I feel...
+- Better. I feel...
+- MAN (over P. A. ): Prisoner 9205, you have a visitor.
+- I feel... like I'm about to have some fun.
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- ♪ Chuck 4x20 ♪
+Chuck Versus the Family Volkoff
+Original Air Date on April 11, 2011
+- First off, we don't trust you.
+- I understand.
+- I'm ashamed of myself.
+- There is an assassination order out on your daughter Vivian.
+- You can help remove it.
+- It's all my fault.
+- Absentee parent.
+- What's with this good-guy act, huh?
+- Charles, Sarah...
+- I've had a lot of time to think about my life.
+- I'm not interested in how the world can serve me anymore.
+- I'm interested in how I can serve my fellow man.
+- Sure, awesome. Well, if that's the case...
+- If we can identify this w*apon, we can help rescind your daughter's k*ll order.
+- That's the Norseman.
+- It's a DNA tracker.
+- A tiny sample, and a target or a family of targets can be picked out of a crowd and k*ll instantly.
+- There are two other components.
+- Where are they?
+- That's valuable information.
+- Now there's the conniving, manipulative Volkoff I know.
+- The requirement for spiritual growth is making apologies to all the people I've harmed, making amends... most important need to me is my daughter.
+- For five minutes with Vivian...
+- I'll get the other components for you.
+- I see, let you out of jail, so you can escape.
+- Sorry, not falling for it.
+- Alex: Hey, Dad.
+- Um, I am so sorry.
+- Mom sent out the invitations, and sent 'em to Morgan's new address instead of the Buy More.
+- Not, not an issue.
+- I'm meeting Mom after the ceremony for dinner, but I told her that, between dinner and the party, I was having drinks with friends.
+- You lied to her.
+- Well, then I can come meet you and show you a video of the ceremony and...
+- That'd be an intrusion. I really...
+- I want you to be a part of this, Dad, okay?
+- You name the place, I'll be there.
+- Great.
+- Oh. Uh, okay.
+- (clears throat)
+- So, uh, I'll be in touch.
+- Great.
+- Roger that.
+- Hi. See you later.
+- Ugh.
+- Since Volkoff identified the Norseman, Langley's putting the hunt for Vivian on a back burner.
+- They want the additional w*apon components.
+- Well, General, we'd be happy to, except the w*apon is not in the Intersect, and the only man who can find those components is... coming in right about now.
+- Say what?
+- General, what is this?
+- I'm not normally one to question authority, General...
+- Not the time to start, team.
+- Thank you. Mr. Volkoff, please brief the team.
+- The man who has the Norseman targeting component is a well-known high seas pirate... Ellyas Abshir.
+- Ellyas Abshir, kidnapper, vessel thief.
+- Last seen in Mogadishu.
+- How'd the pirate get the component?
+- I lost it in a poker game.
+- He's addicted to gambling.
+- General, I'm not buying his newfound spirituality.
+- What's in it for Volkoff?
+- The General caved to my demands.
+- Really? No alarm bells ringing here for anyone else?
+- Not getting the sense that we're being played for suckers?
+- The Norseman is extremely dangerous.
+- Damn the risks. Washington wants it now... to retrieve the component. Volkoff will accompany you.
+- For the next 48 hours, he is your responsibility.
+- Volkoff: So... when do we fly?
+- (pirates ululating)
+- Casey: My cover is a Volkoff agent.
+- I'm going in, I just need the layout.
+- I got the layout of the compound off the Sky Drive.
+- Only way in is through the front door.
+- It's a rat's nest of a hellhole.
+- (g*n in distance)
+- But the gambling's good, buffet's decent.
+- It should be me going in.
+- That's my job.
+- Then you tell them that I sent you.
+- It'll scare the hell out of him.
+- Oh, sad, isn't it?
+- Why do I always choose fear over love?
+- Okay, Oprah.
+- Park it. Come on.
+- Hey, uh, you good?
+- You're being awfully cool about the whole prenup thing.
+- It's a non-issue.
+- Since when? Don't you want to know why I asked you to sign it?
+- I figured you'd tell me when you were ready.
+- Well, it's got nothing to do with us.
+- No, I-I get it.
+- Is that cool?
+- Yeah.
+- So, really, the missing link isn't actually missing.
+- It's a misnomer when a fossil shows a specimen in a state of intermediary development.
+- Ellie: It's missing.
+- Babe, you really think it's wise to argue in front of the baby?
+- No, no, no, Devon, the Agent X file that I showed my mom is missing.
+- It happened right after we left for breakfast.
+- My mom was here babysitting.
+- Why-why would she delete a file from my dad's computer?
+- Honey, you're going from zero to 60.
+- I think you just gotta calm down.
+- Mom, it's me.
+- Can call me when you get this, please? Thanks.
+- I don't know, Devon, something's not right.
+- I'm gonna get to the bottom of it.
+- Watch him.
+- Volkoff: Did I hear prenup?
+- You overheard a private conversation.
+- Well, I think you're handling it really well.
+- You're seeing her side of things.
+- That's so important. You know Dr. Nelson, the prison shrink, he taught us that a major part of recovery is seeing the opposing points of view.
+- Thanks, Dr. Nelson.
+- Charles, I've been thinking a lot about your mother lately.
+- I owe her an amends.
+- Do you think, if you talk to me, you might...
+- You're a kind of a sore subject.
+- Of course.
+- Ready?
+- Okay, Charles, remember... you're a criminal.
+- You work for me.
+- You work... for Volkoff!
+- I'm looking for Ellyas Abshir.
+- Who are you?
+- I work for Alexei Volkoff.
+- (g*n cocking)
+- Vol-Volkoff! Volkoff?
+- Alexei Volkoff? Did I not pronounce that correctly?
+- Sometimes, you know, with the Russian thing it's the W's and the V's.
+- Wolkoff, perhaps?
+- Alexei Volkoff is a powerless worm in a U. S. penitentiary.
+- He-he still has a little pull.
+- He sent me here to broker a deal for the Norseman tracking device.
+- Not for sale.
+- Why didn't you tell us Ellyas hates you?
+- Everyone hates me.
+- I accept that.
+- I haven't mentioned my terms yet, which are very reasonable.
+- We're prepared to pay...
+- With your life?
+- Good.
+- I think, I think, maybe you're putting words in my mouth, specifically the word "life. "
+- Walker, the Somali pirates want to take him.
+- If you go in with all that firepower, it's gonna be a bloodbath.
+- If you want Charles out alive, I need to be there.
+- Fine.
+- I can't go like this.
+- They'd laugh.
+- Let me get a little something out of my prison kit. Please.
+- Pick a game.
+- Dice, roulette, cards.
+- You win, the tracker is yours.
+- I win, you die.
+- Do you have Uno?
+- Honestly, sweetheart, I copied one file to cross-reference in the CIA database, but when I put the flash drive in, it disappeared.
+- Well, Mom, why didn't you say anything?
+- I know it's important to you, working with your dad's computer.
+- And I just, I felt stupid.
+- Well, it's okay.
+- The computer automatically embeds the backup files in the hard drive, so I didn't lose anything.
+- Oh, good!
+- Yeah. Good.
+- Honey, if we're gonna make that reservation, we should get going. Okay.
+- Okay.
+- Okay.
+- Okay.
+- Go on!
+- Get out of here! Have some fun!
+- All right. We'll see you in a few hours.
+- Okay. Okay.
+- Ellie, let's drop this plan and actually go to dinner.
+- Devon, the woman has the technical savvy of Steve Jobs.
+- She didn't just "erase" a file.
+- So we're gonna stand out here in the cold and wait for her to maybe do something?
+- We didn't have to wait very long, did we?
+- (gasps) She's doing it!
+- Okay, um, she's spending the night, we follow her in the morning, and we see what she's doing with the file.
+- El, we're not spies.
+- Devon, we are gonna act like it because she's keeping something from me and I want to know why.
+- ♪
+- The tracking device.
+- (gasps, stammers)
+- Draw four.
+- You're a cheater! You just cheated!
+- He cheated. He just cheated.
+- I just saw you palm a card out of your...
+- Tell it to St. Peter, dead man!
+- Hello, Ellyas.
+- Volkoff: You cheated.
+- Give him the targeting device.
+- You are supposed to be locked up.
+- What the hell is happening here?
+- I'm gonna show you what the hell's going on here.
+- (gasps)
+- Your morality is in a state of development.
+- For once in your life, you're gonna play fair.
+- The tracking device or your life.
+- Take it. It's yours.
+- Thank you.
+- We do have one problem.
+- What's the problem, Volkoff?
+- There's something I've gotta do.
+- And it's gonna be really painful.
+- Casey, we need to get out of here right now.
+- Got it. Let's roll.
+- Come on, Alexei, we gotta go now!
+- You know me, you know what I'm capable of, Ellyas.
+- The time's come for me... for me to... apologize.
+- I want you to understand that I... like all other men... I'm still a work in progress.
+- What do you say, Ellyas? Forgive and forget, right?
+- Um... okay?
+- Okay...
+- Go!
+- Chuck: Okay, okay.
+- Give me that.
+- I feel so free!
+- Chuck: Do you?
+- That's good.
+- Thanks so much for your time.
+- Such a good feeling, isn't it?
+- Here we go. Let's go.
+- Thank you, Mogadishu, and good night!
+- Volkoff: All that remains is the k*ll agent... thorium.
+- My finest piece of work.
+- Where does it come from? A far-off land.
+- To mine it, I had to wage w*r against the peaceful natives and ordered the destruction of their Hometree.
+- (laughing)
+- I'm just kidding.
+- They showed it to us last week...
+- Avatar.
+- So it's rare. Incredibly.
+- And the chances you don't know its location are pretty slim.
+- Well, my grandmother always used to say, play your cards close to the vest.
+- And wear a coat over the vest or you'll look like a jerk.
+- Team, good progress, but Langley is getting antsy.
+- Well, General, we think Volkoff knows where the k*ll agent is, but he's being very uncool about it.
+- Volkoff: General...
+- I want proof you're going to keep your side of the bargain.
+- There is a classified document on the conference table... a communication between Vivian and the CIA.
+- It's been redacted, but you'll get the gist.
+- I guess you're just going to have to trust us.
+- Thorium's in a Swiss military bunker.
+- The locks are coded to my DNA.
+- We fly at midnight. Fuel my jet.
+- You don't have a jet.
+- Of course.
+- Old thinking.
+- It creeps back.
+- Let's creep back to your cell. Come on.
+- Okay, honey, I'll call next week.
+- And if you need anything, you call me.
+- Okay. Thank you.
+- Uh-huh. Bye.
+- Target's on the move, Hot Mama.
+- Ellie: Copy that, Six Pack.
+- You get the car. I got the baby.
+- "Meet me at 8:00, the sh**ting range to celebrate.
+- Love, Alex. "
+- Huh.
+- Hey, I just got your text.
+- What's going on?
+- Your sister is breaking through the firewalls of the Orion computer.
+- What? No. No, no, no, no.
+- I mean, I knew about that, but I had Awesome take out the hard drive and disable it.
+- Well, he didn't.
+- And the progress she's making in her access... it's almost as if your father intended for her to find out about the Intersect.
+- Oh, my God.
+- I've taken files piecemeal.
+- I think I got the dangerous ones, but she's onto me. She's following me.
+- Okay. Okay. Let's think about this.
+- Let's think about this. What are we going to do?
+- The time has come for her to find out what it is you do for the CIA.
+- No. Mom, we've been down that road before... okay? ... and if she gets the truth now, she could end up resenting me for all the lies I've told, and it'll tear us apart.
+- Well, she is finding out on her own, which could be infinitely worse.
+- Our family has relied on secrets and lies for way too long.
+- Casey: Bartowski.
+- Beckman's on the monitor.
+- I'll be right there.
+- Not you, Bartowski; the other Bartowski.
+- She says it's urgent.
+- We'll discuss later.
+- Okay.
+- General, I'd like this second file from Orion's computer to be the last that I acquire.
+- It's not going to be easy to keep secrets from my daughter much longer.
+- Cards on the table?
+- Washington is hungry to expand the Intersect program, and Ellie has unlocked material our best technicians couldn't get near.
+- We've never even heard of Agent X.
+- Well, neither have I, but that does not mean that it's related to the Intersect.
+- Still, it seems like Ellie has exclusive access.
+- The director wants her to keep working.
+- Diane, she's not a spy.
+- She's my daughter.
+- Mary, I'm sorry, but it comes from the top.
+- Volkoff: ♪ Oh, Danny Boy ♪
+♪ The pipes are callin' ♪
+♪ Danny Boy... ♪
+- Volkoff is here?
+- What the hell is going on?
+- He got a 48-hour furlough to get us a w*apon called the Norseman.
+- It-it wasn't in your Volkoff file, but have you heard of it?
+- Just whispered about.
+- Never laid eyes on it, which is worrisome.
+- Watch your back, Chuck.
+- Maybe he's a changed man.
+- He asked to see you, to make amends.
+- We're talking about Alexei Volkoff.
+- His mind is twisted.
+- Never believe a word he says, and never let him out of your sight.
+- You understand?
+- Cool.
+- Sarah: No g*n, no ambush.
+- Maybe this isn't a trap after all.
+- Yeah.
+- Can't trust a Limey with good teeth.
+- Well, we have Mr. Cool in there.
+- What do we have to worry about?
+- Bartowski, we lose audio, we're coming in.
+- Sounds good, buddy.
+- The thorium is behind this door.
+- First, to get in, you got to win the game of chess.
+- It's fully automated and constantly evolving.
+- Plus, there's a five-minute clock.
+- I'm guessing there's consequences if you lose.
+- (chuckling): Oh, yeah.
+- Well, you don't have to stay.
+- You can wait with your friends.
+- Well, Alexei, as much as I like staying away from life-threatening situations, wherever you go...
+- (handcuffs fastening)
+- I go.
+- Fasten your seat belt.
+- It's going to be a bumpy match.
+- Electronic Voice: Welcome, Mr. Volkoff.
+- Ready to play a game?
+- (ticking)
+- CHUCK (over comm): Alexei, just stay cool.
+- I know you don't like Bartowski's groovy attitude.
+- God knows where he gets these ideas.
+- Yeah, well, it kind of threw me when he just signed that prenup.
+- That's what you would have done. Exactly, but now I see what Chuck's side of it would have been like.
+- Flipping out about our relationship boiled down to the contents of an envelope.
+- Seeing the end before we've even started.
+- So why the prenup?
+- I have some money socked away, in case my dad gets arrested again.
+- Well, I'm sure Bartowski could handle it.
+- Any excuse to weep and hug.
+- Yeah, well, it's more about what it dredges up for me.
+- My relationship with my family and having to take sides.
+- Caught between your parents, huh?
+- Tough place to be.
+- Hardest place for a kid is right in the middle.
+- Roger that.
+- (clock ticking)
+- Electronic Voice: Check, Mr. Volkoff.
+- Chuck: Oh.
+- Oh, shake it off. Shake it off.
+- Shake it off. You're doing great.
+- (beeping)
+- Electronic Voice: Mr. Volkoff. You're still in check, (whimpers)
+- Electronic Voice: If this is Mr. Volkoff.
+- g*n. Big g*n.
+- Lots of b*ll*ts.
+- Sort of k*ll.
+- Story of my life.
+- What is going on with you? Come on.
+- Let's do this.
+- I used to love games like this.
+- I didn't care whether I lived or died.
+- Now I do care.
+- I don't want to die.
+- I'm going to lose, and I'm going to die.
+- No, you're not. No, you're not going to die.
+- We're not going to die right now. Look...
+- I get that you're trying to better yourself, but would a spiritual man freeze in the face of adversity?
+- Would he... would he choke and die so close to fixing things with his daughter?
+- Would he hide under a table if his fiancée handed him a prenup to sign?
+- No, he wouldn't, because he'd be cool.
+- It's not working.
+- Damn it!
+- You still have the DNA of the world's most evil w*apon dealer.
+- You are a villain, sir.
+- Your name strikes fear in the hearts of even the toughest of swine.
+- And that name is...
+- Alexei Volkoff.
+- You say it like you mean it!
+- My name... is...
+- Alexei Volkoff.
+- World's biggest bad-ass.
+- k*ll of men, conqueror of nations.
+- Let's not get ahead of ourselves.
+- Game, g*n, clock.
+- Okay, come on, Alexei.
+- You can do it. You can do it. You can do it.
+- Chuck: What's going on?
+- Right into my trap.
+- Checkmate.
+- (laughs) Good. Now, let's get a move on before the computer changes its mind, okay?
+- (static over radio)
+- We're losing audio.
+- (men speaking indistinctly through crackling radio audio)
+- What is that we're picking up? Is that Russian?
+- Yeah.
+- We need to go. Go.
+- The last level of security is coded to my DNA.
+- (beep)
+- I assume that's the thorium.
+- Let's get this over with.
+- We'll get to that.
+- But first, I have an amends to make to you.
+- Oh, yeah?
+- Well, uh, I'm pretty well aware of all the bad things that you've done, and I'm learning not to hold it against you.
+- It's not what I've done.
+- It's what I'm about to do.
+- Sarah: Chuck?
+- Hey. We just picked up some Russian on the radio.
+- How long is this gonna take?
+- See, you were right.
+- I'm Alexei Volkoff.
+- (g*n cocking, man speaks Russian)
+- And always will be.
+- (man speaks Russian)
+- W-Wait, wait, wait, wait. What is happening?
+- Oh, this is what we call the twist.
+- I have a company to run and I need leverage to run it.
+- The Norseman's the most dangerous w*apon in the world.
+- I just needed my father's DNA to get the k*ll agent.
+- What? So this is a setup?
+- You were sh*t.
+- You two never communicated.
+- Yes, we did.
+- (laughs): The minute... the minute you showed me the Norseman component, I knew it was a message from my daughter.
+- You and I are gonna run this company together.
+- Vivian, I owe you... the humblest amends for being totally absent during the formative years of your childhood.
+- There will be plenty of time for that, Father.
+- The thorium is useless without the other components.
+- The other components are what's useless.
+- They can be rebuilt.
+- But you'll never have this.
+- Place the grenades.
+- Volkoff: Now, Viv, darling, get these handcuffs off your, off your father.
+- We've got a lot of work to do.
+- I'm sorry, Dad, but here's the real twist.
+- Dead by your own plasma grenades, impossible to defuse.
+- (grenades beeping steadily)
+- Young lady, you get me out of these handcuffs immediately.
+- This is your father talking.
+- Trust no one.
+- You taught me that.
+- It didn't include me.
+- Vivian, you are not this person.
+- You don't know who I am!
+- You have both lied to me, betrayed me and shattered my life!
+- Volkoff: Vivian, darling, I've always been on your side.
+- The photographs?
+- The necklace?
+- Tokens from a stranger!
+- I don't know you.
+- I will never know you.
+- Good-bye.
+- Vivian...
+- Vivian!
+- Please!
+- Come on, let's get to the b*mb and see what we can do.
+- Maybe if I can flash on the laser grid, I can get through them.
+- You gonna carry us on your back?
+- Is there any other escape from this room?
+- (grenades beeping faster)
+- She hates me.
+- Ooh... ooh...
+- No, she's... I'm sure she's just going through a phrase.
+- Actually, I'm really sure she's not going through a phase, but you got to snap out of this right now.
+- Just let me die.
+- We all die.
+- What would Dr. Nelson say?
+- He'd say that you're not seeing it from her side of the issue, you know?
+- If any part of your recovery was real, you'd see that she's just hurt and angry.
+- I failed her.
+- No! You made a great first step in repairing your relationship.
+- It's just gonna take more work.
+- You really believe that?
+- Sarah: Chuck, we have to move... seconds left.
+- Just forget about him!
+- (grenades beeping faster)
+- (power shutting down)
+- Hmm, modified, directed EMP.
+- This year's innovation.
+- I was gonna tell her all my secrets.
+- We were gonna be partners.
+- Not anymore.
+- (sighs softly)
+- (Russian accent): "Velcome" to the future.
+- Chuck: Why did she do this?
+- She's my daughter.
+- She takes after me.
+- Please, Charles, take me home.
+- Alexei... wanted a minute. I understand you Mary?
+- You well?
+- What is it you wanted to say?
+- I've done terrible things.
+- I've been evil.
+- But I was drawn to the goodness in you.
+- (sighs) Alexei, this is not necessary.
+- Yes, it is.
+- (sighs)
+- I was not worthy of your love... like Orion was.
+- Please accept my apology and know that I'm doing my best to improve.
+- Thank you, Charles.
+- Remember, family and friends are everything.
+- Money, greed and power are a dance with Satan.
+- And he looks like me.
+- ♪ ♪
+- Dad, don't say it again.
+- Know what, we'll have dinner the day after graduation.
+- I don't want you lying to your mother on my behalf.
+- Me neither, but lying to her kind of goes with our territory.
+- It's not fair for you to be torn between two parents.
+- It's not okay.
+- You're my father.
+- I don't mind being in the middle, as long as that means I get to have you in my life.
+- I mind.
+- I respect that you don't want to tell your mother the truth, but... we have to come up with a compromise.
+- I can't be there on the day.
+- Unless... ?
+- Unless we tell your mom the truth.
+- That I'm alive.
+- Yeah.
+- I'll tell her the truth.
+- Oh, that scares me.
+- (anxious gasp)
+- (grunts)
+- Done.
+- You don't have to do that.
+- Please forget that that ever existed, okay?
+- And can you please stop being so cool?
+- That is so not cool.
+- Just read it.
+- "I, Sarah Walker, promise to... " (sighs)
+- "... always love Chuck Bartowski.
+- In return, he will always love me. "
+- (laughs)
+- I can't read this fine print.
+- The fine print says, "I promise Chuck that I will not even "contemplate the word 'divorce. '
+- And I will never use my prenup. "
+- I already signed it.
+- Thank you.
+- (chuckles)
+- Thanks.
+- Ellie.
+- Sarah, I have to talk to Ellie right now or I'll lose my nerve, I know it.
+- Yeah, your mother is right.
+- Ellie's better off finding out from you than on her own.
+- Should I finish my wine first?
+- Come on, she'll understand.
+- Chuck, being a spy isn't just what you do, but it's about who you are.
+- Go and tell her.
+- Thanks. Be right back.
+- Hey, El.
+- Hi. Uh, Devon's putting the baby down.
+- Let's, uh, let's go over here.
+- That's some look you got on your face.
+- Uh...
+- I heard that you've been kind of busy lately.
+- Yeah.
+- (laughs) A newborn will do that to you.
+- Yeah, uh, that's true.
+- Um...
+- Chuck, is there anything pressing going on?
+- 'Cause, really, I should get dinner started.
+- El, I need to talk to you about Dad's computer.
+- Oh, yeah.
+- Yeah.
+- I thought that I uncovered some secret files.
+- Turned out just to be cheats on some video game that he was developing.
+- Oh, yeah?
+- Yeah.
+- Just gibberish, really.
+- Listen, that Chicken a la King's not gonna cook itself.
+- So I'm gonna get in there.
+- Okay. Okay.
+- Yeah.
+- My sister just lied to me.
+- She's never lied to me.
+- Not cool.
+- We build the device as quickly as possible.
+- There was only one man my father was ever afraid of, one threat to Volkoff Industries.
+- He went by the name Agent X.
+- I'm gonna track him down and k*ll him.
+- Then no one can touch me, ever.

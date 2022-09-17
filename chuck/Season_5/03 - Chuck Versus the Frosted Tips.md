@@ -1,0 +1,837 @@
+# Chuck Versus the Frosted Tips
+
+- Hi I'm Chuck. And here's what's been going on in my life lately.
+- This is a not a real attack, is it?
+- No, this is our competition.
+- Verbanski Corp took all of our clients.
+- Told you. You put me out there, you don't have to worry about what other companies are doing.
+- Morgan needs a handler.
+- What? Who, me?
+- You be my handler. Yeah!
+- Just because you have the Intersect in you doesn't mean you don't have something to learn still!
+- I have something I can offer you no one else can.
+- Sarah: Okay, target acquired.
+- Distance to intercept: 100 meters.
+- This is it. You ready, Casey?
+- Readiness-- like life-- begins at the point of conception.
+- Where am I headed?
+- Other side of the street. You should be hitting a one-way.
+- Head south to initiate intercept.
+- Roger that.
+- You okay? Your bl*od pressure just went through the roof.
+- (horn beeps)
+- I'm fine.
+- How much time till intercept?
+- Steady. In five, four, three, two, one.
+- John!
+- Gertrude, hey.
+- What are the chances?
+- Her favorite restaurant is a block away, a raw bar called Cerulean.
+- I was just, uh, going around the corner to that little oyster bar.
+- Cerulean-- that... that is my favorite restaurant.
+- What are the chances?
+- You know, I could really go for some Blue Points right about now.
+- Did you hear that?
+- The target is yours. Ask her out.
+- She practically just asked you out.
+- Blue Points are delicious.
+- Especially with a little mignonette sauce.
+- Boy, that's (chuckles) the best thing the damn French ever gave us.
+- Come on, Casey.
+- Well, it was great talking to you.
+- No, wait! Just give her a kiss on the cheek.
+- Just let her know you're available and interested!
+- I guess I'll, uh, see you around?
+- Come on!
+- Yes...
+- (device chirps)
+- So you froze up.
+- It happens to the best of us.
+- No, I didn't freeze.
+- Then what do you call that?
+- Reconnaissance.
+- Wait. You planted a bug on Verbanski?
+- Mm-hmm. Piggybacks off her cell phone's Wi-Fi.
+- That's a weird move, Casey.
+- This way I can find out everything I need to before I ask her out.
+- I'm pretty sure that's why people go on dates, to get to know one another. Just do me a favor, don't tell Chuck and Morgan about it.
+- Lips are sealed.
+- How many triple words are you gonna leave open, Jeff?
+- My God, he's dumb.
+- Morgan...
+- Boom! 87 points, huh? !
+- It's good to be the Intersect.
+- Please, buddy, we're on a mission.
+- Oh, right. Sorry.
+- I thought we were just sitting in some Burbank parking garage.
+- Oh, I'm sorry, you got somewhere you need to be?
+- I have a hot date. No biggie.
+- If this is how you choose to use the world's greatest super-computer. Well...
+- Okay, okay, this is actually what I needed Hmm? to talk to you about.
+- Um, the attitude.
+- Am I not the world's greatest... ?
+- Being the Intersect doesn't mean you have to constantly talk about being the Intersect.
+- You did it your way, I'll do it my way.
+- Morgan!
+- (mocks): Chuck!
+- I hate to say it, buddy, but you're starting to remind me of seventh-grade Morgan, and I think we both know what happened to him.
+- (tires squeal)
+- Stay here.
+- Got it, boss.
+- It's good to see you again.
+- I trust you and your team are well?
+- Hanging in there, yeah.
+- Turns out working in the private sector is...
+- Look, I think it's better if we keep this brief.
+- No offense.
+- You've heard of Mats Zorn?
+- Yeah, rich guy with the whistleblower Web site?
+- Makes WikiLeaks look like child's play.
+- A number of classified CIA memos have fallen into Zorn's hands.
+- So, you want us to grab Zorn?
+- And the documents.
+- The drive contains his itinerary.
+- Zorn doesn't stay in one place any longer than it takes refuel, but we have him passing through L.A.
+- This is a paying gig, right?
+- There's a sizeable bounty on Zorn.
+- I'm outsourcing to your team to circumvent the leak.
+- My only condition is that no one breathes my name in relation to the mission.
+- (horn beeps)
+- Yo, Becky!
+- What up, baby girl?
+- I told you to come alone.
+- You doing Pilates, huh? You are, don't say you're not. You are.
+- What the hell is wrong with him?
+- So many things.
+- Becky, your core's really tight.
+- Alex?
+- Oh, hey.
+- I thought you were Morgan.
+- No, I just dropped him off at the Buy More.
+- What?
+- Guess he forgot about our plans.
+- I wouldn't say that.
+- I mean, he did mention having a hot date, so...
+- Well, clearly it's with someone else.
+- Is there something going on between you two?
+- You would tell me if Morgan's seeing someone else, right?
+- Yes. And no, he is not.
+- He's had a lot on his mind lately, that's all.
+- Let me track him down and talk some sense into him, okay?
+- Okay.
+- Chin up.
+- Thanks.
+- Oh, hey. How'd it go with the general?
+- Piece of cake.
+- Data drive with the mission's locked up tight in Castle.
+- So what's the problem?
+- Morgan.
+- I tried to have a heart-to-heart with him about his... Overblown ego?
+- Anyway, he went AWOL.
+- Casey, can you can help with a surveillance detail?
+- Casey, what you looking at?
+- Nothing. None of your business.
+- Ooh, you got a wire up on someone, huh?
+- Who is it?
+- Verbanski.
+- Corporate espionage. He's just sizing up the competition, that's all.
+- Perving out on Gertrude.
+- Weird move, Casey.
+- I told you.
+- Verbanski: So, have you considered my offer?
+- Gertrude, do me a favor.
+- What is he doing in her office?
+- That's a good question.
+- Next time you make me an offer like that to me, why don't you go ahead and spit in my face instead?
+- Thank you, Morgan.
+- Bubala...
+- I offer you the services of the world's greatest spy, and you don't have the decency, the common courtesy to offer me my own... personal assistant?
+- Bush league.
+- You drive a hard bargain, Mr. Grimes.
+- Yeah, I try.
+- Welcome to Verbanski Corp.
+- You little... traitor.
+- I'm gonna like it here.
+- ♪ Chuck 5x03 ♪
+Chuck Versus the Frosted Tips
+Original Air Date on November 11, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Hey, what are you doing? It's so early.
+- I couldn't really sleep, so I figured I'd head into the office early.
+- Well, why didn't you wake me?
+- I mean, we could have talked about it.
+- I know what Morgan did hurt you.
+- I'm not, uh... hurt.
+- I'm just angry.
+- You know, the Intersect is an integral part of our business, and Morgan just sold it to our number-one rival.
+- Morgan is also your best friend.
+- I'm trying not to think about that right now.
+- Okay, her bottle is on the counter.
+- There's two more in the fridge that need to be warmed up.
+- Clara eats every two hours, and, normally, she lets you know she's full by spitting up.
+- Oh, that's my girl.
+- Are you sure you're ready for this?
+- I think it's great that you took paternity leave, it's just...
+- It's just feeding, burping and wiping.
+- I think I got it, babe.
+- You know your daddy climbed Matterhorn, was the only one who didn't lose a toe?
+- Okay, I know you're tough, but being with a baby all day is a different kind of tough.
+- So you pace yourself.
+- You're on Clara time now.
+- Bye, sweetie.
+- Good-bye, Mommy. Say, "You got it. "
+- Okay, it's 9:00 a. m. What do you want to do first?
+- ♪ ♪
+- We should probably clean up before Mommy gets home, huh?
+- 9:45?
+- In the a. m. ?
+- It's only been 45 minutes?
+- What are we gonna do with the rest of the day?
+- ♪ ♪
+- (alarm chirps)
+- Yo. Don't scuff it, all right, Cabbage Patch?
+- What's up, bro? You want to talk to me?
+- Morgan, did you dye your hair?
+- No. I Frosted my tips.
+- I think it makes my eyes pop.
+- Are you wearing lifts?
+- Oh, boy. They're orthotics, okay?
+- They're for my posture.
+- And it's cool because Cruise wears them.
+- (sniffing): What is... what is going on with you?
+- You smell like the Glendale Galleria.
+- It's Ed Hardy. I'll send you a bottle.
+- What is this?
+- My three-week notice.
+- What? ! You backdated it three weeks.
+- Oh, yeah? Well, I been busy, Chuck.
+- Working for Verbanski Corp?
+- Ah, you heard. Monster deal.
+- I was gonna tell you when the ink was dry.
+- No, no, no, no, I get it, I get it-- you're busy.
+- God, I knew it-- I knew you were gonna do this, man!
+- Do what?
+- You know, just take this whole thing and make it all personal.
+- Personal? Personal? How is this personal?
+- Do you understand? ! Our business needs you.
+- We need the Intersect!
+- Carmichael Industries is just starting to get off the ground right now.
+- Yeah. Yeah, well, I just came for some stuff out of my office.
+- I would have sent my decorator, but she's all busy with Mark Wahlberg's place.
+- Hollywood...
+- Think it through, moron.
+- You walk out on us, you never walk back.
+- Please, save it, all right, everybody?
+- You had the greatest w*apon on the planet and you chose not to use me.
+- That's on you.
+- So you went and told Verbanski about the Intersect?
+- Morgan, we were just trying to protect you, that's all.
+- Don't do this.
+- It's already done, okay, Chuck?
+- It's too late. I don't need any of this crap.
+- Uh-uh-uh-uh. You sure you want to do that, Johnny?
+- Fine. Leave.
+- But there's no way I'm letting a traitor date my daughter.
+- Right, right, right.
+- Your daughter, your daughter, sure.
+- Excuse me. I'll take care of that right now.
+- Sweet little Allie...
+- Alex!
+- Yeah, yeah, yeah, sure, whatever.
+- There you go.
+- All right?
+- You text message break up with my little girl?
+- Yeah, well, I can do better.
+- You... !
+- Just let him go.
+- Casey: What do you want me to do?
+- You want me to k*ll him? 'Cause I'll k*ll him.
+- Better yet, let's keep him alive.
+- You can work him over for a while. Yeah.
+- No, Dad, I don't want you to hurt Morgan.
+- I love him. I just...
+- I just don't understand how he could be so awful, you know?
+- Just tell me what to do.
+- He just...
+- I just don't understand.
+- I just want the old Morgan back, you know?
+- I know it hurts, honey.
+- We Caseys-- we don't like to open up, make ourselves vulnerable.
+- 'Cause when someone does rip our heart out and stomp on it right in front of our eyes, it could be like the worst torture of all.
+- I just want you to know that I'm always here for you.
+- Always will be.
+- Announcer: Charity Hospital will return after these messages.
+- Hello, friends. Sorry if I'm interrupting, but we have something important to discuss...
+- Who's that handsome devil?
+- If you're in a pickle, why not on come down to your neighborhood Buy More, where a green shirt can help you find your way.
+- You know, he's right.
+- We should head to the Buy More.
+- That backup juicer's probably on its last leg.
+- Yeah, that should k*ll a couple hours.
+- Just got to make it to dinner, right?
+- Something is wrong with Morgan.
+- This isn't like him.
+- Oh, sure it is.
+- His new powers-- they pushed him to the Dark Side.
+- He doesn't have a dark side.
+- It's like middle school all over again.
+- Like when Morgan grew his first mustache-- full, thick, manly.
+- Like a miniature Tom Selleck.
+- Thought he was cock of the walk.
+- Cool, sarcastic, mean.
+- Made our lives a living hell for a few weeks.
+- That is, until Meredith Lester showed up.
+- And she grew a mustache, too?
+- No, she did not, no.
+- One day in gym class, Meredith snuck up behind Morgan and pantsed him in front of everyone.
+- Exposed him for who he really was.
+- We went back to being uncool by fifth period.
+- And we went back to being friends by the end of the day.
+- That's it!
+- You're going to drop Morgan's pants?
+- Metaphorically, yes.
+- We finish Beckman's mission, we show Verbanski that Morgan's not as cool as he thinks he is, and...
+- And you'll be best friends by the end of the day?
+- Exactly.
+- (keypad beeping)
+- No, no, no, no, no, no, no.
+- What, what is it?
+- Oh, my God, what is that smell?
+- Ed Hardy cologne.
+- It's gone. The zip drive's gone.
+- The little bearded bastard stole it. He stole our mission.
+- He probably took it with him to Verbanski Corp.
+- I can't believe...
+- Morgan just pantsed us!
+- What are you two doing?
+- We're taking down our competition.
+- Anybody work here anymore?
+- Don't worry, Clara, I'm going to find someone to look after you.
+- Lester, come here.
+- Guard this child with your life.
+- The Chosen One.
+- (gently): Hey...
+- (coughs)
+- Come on, I got you, man.
+- Hey, what's the big idea?
+- (coughs) Get up, Jeff.
+- Use your legs.
+- I am going to take a kn*fe and fork and just eat those chubby little cheeks.
+- (crying)
+- Yes, Uncle Lester...
+- What are you doing, man? You're scaring her.
+- No.
+- Okay? And what are you doing?
+- Are you trying to k*ll yourself?
+- I'm just taking off the exhaust pipe, trying to squeeze a few more horses out of the beast.
+- Ever hear of carbon monoxide, hmm, guys?
+- Can't leave your engine running.
+- No, he has to leave the engine running or he can't start it up again.
+- And the engine noise helps me sleep.
+- Hold up. Are you telling me that you sleep in your van with the engine running?
+- I'm sorry. What was the question?
+- Jeff, you need to see a doctor, man.
+- I'm worried you might have damaged your brain.
+- No, Jeffrey doesn't have a brain, silly-pants.
+- Listen, just give me a call-- I'll give you a quick consult.
+- Really?
+- Caught me on a slow week.
+- Okay, Clara, let's go, honey.
+- No, five more minutes.
+- Come on, Clara. Thanks, though.
+- Five more minutes.
+- Come on... yeah. Thank you.
+- My biological clock is tick-tocking.
+- (men grunting)
+- Sarah: You realize this is breaking and entering.
+- Verbanski can sh**t us all with impunity.
+- Well, her little goon Grimes stole our mission.
+- We're going to steal it back.
+- So this has nothing to do with revenge against Gertrude and Morgan?
+- Absolutely not.
+- If we don't get the bounty on Zorn, Carmichael Industries goes belly up.
+- And if we don't stop Zorn from posting those files, no telling how many agents are going to get b*rned.
+- Sarah: Fine. Where are we going?
+- The zip drive's in your girlfriend's office, Casey.
+- The only problem is getting through the door.
+- Roger that.
+- I can infiltrate. You two take down security.
+- You sure that's a good idea?
+- Well, I mean, you know, you and Verbanski.
+- There is no me and Verbanski.
+- Coming from the guy who put a surveillance bug on her.
+- That was before she poached one of my team.
+- That woman is dead to me.
+- Man: Hey, what are you guys doing here?
+- Come on, let's grab their uniforms.
+- Casey, Verbanski's office is on your right.
+- Don't touch the handle.
+- What's the holdup?
+- Just accessing the system.
+- Okay, go.
+- (inhaling): Ah...
+- Sarah: What is he doing?
+- Chuck: I have no idea.
+- Casey, we are on a bit of a schedule here.
+- Sarah: Casey, is everything okay in there?
+- Yeah, A-OK.
+- (beeping)
+- Casey, you've got incoming.
+- Bingo.
+- Let's start with the Zorn mission briefing.
+- Scotty, what is this?
+- A tall soy latte with two Splendas.
+- Soy? Who said anything about soy?
+- What do you want me to do, start lactating for you?
+- I'm not sure what you mean.
+- I asked for almond milk. Al-mond milk.
+- You megalomaniacal little bastard.
+- Okay? Please fix it.
+- Yes, sir.
+- This is the best Harvard has to offer?
+- Casey, watch out, it's Verbanski.
+- Got it. Let's move.
+- What's the matter?
+- Nothing.
+- MAN (over P. A. ): Blue team, please report to the east training field.
+- Blue team to the east training field.
+- Okay, I got to boogie. That's my class.
+- Okay, I suppose our mission briefing can wait.
+- Okay.
+- ♪ ♪
+- Hey, what are you doing here?
+- They just called us. Hurry up.
+- Blue team, right?
+- We got to go.
+- I hear the new instructor's a real monster.
+- (deep voice): Right, yeah.
+- ♪ ♪
+- Is that a zip drive in your pocket, or are you just excited to see me?
+- I'm here 'cause you stole our mission, and our moron.
+- Oh, so you weren't following me downtown, working up the nerve to ask me out? I don't date thieves.
+- (moans)
+- Sarah, what is the holdup?
+- Well, well, well.
+- Look at this sorry bunch.
+- Verbanski wants me to whip you into shape.
+- I'll tell you what. We're gonna play a little game.
+- What we're going to do is, I'm going to point to one of you and you're going to step up, using whatever technique we choose. and try and take me down.
+- You all seem so excited.
+- Ah...
+- (gibbering)
+- You-- come here.
+- Too slow. You're just too slow.
+- My software is just way too fast for you.
+- You, you, you.
+- I'll take that.
+- (grunting and groaning)
+- (sighs)
+- (grunts)
+- Yeah.
+- Enough foreplay?
+- (handcuffs clicking)
+- Get over yourself, Gertrude.
+- (sighs)
+- I'd like you over here, you and this guy over here, big guy.
+- Oh!
+- Morgan: What are you waiting for, princess?
+- Come on.
+- I'll be gentle.
+- Ooh.
+- (groans)
+- Your master has taught you well.
+- I am the master.
+- Chuck.
+- What are you doing here?
+- I'm here to take back what you stole from us, buddy.
+- No, no.
+- The Intersect is mine. The Intersect?
+- I want the Zip drive, okay?
+- You can keep the Intersect, Gollum.
+- Ever since you started zooming, you're acting a little bit big for your breeches.
+- No, my breeches fit just fine, thank you very much.
+- You're just jealous.
+- Oh, oh, oh? Jealous?
+- Right, jealous that I was a better spy than you ever were.
+- That I take the Intersect to a whole new level, man.
+- You know what, Morgan? We're friends, so I'm going to give you a chance here.
+- No, that's the thing, Chuck.
+- We are not friends.
+- I can't believe you just said that.
+- Yeah, well, things come out sometimes in the heat of the...
+- No. No, forget that.
+- I stand by it.
+- We are not friends.
+- Sarah: We got the drive.
+- Okay, Chuck, come on. Let's get out of here.
+- VERBANSKI (over P. A. ): Grimes, there's been a breach.
+- I need you to secure the zip drive.
+- You heard my boss.
+- Hand it over.
+- (chuckles)
+- No.
+- Do not make me do this, John.
+- You know what I'm capable of.
+- Just hand it over before someone gets hurt.
+- Sarah: Sorry, Morgan.
+- (g*n clicking)
+- (sighs) God, I love the Intersect.
+- Oh, really?
+- That's what we're going to do here?
+- (g*n clicks)
+- Zorn arrives in L.A. tonight.
+- Business meeting downtown.
+- Just enough time for him to switch planes and disappear.
+- Whoa. Let me see that last tail number.
+- Helicopter.
+- I'll pull up satellite on the address.
+- Looks like a helipad to me. That's where we'll grab him.
+- Carmichael Industries will be seven figures in the black.
+- Won't be long till we're the new Verbanski Corp.
+- Guys, I think we should talk about Morgan and Gertrude.
+- I told you, Walker, she's dead to me.
+- Well, then, how do you explain whatever that was in her office?
+- Clearly, you still have feelings for her.
+- And you-- I know what Morgan did hurt you, but you saw the way he was behaving.
+- I really think it's time to admit this is more than just an ego problem.
+- Pure seventh-grade Morgan.
+- But what if it's not?
+- What if Morgan needs help?
+- Sarah, he said that we're not friends anymore, so how am I supposed to help him now?
+- So, Jeff, when's the last time you saw a doctor?
+- Um... when was the last time I got something stuck up in me?
+- Captain: Okay, just going to ask you a few questions.
+- All right, Jeff.
+- Have any trouble focusing?
+- Mmm... Whoa. Yeah.
+- (amplified thumping)
+- Ow. Okay.
+- That's a yes.
+- Any problems with your short-term memory, Jeff?
+- Uh... hey, Doc.
+- Do you know I'm cha-cha under here?
+- All right, buddy, keep the gown down.
+- Do you have any trouble performing at work?
+- I got that one.
+- We're going to mark that as a yes as well.
+- All right, I'm just going to write you a script here, buddy, and get you on your way.
+- Should take care of all your problems.
+- Goody. Pills.
+- Stop sleeping in your van, Jeff.
+- Okay?
+- Doctor's orders.
+- Ellie: What are you saying?
+- Is there something wrong with Morgan?
+- Well, I just...
+- I-I feel like he's losing himself.
+- I mean, why would the Intersect act so differently in Morgan's head versus Chuck's head?
+- Well, because it's a different program.
+- Somebody modified Dad's original.
+- Look, if you think that there's something wrong, you should have the CIA remove it.
+- Yeah, I just don't think he's going to go for that.
+- Like I said, Morgan is not acting like Morgan at all.
+- Well, you need to try to get through to him.
+- How?
+- Well, you could try to appeal to his memory.
+- You know, I've had temporal lobe patients who've responded to stories about who they were before the injury.
+- It doesn't return them to normal, but it sort of helps them cut through the fog-- in this case, the Intersect.
+- Gives them a glimpse of who they used to be.
+- Beckman: Agent Walker,  is the target in custody?
+- No. This isn't about Zorn; it's about the Intersect.
+- It's malfunctioning in Morgan.
+- Morgan Grimes has the Intersect?
+- Look, it was a mistake.
+- Remember the glasses that you sent to us after we took down Volkoff?
+- Listen to me, Walker.
+- I never sent you Intersect glasses.
+- What? Well, then, who did?
+- Ready, Casey? Let's go.
+- Where you been, Walker?
+- Zorn's not going to wait for us.
+- I just talked to Beckman. It's about Morgan.
+- The Intersect that he uploaded, it wasn't from her.
+- What? Then, who?
+- Decker or somebody else in the CIA. She doesn't know.
+- Why would anyone want to hurt Morgan?
+- You.
+- It was meant for you.
+- I spoke to your sister, and Morgan's behavior is not his fault.
+- It's the Intersect.
+- Whatever was added to the program is destroying him.
+- He's forgetting who he is.
+- Morgan: Little Allie.
+- I can do better.
+- Wow. Good job, Indy.
+- Who?
+- Chuck: He didn't remember Indiana Jones.
+- So Star Wars or Die Hard?
+- Ah, you pick, man.
+- That's more your thing.
+- Chuck: Or Trilogy Night.
+- Oh, my God, this isn't just seventh-grade Morgan.
+- I can't believe I didn't see this earlier.
+- He was my best friend.
+- Is my best friend.
+- Sarah, we got to find him. According to Beckman, he's on his way downtown to the Marriott.
+- He's tracking Zorn? Must have copied that zip drive.
+- Little snake in the grass.
+- Right, it's not his fault.
+- Guys, let's save Morgan.
+- If we must.
+- ♪ ♪
+- No sign of Zorn.
+- Must be holed up in one of the rooms.
+- Hopefully, his helicopter will be landing soon and we won't have any trouble subduing his flight crew.
+- Or security detail-- he usually travels with at least four former operatives.
+- Guys, Morgan should be here by now.
+- His team had a head start on us.
+- Maybe something came up.
+- Maybe he betrayed them, too.
+- He left Alex.
+- Well, maybe his brain is breaking down so fast that the Morgan we knew is already gone.
+- Down, down, down, down, down!
+- ♪ ♪
+- Sarah: What the... ?
+- Casey: Morgan and Verbanski stole our plan.
+- They're going to grab Zorn.
+- So Zorn is traveling with four guards.
+- That's it, huh?
+- After neutralizing them, we'll load Zorn into the aircraft and return to headquarters.
+- (sighs) Can you just...
+- I'm not paying you to play games.
+- If we land Zorn, there's no telling what kind of business Beckman is going to send us.
+- Okay.
+- We don't stop them, Gertrude's going to put us out of business. This isn't about business.
+- (g*n cocking)
+- Chuck, what are you doing?
+- I'm going to talk to my friend.
+- Morgan. Don't sh**t.
+- Take him out before he spooks the target.
+- I wouldn't do that if I were you.
+- What'd you think, Chuck, you and your team were just gonna swoop in here and snatch up Zorn?
+- Not happening.
+- This isn't about Zorn. I'm here to help you, Morgan.
+- Oh, right, right. Like before, when you pulled my pants down and you tranq'd me? !
+- (door opens)
+- (g*n cocking)
+- (g*n)
+- Stop sh**ting! What do you want?
+- Mats Zorn, you're under arrest.
+- Mats Zorn, you're under arrest.
+- (grunting)
+- Morgan: I knew it.
+- You came here to make me look like a loser.
+- No, no. Morgan, the Intersect that you uploaded, there's something wrong with it.
+- Yeah, I bet there is-- it's not in your head.
+- (grunting and groaning)
+- Morgan, there was some kind of Trojan horse hidden in the software.
+- Please, please, come on.
+- Just admit it.
+- Please, for me, just admit that... that you cannot handle the fact that I'm the bad-ass operative with the bad-ass tips and you're the dorky sidekick!
+- (grunting)
+- Ladies, please stop fighting!
+- Both: Shut up!
+- Can't you see it?
+- Can't you feel the Intersect changing you?
+- That's-That's why you're not acting like yourself.
+- Why would I want to act like myself? Huh?
+- Do you even remember who I was before?
+- Yes, Morgan!
+- Do you?
+- (helicopter powering up)
+- (cocks g*n)
+- Holy hell! Is that real?
+- Turn off the engine, Zorn!
+- Aah.
+- Stop the engine or I will blow us all to hell!
+- Morgan, you're not a k*ll.
+- Shut up, Chuck, okay? How would you know?
+- Because you got pantsed by Meredith Lester in seventh grade.
+- Chuck, you've got to unlock his memory.
+- I don't even remember seventh grade.
+- Sure you do.
+- Put the g*n down, Morgan, and try to remember what she did to you.
+- Even if I did remember, Chuck-- why?
+- Why would I want to remember being humiliated by some stupid girl?
+- Because then you'd remember how we got back at her.
+- What do you mean "we"? Yeah, "we. "
+- I'm your best friend. Always have been.
+- Who else would have helped you stand up to the queen of eighth grade?
+- What did we do, exactly?
+- We stole Meredith's ham sandwich during homeroom, and then we...
+- Did something to it.
+- Yeah... we spiced it up somehow.
+- Yes. Yes!
+- You're right, Morgan.
+- But what did we put in it?
+- Something... it was something really, really awful.
+- I can see it in my head.
+- I can't, I just, I can't, it's like a... gnarly, curly... like a cockroach leg... my-my mustache!
+- Yes!
+- We shaved off my first mustache and we sprinkled it on her sandwich!
+- I remember now.
+- Chuck, I... I remember.
+- That's who you are.
+- That's who I am.
+- Please... take me to jail.
+- You're all a bunch of maniacs.
+- Verbanski: You cuff him, I'll grab the case.
+- Sarah: Does that mean we split the bounty?
+- I'm sure we can work something out.
+- (handcuffs clicking)
+- Gertrude... can I... can I have a minute?
+- Oh...
+- Listen, I just wanted to say thank you for the opportunity, but I don't think it's gonna work out.
+- Ah, poor kid. That's tough.
+- Morgan!
+- Oh, God...
+- (coughing)
+- The auxiliary t*nk's gonna blow the whole roof!
+- Hey, Chuck!
+- I knew you were into me, John.
+- Shut up, Gertrude.
+- Thank God.
+- (coughing)
+- Still friends.
+- No.
+- (laughing)
+- Of course.
+- Thank you.
+- Thanks for pantsing me.
+- Anytime, buddy.
+- Anytime.
+- You're gonna be late.
+- If I take the Smith and Wesson, it'll show her that I'm rugged and dependable.
+- Maybe the Sig, she'll think I'm cool and sophisticated.
+- I'll just take 'em both.
+- So you're taking Verbanski to the g*n range on your first date?
+- Weird move, huh?
+- No, I think she's going to love it.
+- Well, good luck.
+- Sure you don't want to tag along, follow in the van?
+- I am wired for sound.
+- I think this is a solo mission.
+- Yeah.
+- Thanks, Walker.
+- Hey.
+- (inhales)
+- Is Casey wearing Morgan's cologne?
+- Unfortunately.
+- What's this?
+- Courtesy of General Diane Beckman and the United States government.
+- Our bounty money for Zorn.
+- Wow. That's a lot of zeroes.
+- That's just the beginning, honey.
+- Carmichael Industries has a new lease on life.
+- Wonderful.
+- Dude, quick, give me five bucks.
+- Why do you need five dollars?
+- 'Cause Fernando says that if we give him 20, he's gonna let me Taser his nads.
+- (Taser buzzing, crackling)
+- (cackling with glee) Is that a good idea?
+- What do you care if something's a good idea of not.
+- Could I have the money, please?
+- It just sounds... really dangerous.
+- Yeah. I know. What if we k*ll him?
+- That's totally worth 20 bucks.
+- I will not be party to the reckless endangerment of a coworker.
+- And, if I might add, a friend.
+- What is going on with you?
+- Dude... are you high?
+- What'd you take?
+- Far from it, Lester.
+- In fact, I'm seeing things clearly for the first time in a long time.
+- Now, if you'll excuse me, I have to go put my quinoa salad in the fridge.
+- Quin... ?
+- Good news-- your vitals look fine.
+- Good.
+- I don't feel fine, though.
+- And I certainly haven't been acting fine.
+- Don't worry, Morgan.
+- I know a very good brain doctor.
+- Almost... almost lost myself to this thing in my head, so I want it out, you know?
+- But, uh, to be honest, I... I don't know.
+- Part of me thinks I'll kind of miss it.
+- The Intersect made me this-this, like, super cool super-spy, you know?
+- Now I go back to being some schmuck who works at the Buy More, you know?
+- I know how you feel.
+- You do?
+- Yeah.
+- You know, when I first became a stay-at-home dad, I lost my identity.
+- You mind if I give you a word of advice, bro?
+- Of course, dude, yeah.
+- Please. Fire away.
+- Don't confuse a job with your life.
+- Thanks.
+- (knocking)
+- How'd that date with my ex-boss go?
+- What do you want?
+- Uh... to apologize.
+- The Intersect made me a total jerk.
+- Not that it was completely the Intersect's fault.
+- I mean, it just kind of brought out my inner jerk.
+- Who knew?
+- Anyway, my point is, I'm sorry, you know?
+- I'm sorry that I ever left the team, I'm sorry that I took the zip drive, but most importantly, I am really sorry for what I did to Alex.
+- I was just a bozo.
+- So what do you say, roomie? Huh?
+- Another chance?
+- You know, I'll just...
+- The couch maybe, or... ?
+- Morgan.
+- Hi. Sorry.
+- Casey kicked me out.
+- Whoa, whoa, whoa, hey, hey.
+- Let me talk to him.
+- No, no, no, no... I kinda had it coming.
+- So...
+- Well, okay, where are you gonna live?
+- I don't know, but that's cool.
+- Jeff said that I could, uh, crash in his van.
+- You know that he's not using it now.
+- You know? So...
+- Yeah, I'll be all right.
+- You know, just till I get on my feet.
+- Absolutely not, Morgan.
+- You're gonna stay with us.
+- Guys, I... I mean, after everything that's...
+- I don't know what to say.
+- Say you're gonna lose the frosted tips.
+- Okay, fine.
+- (laughs)
+- (phone rings)
+- Oh.
+- Well, lookie who's back in business.
+- Beckman must have been so impressed with how we handled Zorn, she's got a nice, big, juicy contract waiting for us.
+- Fantastic, man! Great!
+- Can I take Scotty back on?
+- Mm-mm.
+- I'm kidding.
+- He's... I don't even...
+- But he's kinda... did you meet him?
+- He's just kind of a... he's a good kid.
+- Mm-mm.
+- (tires screech)
+- We have another problem, Chuck.
+- There's something I thought you should see.
+- This is a k*ll order. This has gotta be a mistake.
+- Morgan told anyone who wanted to hear he had the Intersect.
+- The CIA does not like that.
+- It was a mistake.
+- C-Can't you call it off?
+- This goes way above my head.
+- Decker...
+- He wants Morgan dead.
+- Get Morgan off the street-- now.
+- Protect him.
+- Protect your friend, Chuck.
+- Come on, Morgan, pick up.
+- (phone buzzing)
+- (blipping)

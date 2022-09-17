@@ -1,0 +1,893 @@
+# Chuck Versus Operation Awesome
+
+- Hi, I'm Chuck.
+- Here are a few things you might need to know.
+- Kind of a crazy night.
+- One more patient, and I am on my way.
+- So, what seems to be the problem?
+- (muffled breathing)
+- woman: Well, let's have a look at you.
+- Where am I?
+- Who are you?
+- My name is Sydney.
+- And...
+- (grunts)
+- (horns honking)
+- Here's where you are.
+- Now... I trust we're feeling all right?
+- Not too many bumps and bruises?
+- After all, we're going to need you in tip-top shape.
+- Need me for what?
+- Nothing too difficult.
+- At least not for one of the CIA's best.
+- No, no, no, you got me mixed up with someone else.
+- I'm just a doctor.
+- We know exactly who you are, Devon.
+- (sighs)
+- So, please, tell me... what's it like being a world-class spy?
+- (car horn honking)
+- Chuck, stop freaking out.
+- Oh, I'm not freaking out.
+- I'll tell you why I'm not freaking out.
+- That would require me overreacting, and I don't think it's technically possible for me to overreact to my brother-in-law being kidnapped!
+- We're doing the best we can, Chuck.
+- Why don't you go upstairs, go to work.
+- We'll call you as soon as we have any news.
+- Chuck: Look at that... Ellie is making her 50th call to Awesome within the hour, in addition to the 20 that she's made to me already today.
+- She's-she's losing it.
+- What... what am I supposed to tell her?
+- Honestly, Chuck, I think the best thing you can do is to just calm down.
+- Here's a little tip, If you really want someone to calm down, never tell them to calm down, because it doesn't work! They don't calm down!
+- I'm sorry. I'm sorry. You're right.
+- I'm sorry. I'm calming down.
+- Here comes the calm.
+- I will soon...
+- Be calm.
+- Not working. I'm not calming down.
+- I tell you what... I got an idea.
+- I'm going to go to work, and then you guys call me the absolute second that you hear anything about Devon.
+- (sighs)
+- Big Mike: Calm down, Morgan.
+- You got nothing to worry about, son.
+- So, you can wipe that concerned look off that...
+- Hairy face.
+- Yeah, well, it's just... It's a little unusual that you would call me in before I even have time to screw anything up.
+- You're right.
+- Usually, mornings are Big Mike time.
+- Time for reflection and-and pastry.
+- But I'll tell you something, son.
+- You've become like family to me.
+- Oh. Thank you, sir.
+- No.
+- Thank your mama.
+- Woman makes me feel good.
+- Real good.
+- Like a man should.
+- But credit where it's due.
+- I've noticed a change in you lately.
+- You're commanding more respect from your coworkers.
+- You're walking a little taller around here.
+- Seems to me...
+- You're ready to run with the big dogs.
+- Of course.
+- Wait, what?
+- Morgan, are you ready to be my assistant manager?
+- Me, sir?
+- I believe in you, son.
+- Well?
+- Yes.
+- Yeah, this will be good.
+- One of the big dogs.
+- (barks)
+- No. Don't do that.
+- That's a little dog... Schnauzer or something.
+- (deep bark) Big dog.
+- Chuck: Hey, Sarah... It's Chuck.
+- I had an idea... Delta Force.
+- Have you called them yet?
+- If not, call me back with their number, okay?
+- Lester: Ah. Just in time.
+- Need that big brain of yours, Charles.
+- Jeff is dead wrong about something.
+- Well, that's kind of his default setting, is it not?
+- Woman: Excuse me, sir.
+- Can you help me?
+- I understand you're having a big sale on HDTVs.
+- Uh, yes, we are.
+- Lester or Jeff here could actually...
+- Sarah.
+- (sighs)
+- Seriously, Charles, it's an emergency here.
+- Woman: Young man, you even listening?
+- (speaking thai)
+- (speaking thai)
+- (whimpers) (sighs)
+- Excuse me. I'm so sorry.
+- I went... That's not what I meant to say.
+- (sighs)
+- Impressive.
+- Now, if Jean-Claude van Damme and Steven Seagal got into a fight, who do you think would win?
+- This is your big question?
+- Bear in mind that Master Seagal's fighting style choice is aikido... like so...
+- "I'm just a cook. "
+- "I'm a lowly cook. "
+- Come on, buddy!
+- Lester: Come on, buddy. Come on.
+- I'm not going to hurt you.
+- What you got? What you got?
+- Boom, boom, pow!
+- Okay. I think he'll live, but we need to get you out of here.
+- Listen, we think we know who has awesome.
+- The last patient that he saw at the hospital was a ring operative.
+- What? What, Sarah?
+- The ring? Oh, my God.
+- This is all my fault.
+- I'm the one who got him involved in all this.
+- They're probably torturing him as we speak.
+- No, there is no reason to think that.
+- Yeah, you're right.
+- There are hundreds of other nightmare scenarios far worse.
+- Uh, Chuck...
+- No, don't you understand?
+- I'm responsible for this.
+- I k*ll Captain Awesome.
+- Oh, my God.
+- You're back.
+- Thank God.
+- Oh, my God, you're back. You're back.
+- This is... this is great news.
+- This is very good news. Are you okay?
+- Tell me you're okay.
+- Chuck, they think I'm a spy.
+- I'm in trouble here, man.
+- They think I'm you.
+- (tires screeching)
+- (whimpers) from what he has told us, we can conclude that the woman Devon was with is Sydney Prince, the head of a ring cell in Los Angeles.
+- She has tried to recruit several of our agents.
+- She knows everything about me, Chuck.
+- Ellie, too.
+- Everything except who the real spy in the family is.
+- That's an understandable mistake.
+- One of them looks like a spy, and the other one looks... like Chuck.
+- True.
+- She gave me this.
+- She told me she'd contact me with instructions.
+- It's a ring communication device, General.
+- Exactly. It works off a closed network, but the NSA has recently developed new technology to crack it.
+- Now we can put it into use.
+- All right. Fantastic news.
+- Sounds like a plan.
+- I'm going to get awesome back to my sister before she has an aneurysm.
+- You can't take him home quite yet, Chuck.
+- We still need to talk about how we're going to use Devon.
+- Excuse me... What? Oh, no, no.
+- No one's using Devon.
+- There will be no using of him anymore.
+- Okay, no more fun spy games for him, forever.
+- Using Devon is our best option.
+- Sydney won't go to her superiors with his identity until she definitively knows whether she has turned him or b*rned him.
+- When Sydney contacts him, he'll do what she says just long enough for us to track her, find her and bring her in.
+- You mean I have to do what she says?
+- No, you don't. No, he doesn't.
+- This is my family we're talking about here.
+- Come on.
+- It's the only way to keep him safe.
+- Devon, we'll be with you every step of the way.
+- If you tell me you can get me through this, I trust you.
+- I will, Devon.
+- I promise.
+- Morgan: Um, excuse me.
+- Stop right there.
+- Are you leaving early again, Bartowski?
+- Are you serious?
+- No, of course not, man. I'm kidding.
+- No, I mean, are you being serious?
+- Are you seriously wearing that vest right now?
+- Ah.
+- Big Mike made me... assistant manager.
+- And I accepted it.
+- Boom.
+- Well, congratulations, buddy.
+- I'm proud of you.
+- Lester: Charles.
+- Oh!
+- Oh, wow.
+- Lester, I'm really sorry about the...
+- That was a completely knee-jerk reaction. You know what?
+- I'm just going to switch to decaf from now on.
+- It's not a problem.
+- In fact, I want to thank you.
+- You helped me feel something I have not felt in a long time.
+- Another human's foot on your body?
+- The thrill of being alive.
+- What?
+- The electrifying sensation of pain coursing through my face was like an adrenaline sh*t to my soul.
+- It made me feel like a man, maybe for the first time since my bar mitzvah.
+- I've never had a bar mitzvah.
+- Chuck, please.
+- I want you to hit me as hard as you can.
+- Chuck: I... I think that you two are certifiably disturbed.
+- I'm going to go home.
+- So... hey.
+- Uh, you want a ride home?
+- Yeah, I got access to the company car.
+- Oh, big man on campus. All right.
+- Well, actually, uh, Awesome's at the mall today, and we got to talk about a few things, so I'll see you at home.
+- Oh. All right.
+- Chuck: You okay, man?
+- Captain: No, no, it's Ellie.
+- God, Chuck.
+- What am I going to tell her about where I've been?
+- I'm a terrible liar, man.
+- (door opening)
+- Devon, is that you?
+- (whispering) Remember to keep it simple.
+- Simple.
+- Oh, thank God.
+- I was so worried.
+- Yeah, babe, I'm... I'm fine.
+- Why didn't you call?
+- Um, uh...
+- After I got off the overnight, I decided I needed to clear my head.
+- So, I went for a run... in Griffith Park.
+- No cell phones there.
+- Uh-uh. So, I'm running, and I just... I heard something in a tree.
+- It was a...
+- It's a cat.
+- A hurt cat.
+- I had to see if it needed medical attention.
+- Then, I realized... it's a bear.
+- What's a bear? The cat's a bear?
+- Yeah, yeah, the cat's a bear.
+- It's a... it's a bear, and it... jumps out at me, and it attacks, and it's like...
+- It's angry at me for some reason, this bear. (roars)
+- Oh, my God!
+- You were attacked by a bear?
+- Yeah, and I... I... cut off its head.
+- Yeah, babe, I... I decapitated the bear.
+- In self-defense, in order to survive.
+- I'm just glad you weren't there to see it.
+- It was really grisly.
+- Do you honestly expect me to believe this?
+- Because you two think I'm an idiot.
+- Is that what you think?
+- No, no, no.
+- That is not what we think.
+- That is not what we think.
+- I think that it's time that we tell Ellie the truth.
+- Oh, yeah. Thank God, Chuck.
+- The truth.
+- I'm terrible at this. I'm a terrible liar, honey.
+- You know that.
+- Clearly.
+- Casey was arrested early this morning in Griffith Park.
+- He was drunk, super drunk.
+- Really blotto.
+- Cop's words, not mine.
+- He was in bad shape, wasn't he, Devon?
+- Yeah.
+- Yeah, it was bad, hon.
+- He wet himself.
+- Also exposed himself.
+- Anyhow, Devon... spent most of the day, pretty much all day down at the station talking to a buddy of his on the force trying to get the charges dropped, so...
+- Oh, my God.
+- Really?
+- Really.
+- (door closes)
+- Hey, guys.
+- Ugh.
+- Uh, let's go inside, Devon.
+- (door opens then closes)
+- What?
+- Nothing.
+- (grunts)
+- (clears throat)
+- Jeff?
+- You got a second?
+- What's going on here, man?
+- I noticed everybody's a little b*at up.
+- The first rule of fight...
+- Easy.
+- Our friend, Morgan, here is the assistant manager now.
+- Oh, guys.
+- We've worked together for a long time.
+- You know, we're... we're chums.
+- Whatever you say.
+- Ass man.
+- Don't you mean, Mr. Ass man?
+- I do not.
+- Chuck: I can't believe the ring thinks awesome's a spy.
+- This is crazy. This... this is crazy.
+- When do you think she's gonna call?
+- What do you think she's gonna say?
+- What do you think we do when she does call?
+- Chuck, the important thing is that Devon will be looking to you as his handler.
+- And you need to remember what it felt like to be scared and new to this.
+- Yeah, like he'll ever forget that.
+- Think of it this way. On this mission, Devon is you and you're her.
+- So, be her, Chuck, huh?
+- Well, maybe Sydney will never call?
+- (knocking on door)
+- Captain: Guys.
+- Guys, it's me.
+- You in there?
+- She called.
+- What's that?
+- Found it on my front step.
+- It's from Sydney.
+- I gotta open it right away.
+- She's gonna call in about five minutes.
+- Come on.
+- What do you think is in there?
+- (beeping) it's okay, answer it.
+- Hello?
+- From now on, Devon, I will speak to you through the earpiece included in the package.
+- And you will speak to me through the watch we sent.
+- Now, put in the earpiece, and put on the watch.
+- (whispering) Par for the course.
+- Just do what she says.
+- Okay, putting on the earpiece now. (beeps)
+- Now we can track you on our own gps network.
+- It's fine.
+- Standard operating procedure.
+- Be at the crystal towers downtown in one hour.
+- Come alone.
+- Oh, and, Devon, the earpiece is also an expl*sive device.
+- Remove it, or deviate from my instructions in any way, and I will detonate it, ruining that lovely face of yours.
+- Sarah: No.
+- Okay, well, that is not standard... at all.
+- Captain: Chuck?
+- Chuck, it's me. Can you hear me?
+- Yes, yes, buddy, yes. I'm... I'm right here.
+- And you're sure they can't hear me talking to you?
+- They can only hear you if you press the button on their watch.
+- An open bug would be far too easy to trace.
+- I've labeled the watches so you don't get confused.
+- Sarah: Devon, this is Sarah.
+- As soon as Sydney calls, Casey's going to start tracking the signal.
+- As soon as we've tracked her location, we're going to bring her in and then you're done.
+- Whew.
+- Okay, good.
+- Chuck, this gonna work, right, buddy?
+- Remember, if you freak out, he's going to freak out.
+- This is absolutely going to work.
+- Everything is fine.
+- I am very confident.
+- (beeping)
+- Sydney: Devon?
+- Are you ready to begin?
+- Ready.
+- There is a penthouse on the 12th floor.
+- Go there.
+- The building has extensive security, but it's nothing that you can't handle.
+- We'll talk again once you're there.
+- She's close.
+- Wasn't on the line long enough to get an exact location.
+- Need another call. Another call? !
+- No, we can't wait.
+- The guy's got an expl*sive earpiece stuck in his head!
+- Chuck, our target is Sydney.
+- We need to get her to save him.
+- Okay, fine, then you get her, and I'll get awesome up to the 12th floor. buddy, head inside the building and wait.
+- Wait? Wait for what?
+- (grunts)
+- Wait for me.
+- Good luck.
+- Chuck?
+- Chuck, where are you?
+- I'm on my way, buddy.
+- Here to see someone in the building?
+- (panting) Well...
+- Yeah.
+- Yeah, kinda.
+- I'm here to meet... meet my friend.
+- Chuck.
+- Does this Chuck work here?
+- He could work here.
+- He might.
+- Okay, pal.
+- Take it easy.
+- I'm building security.
+- My name's Julius.
+- What's the problem?
+- You can tell me.
+- (sighs)
+- I'm involved in something really messed up, man.
+- Been lying to my wife.
+- Been lying to everybody.
+- I can't take it anymore.
+- Because of this Chuck guy?
+- Yeah. Yeah, Chuck.
+- I think I understand.
+- Look, pal, if you really love this Chuck, you have to tell your wife.
+- You can't live a lie.
+- Trust me, I've been there.
+- That's not really what I mean.
+- Sure, it isn't.
+- (silenced g*n) (groans)
+- Oh!
+- Chuck!
+- You k*ll Julius!
+- What? k*ll? ! I would never do that.
+- It's a tranq g*n. (g*n firing, groans)
+- That's preposterous.
+- k*ll someone.
+- Come on. Bingo.
+- All right, he's going to be fine. Come on.
+- So, what do you think is up there?
+- Something pretty gnarly, huh?
+- It's best not to speculate.
+- I mean, nine times out of ten...
+- Well, seven...
+- You get yourself all worked up over nothing.
+- (elevator bell dings)
+- See? Nothing to worry about.
+- Man: Hey, you're not allowed up here!
+- (silenced g*n)
+- (heavy breathing)
+- Look out.
+- Dude, you're incredible!
+- Was that your spy training?
+- Duck hunt. Nintendo.
+- (beeping)
+- Devon?
+- Yes, Sydney.
+- Good, you're alive.
+- Down the hall to your left is an unmarked door.
+- The lock works via retina scan.
+- Cut out one of the guards' eyes and use it to open the door.
+- What?
+- We got to cut out one of these guys' eyes for the scan!
+- I took an oath, bro.
+- I can't cut out a man's eye.
+- I got a better idea.
+- Captain: (strains) Jeez, this guy's heavy.
+- Yeah.
+- Well, bad guys don't count carbs, buddy.
+- (mechanical whirring)
+- (sighs)
+- (heavy breathing)
+- Sarah, we have reached the 12th floor, but what the heck is going on?
+- This is a CIA facility.
+- Sarah? Hello?
+- Chuck? Hello?
+- I lost him.
+- (beeping)
+- Tracked her. She's...
+- She's right here.
+- Sarah: That's her.
+- (doors, windows clicking) Let's go!
+- What the hell? !
+- Casey, Walker. Stand down.
+- General, we have a visual on Sydney.
+- She just walked past us.
+- He's heading inside the building.
+- I've just received new mission information, colonel.
+- Your new directive is to stand down.
+- General, Chuck has reached the 12th floor, and he says it's some kind of CIA base.
+- If that's true, then this is some kind of a setup.
+- Yes, that's exactly what this is.
+- Excellent work, Devon.
+- You're almost finished.
+- There's a man in the office at the end of the hall.
+- Chuck, Sydney says there's a man in the office at the end of the hall.
+- Find him.
+- And k*ll him.
+- Chuck, she wants us to find him and k*ll him.
+- Nobody's going to k*ll anybody, okay?
+- Just calm down and stay close.
+- Excuse me, sir?
+- Excuse me, I know this is a little awkward, but don't move.
+- But also don't be afraid.
+- My name is... Chuck.
+- Chuck Bartowski.
+- I know.
+- How... how do you... how do you know that?
+- I know things, lots of things, about you, about them.
+- What... what do you know about the ring?
+- What are they doing here? What do they want?
+- Why do they need Devon?
+- They don't need anything.
+- They already have everything.
+- Simple as that.
+- Now, Sydney will be here any minute.
+- We've got to do this.
+- Syd-Sydney's coming here?
+- You know she wants me to k*ll you, right?
+- But don't worry, I'm... I'm not gonna do that.
+- However, we do need a plan.
+- I've got one.
+- You're going to k*ll me, Chuck.
+- What? No.
+- No, no, no, no. I don't k*ll people.
+- Okay? I have rules against such things.
+- sh**t me. Here.
+- Try to be precise.
+- Are you listening to anything I'm saying right now?
+- I don't k*ll people.
+- Therefore, I don't sh**t them.
+- Maybe with a tranq g*n. I'll tranq anybody you want.
+- But a g*n. I hate g*n.
+- Listen, if you don't k*ll me now, you and Devon are as good as dead.
+- Well, I'm not gonna do it!
+- Chuck.
+- I have to die. Now.
+- The ring knows too much.
+- There's no other way.
+- So, just do it.
+- sh**t me.
+- (heavy breathing)
+- I... I... I can't do it.
+- I can't do it.
+- Afterward, put the g*n in Devon's hands, then hide.
+- When she's leaves, open this.
+- Truth is, I hate g*n, too.
+- Who are you?
+- (gasps, body thuds)
+- Chuck!
+- Huh? What?
+- What, no, I didn't... No!
+- That's not me, I didn't sh**t him, I swear!
+- He's dead.
+- Chuck, this is not a tranq g*n.
+- (door opening)
+- (footsteps approaching)
+- Okay, listen to me.
+- Remember, you sh*t him.
+- g*n?
+- Take off the watch.
+- Well done.
+- Cute and talented.
+- (beeps)
+- What a catch.
+- (sighs)
+- Lose the body, keep the phone.
+- We'll be in touch.
+- Welcome to the ring.
+- (exhaling loudly)
+- Chuck, Chuck, what the hell is going on right now?
+- "Med Kit in desk. The pill was amiodarone. "
+- "Save me"?
+- Amiodarone.
+- Amiodarone stops your heart, only momentarily though.
+- If it's a clean sh*t I think I can save him.
+- Here.
+- (gasping)
+- (groaning)
+- To answer your question, my name is Shaw.
+- I would like to introduce you all to CIA Special Agent Daniel Shaw.
+- For the last five years, he has worked on nothing but taking out the ring.
+- From this point on, Agent Shaw has total command authority on any mission having anything to do with the ring.
+- Really? This guy? I have back issues of g*n & a*mo older than he is.
+- Be that as it may, you should all know that I've been fully briefed on the details of the Intersect.
+- That's right. I know everything.
+- Thank you very much, general.
+- I'll take it from here.
+- Colonel, Walker, Chuck, you're in good hands.
+- Good luck.
+- Here's an overview of current ring intel.
+- Great, welcome to the team.
+- But Sydney is still out there, which means my brother-in-law's still in danger.
+- Not for long.
+- As you've seen, the ring operates through a network of decentralized cells.
+- If we catch Sydney, there's a good chance we can contain Devon's identity.
+- He's a bona fide mole in their operation.
+- In order to save him, we have to use him.
+- What? No! No way!
+- I've already been over this.
+- Devon is out of the spy business for good.
+- Chuck, as long as Sydney is alive, Devon is a marked man.
+- She's right, Chuck.
+- Casey, Sarah, please!
+- Explain the risks to him.
+- The risks are greater for Devon if we don't use him.
+- Sydney would sooner k*ll him than let him go.
+- Well, I don't care.
+- He's not a spy.
+- Well, Chuck, then I guess the question is, Do you have a better plan?
+- Morgan: Where in the hell is everyone?
+- (distant cheering and shouting)
+- What is that?
+- (grunting and cheering)
+- A fight club?
+- No, no!
+- No! We cannot have this, guys!
+- Come on, there's, you know, insurance issues.
+- (crowd booing)
+- Who's next? !
+- Who wants to regain their manhood?
+- Lester, come on, man, we talked about this. We can't have this anymore.
+- You have to cut this out!
+- You can. (crowd cheers)
+- It's like I'm talking to a wall.
+- (crowd cheering)
+- Lester, a little help, please.
+- No, no!
+- Let me out of here! Let me out of here!
+- No! Let me out of here! Let me out of here!
+- Morgan: Don't... (electrical crackling)
+- Don't... Do not hook that up.
+- I'm trying to help them.
+- (screaming)
+- Okay, no, no!
+- Hey, listen to me, back to work!
+- All right, fight club is over!
+- Lester: Over?
+- Nothing's over till we say it's over.
+- You may have shut this down, but you will never shut us down.
+- Ass man.
+- (snaps fingers)
+- Yeah. Oh.
+- (electrical crackling) Nice.
+- You could at least unplug the battery!
+- (knocking) Hey.
+- What's up? Everything okay?
+- Please don't say another mission, Chuck.
+- I can't take this anymore.
+- I'm kind of freaking out.
+- Don't worry, no. No more missions.
+- I'm sorry that I put you through all this but I promised you that I would take care of it, and I am.
+- Give me the phone.
+- Thanks.
+- Morgan: Chuck, you in there?
+- Oh, there you are.
+- Been looking all over for you.
+- Uh, can I talk to you for a second?
+- 'Cause I'm in a crisis.
+- Yeah, yeah, yeah, yeah, so am I.
+- Yeah, of course you are.
+- My man, still working.
+- An assistant manager's dream.
+- On to my nightmare.
+- Uh, Lester turned the cage into a fight club and attached a battery to the fence so he can shock people.
+- (inhales deeply)
+- You smell that?
+- That's burnt human hair, dude.
+- I told them to stop and no one will listen to me.
+- Okay, no one will listen to anything that I have to say.
+- My job is on the line here.
+- Yeah, well, it sounds like you need a plan, buddy.
+- Exactly. That's exactly what I need.
+- Dude, I was thinking, I was, like, you know, I probably need a plan here but what plan?
+- You know?
+- (beeping)
+- You know... you know sometimes what I like to do is-is, uh, open up a problem and really examine it.
+- Find its weak points.
+- And then not be afraid to just attack it head-on.
+- Wow.
+- Wow.
+- That's some powerful stuff.
+- Yeah, I think that'll work.
+- Thanks, man.
+- Yeah, buddy.
+- (beeping)
+- Sydney: How did you activate this phone?
+- Who is this?
+- I'm the spy who k*ll Agent Shaw.
+- This is not Devon Woodcomb.
+- Yeah, well, you've been dealing with the wrong man.
+- Devon was a decoy.
+- I'm the one who put that b*llet through Agent Shaw's chest last night.
+- I'm the spy that you're looking for.
+- And I am in charge of this mission now.
+- Hey, hey, Sarah, uh, it's Chuck.
+- Don't be mad at me, but I may or may not have called Sydney on the ringphone so she would track me here to the buy more.
+- It's a trap, my trap.
+- You told Sydney to go to the buy more?
+- Oh, my God, it worked. They're here.
+- Okay, grab Casey and get up here so we can take them out.
+- No, Chuck, what are you, crazy?
+- Not very smart, Chuck.
+- This is not how I do business.
+- You start things on your own, you better be prepared to finish them...
+- On your own.
+- Good luck.
+- He hung up on me.
+- Casey: What are you doing?
+- Without us, he doesn't have a chance.
+- He's gonna start to panic and then he's not gonna be able to perform properly.
+- Yeah, happens to lots of guys.
+- Or so I hear.
+- Besides, I'm kinda curious about what his plan is.
+- Chuck: This isn't part of the plan.
+- Oh, this is very, very bad.
+- Chuck: (over PA) Hello, Sydney.
+- Welcome to the Burbank Buy More.
+- Please proceed directly to the home theater room.
+- Find him.
+- I would suggest the best way of getting to the home theater room is through the mp3/... aisle, but beware...
+- You break it, you buy it.
+- Hello, sir.
+- Store's closed at the moment but if you want to come back in the morning, we'll be open around 10:00...
+- You're signing his death warrant, you know that, don't you?
+- Ye of little faith.
+- This is crazy.
+- I'm going in.
+- So am I.
+- I'm afraid I'm going to have to ask you two to stand down.
+- I don't like g*n much, but when necessary, I will use them.
+- Finally, we meet.
+- In an electronics store.
+- Which is different.
+- No matter.
+- When we last chatted, you mentioned a certain Agent Shaw.
+- That's right.
+- Because I'm the one who ended Shaw's life, not Devon Woodcomb. He was just a patsy.
+- You took out Shaw?
+- Mr. Buy More?
+- In a nutshell.
+- I mean, that's kind of what happened.
+- Well, then, if that's true, you won't have any problem with Glen and Ian here.
+- Glen and Ian?
+- Sure.
+- Well, you should know, Glen and Ian, Ian and Glen, that if you take one more step, I will drop you.
+- (whispering) Oh, come on, flash. Flash!
+- (Chuck groans)
+- (gasps) Okay. Okay, now I'm angry.
+- I'm angry and in a great deal of pain.
+- (panting)
+- Oh. Oh.
+- Oh...
+- (high-pitched, martial arts cries)
+- Get him.
+- That was his plan?
+- You know what? I'm going in. sh**t me if you have to.
+- (g*n chamber clicks)
+- Casey: Hey!
+- (sighs)
+- You're fast.
+- Something else you should know about me... I love g*n.
+- Good boy.
+- (grunts)
+- Go! I got these guys.
+- Sydney: Check the cage.
+- Oh!
+- (g*n chamber clicks)
+- (groaning)
+- (grunting)
+- (groans)
+- (grunting)
+- (grunting)
+- (panting)
+- (g*n chamber clicks)
+- (sighs)
+- (grunts)
+- Stop! Do not move!
+- (panting)
+- Or what? Hmm?
+- Please, just do what I say.
+- (sighs)
+- Spies don't say please.
+- Now, Devon...
+- He would have had a b*llet between my eyes by now.
+- All right, fine, your choice... Live or die.
+- (panting)
+- That's better.
+- What are you doing? Do not do that.
+- Do not do that!
+- It's just the phone.
+- You do want it, don't you?
+- Or if you can't think of a use for it, I'm sure I can.
+- I can make a phone call and have 50 operatives here.
+- Don't make me sh**t you.
+- I don't think you can.
+- Sarah: Chuck!
+- (g*n)
+- (body thuds, b*llet casings clatter)
+- Like I said, I hate g*n, but it pays to know how to use one.
+- Suppose congratulations are in order, Chuck.
+- Devon's identity has been contained.
+- We got lucky this time, Shaw.
+- Yeah, and risked my family doing it.
+- There's something you need to know about me, Shaw.
+- There's nothing in my life that I care about more than my friends and my family.
+- Of course, I don't expect you to understand that.
+- Being the spy that you are, I'm sure that you don't care about anybody.
+- Families and friends make us vulnerable.
+- Make us unable to pull the trigger.
+- And that puts everyone in even greater danger.
+- Just ask your partner here.
+- She'll tell you the same thing.
+- Sometimes it helps to know that you've got something to lose.
+- (rhythmic clicking)
+- (singsongy) * Morgan! *
+- ♪ Come out and play-ay! ♪
+♪ Morgan! ♪
+♪ Come out and play-ay! ♪
+- (laughter)
+- Big Mike: Grimes!
+- Get over here!
+- You have got to get your house in order, son.
+- I know. I know I do.
+- I... I just... I don't... I don't get it.
+- I thought we were all friends here.
+- You ain't.
+- First rule of Big Mike management, "You can't be afraid"
+- "to pull the trigger".
+- Right?
+- Pull the trigger.
+- Right.
+- Lester, you know, a wise man once told me that you need to assess a problem and then attack it head-on.
+- Hmm.
+- You... are a problem.
+- Oh.
+- Your behavior will no longer be tolerated.
+- So, here are the first, second and third rules of the Buy More.
+- Do what you're told, do it with respect, or...
+- Or what?
+- Hmm?
+- You'll fight me?
+- (laughter)
+- (laughing)
+- No, I'll fire you.
+- You don't have the cojones.
+- Yeah.
+- No, you're fired.
+- Pack your hard drives and get out of here.
+- The rest of you, back to work.
+- Morgan, Morgan, Morgan, Morgan, come on, man.
+- Okay, look, hey.
+- We're just having a little fun.
+- Okay? I take it back.
+- I take it back.
+- Good bye, Lester.
+- Dude, don't do this. Don't do this, okay?
+- You know I need this job. I got to get out of my mom's place.
+- Hmm.
+- For God's sake, man, I've got nowhere else to go!
+- I've got nowhere else to go!
+- Yeah, okay, you're rehired.
+- (sighs) but you're on probation.
+- Okay.
+- Double-secret.
+- Double-secret? !
+- Strong.
+- Real strong.
+- (barks)
+- Was that... ?
+- A bigger dog, a medium-sized dog.
+- Bigger?
+- (knocking on door)
+- Morgan: Hey, Chuck, can you grab that, dude?
+- I'm-I'm wokin' and rollin' over here.
+- Hi-dilly-ho, neighbors.
+- Hi.
+- Morgan: Yeah, hey, guys.
+- Welcome to our... formerly-your... home.
+- I hope everybody is hungry, because I made my teriyaki surprise.
+- The surprise is the teriyaki.
+- Think I've had enough surprises lately.
+- Oh, Devon, stop it.
+- I'm sure we'll love it, Morgan.
+- Mostly sure.
+- Hey, uh, buddy, that thing that we were dealing with?
+- It's been taken care of.
+- We caught her.
+- Everything's gonna be just fine.
+- (sighs)
+- Oh.
+- There... there it is. That's enough of that.
+- Hey, what-what am I, chopped scallions over here?
+- There's no love for buy more's new assistant manager, or... ?
+- What? That's great.
+- Congratulations.
+- Assistant manager?
+- Congratulations, buddy.
+- Honey, you're hurting him. Put him down.
+- Oh. (knocking on door)
+- Oh, uh, El, I hope you don't mind, but I... I invited Sarah, as well.
+- Oh, really? I'll get the door.
+- (clears throat) Oh, Casey, too.
+- What? !
+- Hi, Ellie.
+- Hi, Sarah.
+- Good to see you.
+- Hello, Ellie.
+- Casey.
+- You've had enough of that.
+- (whispers) What's with her?
+- No idea.
+- Hi.
+- Hi.
+- It wouldn't have been the same without you, so, I'm really glad you made it.
+- Me, too.

@@ -1,0 +1,700 @@
+# Chuck Versus the Masquerade
+
+- (engine starts)
+- (speaking Russian)
+- (horn blaring)
+- (speaking Italian)
+- (g*n clicks)
+- (silenced g*n)
+- (speaking German)
+- (beeping)
+- Good.
+- (beeps, bell dings)
+- Oh, yeah. Rose petals! Nice touch. Really?
+- You don't think it's too much? It's me and Alex's first Valentine's Day together, and I don't want to overdo it. Nah.
+- Is that a bearskin rug?
+- Yeah, yeah. I got it at Big Lots!
+- Had to buy it in bulk though, so if you know anyone who wants a bearskin rug, I got eight of them.
+- (beeping) Oh, that's good.
+- Okay, here we go.
+- 8:00 sharp. So, game plan review.
+- For the next 90 minutes, you and Alex take the living room while Sarah and I are in our bedroom.
+- Then at precisely... 9:30, Alex and I will saunter off to our room leaving you and Sarah ample time to watch Love Actually.
+- Ah, yes! A hit with ladies around the world.
+- And men.
+- And don't worry about your soufflés, 'cause I will keep an eye on them, and make sure they rise to perfection.
+- (knocking on door) Alex. Okay.
+- Good luck. You, too. Okay.
+- Oh, wait! Chuck, Chuck, Chuck.
+- Just one more thing.
+- It's Valentine's Day... we both have girlfriends.
+- (goofy voice): I know!
+- Okay. Go.
+- (whispering): We did it.
+- (whispering): Thank God.
+- I haven't slept in three days.
+- You know what else we haven't done in three days... or three months?
+- Are you saying it's time for Mommy and Daddy to celebrate Valentine's?
+- Can we not call ourselves Mommy and Daddy... in the bedroom?
+- How 'bout... "Who's your Daddy? "
+- Still no.
+- (cries)
+- Let Clara cry it out.
+- It'll prepare her for the real world.
+- Or at least, the nursery.
+- You're such a good dad.
+- And you're a good mom.
+- (Clara continues crying)
+- Mm!
+- (crying louder)
+- I can't do it! I can't do it either.
+- What do you need, little baby?
+- Come on.
+- ♪ ♪
+- (Chuck hums along)
+- I'm gonna treat you so good, you're never gonna let me go.
+- Pretty Woman reference.
+- Isn't that movie about a prostitute?
+- Yeah, but Julia Roberts is so delightful, isn't she?
+- Mm-hmm. Wait for it.
+- Boom!
+- Homemade, baby. Well, I have a surprise for you underneath this, you know. Oh, do you really?
+- Mm-hmm. Uh-huh. Well...
+- But first, I made you a little something.
+- Chocolate strawberries.
+- They're in the fridge.
+- (groans)
+- Morgan and Alex have the living room.
+- What do you mean "have"?
+- You know, like, in college, when you got to hang a sock on the door... ?
+- A sock? Why would you do that?
+- You know what? Doesn't matter. I'm just going to go out there.
+- It's only been-- what? -- like five minutes.
+- Not a lot could have happened by now.
+- (Alex and Morgan breathe heavily, rhythmically)
+- (cell phone buzzes)
+- Did you hear that?
+- Alex: I did! (buzzing stops)
+- It was like our souls are so close they're vibrating.
+- (whispering): That's what it is.
+- (whispering): Yeah. That's exactly what it is.
+- (passionate breathing)
+- (mouthing)
+- Morgan: Okay, okay. You know what?
+- Throw the chocolate sauce on me.
+- Alex: Okay. MORGAN: Get in there.
+- (Morgan whispers) ALEX: Okay.
+- (heavy, pulsing breathing)
+- Morgan: What does it mean?
+- Morgan: Okay.
+- (Alex laughs giddily)
+- (whispers): Surprise.
+- Morgan: What does it mean?
+- Oh, I agree, General.
+- There better be a damn good reason why they're not picking up the phone.
+- I'm going to get them right now.
+- Unprofessional.
+- (laughter, passionate gasping)
+- (growls)
+- What was that?
+- Oh, my God!
+- Dad! Hi... What are you doing here?
+- What are you doing here?
+- (stammers)
+- Um, Sarah had these chocolate-covered, uh... so I was...
+- Come on, Ch... Chuck, you said I have the living room for 90 minutes! "Have"?
+- What do you mean, "have"?
+- Have... in a biblical way... Um, we were, um... not a biblical way, in a spiritual... Spiritual...
+- Beckman. Mission. Now.
+- (door slams)
+- Happy Valentine's Day, everybody! (chuckles)
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- It's not a physical thing. It's, you know.
+- It's-it's an emotional exchange.
+- Casey: Drop it, Grimes.
+- We're having company?
+- Chuck: Hey, what the...
+- Who... who are those guys?
+- NCS. They're making some... additions to Castle.
+- Ooh! Maybe they got my comment card about the eucalyptus steam room.
+- They're covert ops, Bartowski.
+- And they have nothing to do with your mission.
+- Tonight, there was supposed to be a joint CIA/NSA/INTERPOL bust; Alexei Volkoff's three most trusted lieutenants.
+- We tracked them down through his Hydra Network, but by the time we located them, they were already dead.
+- And we believe the k*ll was this man: Boris Kaminsky. We think Boris may be trying to take control of Volkoff Industries by eliminating anyone else who could make a claim to power.
+- Is there even anyone left to make a claim?
+- Possibly.
+- Volkoff left detailed information on every contact in the Hydra Network, except for a woman named Vivian McArthur.
+- I never heard of her when I was undercover there.
+- That doesn't surprise me.
+- We believe that Volkoff was purposely hiding her, because she is his chosen successor.
+- Which means Vivian is Boris' next target.
+- Well, do we know anything about her?
+- The only connection we have found between her and Volkoff is a manor in Somerset, England.
+- There's a party there tonight.
+- It's a perfect time for Boris to attack.
+- You need to get to Vivian before he does and bring her back to Castle.
+- Uh, quick question, uh, GB.
+- This party, is there a theme that we should dress towards?
+- EMCEE (over P. A. ): Step right up!
+- The ringmaster has arrived.
+- I'll be taking you through this little journey this evening.
+- Step right up! Sarah, I gotta tell you, masquerades really creep me out, okay?
+- It's like Eyes Wide Shut,  but, you know, not so boring.
+- Don't get me wrong, I'm a huge Kubrick fan. Chuck, come on. It's just a bunch of socialites wearing masks.
+- Yeah, it could be that.
+- Or, it's a sex-crazed orgy party, where they don't want you to see their faces, or know their secrets.
+- No, no. I've been to those kinds of parties, and it doesn't look anything like this.
+- What? What, what, what, what? Really?
+- Come on, Chuck, don't be ridiculous.
+- Look, we've got to find Vivian before Boris does. You know what that means?
+- Time to mingle.
+- Good luck. Huh? No.
+- Don't you think we should stay together?
+- Wow.
+- Do I taste a hint of pear?
+- Elderflower liqueur with some muddled thyme.
+- Woman: You're an impressive bartender.
+- It's like you were born to do this, no?
+- Woman: Thanks for the drink.
+- She's right.
+- This is fantastic.
+- Well, it doesn't surprise me. I mean, with Chuck being a full-blown agent now, and he and Sarah always taking point.
+- Kind of leaves you stuck here, behind the bar.
+- I'm an integral part of this team.
+- Excuse me, barkeep.
+- Might I have an extra lime?
+- Ah, yes.
+- Thank you, dear.
+- And look who's talking.
+- You live in Charah's apartment.
+- That is our apartment, okay?
+- And Chuck and Sarah like having me there. We have a very... special dynamic.
+- (with British accent): Good evening.
+- I am Charles Carmichael.
+- Of the Worcestershire Carmichaels.
+- Who might you be?
+- I'm a heart.
+- How darling.
+- Don't mind if I do. Cheers.
+- Hello. Enjoying the party?
+- I am now.
+- So how do you know Vivian?
+- We share a mutual friend.
+- Wake up, Grimes.
+- You live with an engaged couple.
+- It's like you're their kid.
+- What? ! (splutters) That's ridiculous!
+- Yes, living with a couple has its hiccups, you know, but things are actually really good at the apartment.
+- Yeah? Well, they won't be that way for long.
+- You gotta grow up sometime. Know what I'd do?
+- I'd go out on top before the situation gets worse.
+- (British accent): So, tell me, do you know where to find Vivian?
+- Honestly, I don't even know what she looks like.
+- It's the first party she's ever thrown.
+- Interesting.
+- (gasping) H-hot!
+- Hot-hot-hot-hot!
+- Good show, good show! Hot!
+- Hot, but good. Very good! Ah!
+- Yes, some wine would do good. Mmm!
+- Please, help yourself.
+- (normal voice): I'm so sorry.
+- Was this yours? I can get you another one.
+- It's okay. I've probably had enough.
+- I can't stop thinking about that scene from Eyes Wide Shut.
+- Yes! Right?
+- And I like the idea of a theme party, but you put these people behind masks and it's just gets... ... creepy.
+- Yeah. And a little sexual.
+- Yeah. (laughs)
+- So, Vivian-- do you know where she is by any chance?
+- I haven't had the opportunity to say hello yet.
+- I'm sorry, I don't.
+- But if you do find her, please, be sure to let me know.
+- I'd like to thank her for this exquisite party.
+- So, how do you, uh, how do you know Vivian?
+- I don't think anyone really knows her.
+- And if this was her attempt to get to know the neighbors, we can safely say that she's failed miserably.
+- Well, at least there's an open bar.
+- I mean, she got that much right.
+- Do you know where I can find... ?
+- I found Boris.
+- Casey, Boris is here.
+- He's wearing a green mask.
+- We're on it.
+- Casey: We need to find Vivian.
+- I think I may have just met her.
+- ♪ ♪
+- (horse splutters)
+- Shh. CHUCK: Vivian.
+- Vivian McArthur?
+- What are you doing here?
+- Whoa, what's going on?
+- Ms. McArthur, we know you're an associate of Alexei Volkoff.
+- Alexei Volkoff? What are you talking about?
+- We're CIA. You need to come with us.
+- We're here to protect you.
+- Protect me from what?
+- Get in the stable!
+- Boris: Stop! Don't move!
+- k*ll the others. Take her alive. to lose these guys. Okay, we need What's the best way out of here?
+- I don't know.
+- Okay, the house is back that way.
+- Casey, we're trapped in one of the stables. Copy that.
+- We're on our way.
+- Some things never change.
+- Come on, Grimes. Let's go.
+- Let's do this.
+- (coughs)
+- What the hell was that?
+- This can all end now!
+- Just give me the key, Vivian!
+- What is he talking about? What key?
+- Look, I don't know what's going on, but I have nothing to do with Alexei Volkoff.
+- I haven't seen him in years.
+- Then why does he pay for the manor that you live in?
+- Because I'm his daughter.
+- Vivian, if you want to live, give me the key.
+- Look, can you please tell me what this is all about?
+- Quick version: your father is an international arms dealer and m*rder and all-around bad guy, okay?
+- No, no, my father is an oil executive.
+- Okay, look, we'll explain it later.
+- I have an idea. Chuck, get ready to flash.
+- (g*n)
+- Man: Those are g*n!
+- Sounds like there's g*n outside!
+- They're trapped in the back stables! Come on!
+- What're you doing?
+- We're saving you.
+- No, we're saving you! Get in!
+- You two are amazing! You are the best spies in the world!
+- (tires squeal)
+- Good Lord!
+- What happened to you two?
+- You smell like vomit and Cheerios.
+- We had a baby.
+- We need help.
+- Follow me.
+- Luckily, we have a sleep-slash-baby aisle.
+- You need the new Sleep Sheep.
+- Look at this.
+- It says it can record mama's soothing voice for the baby.
+- So there you go.
+- (crying stops)
+- ♪ ♪
+- What is that?
+- I'm sorry, Jeff and Lester got their hands on one of these Sleep Sheep and did some recording of their own.
+- Jeff has some strange nap habits.
+- I'll have them shut it off.
+- No, no, no. No. Thanks for your help.
+- That's exactly why I got myself snipped.
+- Babe, that song...
+- We need that.
+- Okay, I'll just go ask 'em for it.
+- Wait, wait, wait! What if they say no?
+- They can't say no.
+- We should take it.
+- Are you sure about this? Oh, yeah.
+- Good, 'cause I have a plan.
+- Eleanor Bartowski Woodcomb.
+- Hillary Rodham Clinton.
+- Oh, are we not playing that game?
+- We are not.
+- Sorry, I came in here to breast-feed. somewhere else tohnurse. Maybe I could go Perhaps the back room?
+- (whispers): We should follow her.
+- Well, I believe her.
+- Everything she says checks out.
+- I do, too.
+- It seems like she has no idea who her father actually is.
+- I think he lied to her her entire life.
+- Then why does Boris think she has this "key"?
+- Morgan: I was wondering, is it possible I could stay with you tonight?
+- No, no, it's fine. You know, it's just... they didn't get to enjoy their Valentine's Day either, and it's their apartment, too, you know?
+- Listen, I'll, I'll handle the paperwork again if you guys take care of that.
+- Since you two got engaged, Mr. Sensitivity might be feeling a little... irrelevant.
+- I'll go talk to him.
+- No, no, let me talk to Morgan.
+- You debrief Vivian. You know, if he feels like the third wheel, maybe it's because the two of us only ever hang out when you're around.
+- You know, Morgan and I could use some one-on-one time.
+- It'll be fun!
+- Okay.
+- Have fun.
+- Let me ask you a question.
+- You and I don't usually do this kind of thing, so I was just wondering if there's a reason that you're here.
+- No! No, no...
+- I was just looking to... hang.
+- Cool, cool. Let's hang.
+- (both chuckle)
+- Okay.
+- So, uh, I know you guys like having these toys around...
+- Toys?
+- Yeah. Maybe we can play with them.
+- Roar!
+- Bang! Bang!
+- (growling)
+- Uh, yeah, sorry, sorry.
+- No offense, please, but these, um, they're not toys.
+- They're collectibles.
+- They're not for playing. Oh.
+- Chuck and I had to pool all our money together to get these guys.
+- Original 1977 Kenner line.
+- I'm sorry. I didn't know.
+- They're really fun... to look at.
+- The trick is Chewie always goes on Han's right side.
+- Anyway, I've been arranging them this way since I was about 13, if you can believe that.
+- They're toys! They're just toys, aren't they? !
+- No, no, they're collectibles. They're just toys!
+- It's different. They have... value!
+- No, no, no. No, wait a minute.
+- Wait, you're not here to hang!
+- You're here 'cause I'm a third wheel! Casey was right!
+- Oh, my God! I play with toys! I live with a couple!
+- I am a child!
+- I'm like your child.
+- You guys are like my parents. Oh, my God!
+- No, Morgan, please, it's okay. Calm down. It's fine.
+- I mean, look at this. I can't...
+- I can't do this anymore.
+- I have to grow up.
+- I have to move out.
+- That's what I have to do.
+- I have to go.
+- So, my father, he actually k*ll people?
+- Did you spend much time with the man?
+- Honestly? No.
+- He put me into more schools than I can count, sent me on trips all over the world, he made sure every minute of every day was occupied.
+- But he was never a part of my life.
+- Or, or, uh, he was trying to protect you from the very dark and dangerous world that he was a part of.
+- Yeah, maybe.
+- And now you have a chance to do what you want.
+- Right.
+- Now I just have to figure out what that actually is.
+- I mean, after the party, I'm sure we can safely cross being a socialite off the list.
+- I can't believe I still don't know what to do with my life.
+- Can I not be a spy for a second?
+- Oh, please.
+- Okay.
+- You should have seen my life a few years ago. I was working a dead-end job, I was living with my sister, and then something... an opportunity, just fell in my lap.
+- Afternoon, Colonel.
+- Paperwork, bartending, any chance that your k*ll are being wasted here?
+- You were at the bar.
+- What are you doing in Castle?
+- Director Jane Bentley, NCS.
+- I was in England to observe.
+- You see, I'm not like Agents Bartowski or Walker, even General Beckman.
+- I see your true potential.
+- You started working for the NSA because you were America's best sharpsh**ter.
+- And now... you're so much more than this, Colonel.
+- It seemed that your team doesn't need you anymore.
+- When are you finally going to accept that and move on?
+- Getting to a point?
+- I'm putting together a new team and I want you to lead them.
+- What's the directive?
+- You're curious. Good.
+- I'll be in touch.
+- Chuck: I never expected this to be my life.
+- But here I am and-- I'm happy.
+- And if you give it some time, I'm sure that you can find that for you as well.
+- So what happens now?
+- Okay, well, now, probably the best thing to do is get you into a CIA safe house.
+- I just told you I spent my entire life being hidden away by my father.
+- This is serious, okay?
+- This is very, very serious business.
+- Boris has gone after your father and is taking out everyone that was close to him.
+- He knows where you live.
+- Wait... Okay, so why don't we use that to our advantage?
+- What do you mean? Use me as bait.
+- No. This is the first opportunity I've had to take control of my life.
+- I can't let it slip away.
+- Charles, I know it's asking a lot, and I know that I'm a Volkoff--
+- Will you help me?
+- Please?
+- Yes.
+- Yes, I'll help you.
+- (both singing along with music)
+- Ellie: Oh, my...
+- Oh, honey, I think I'm losing my mind.
+- I know.
+- I used to love this song.
+- Okay, it's been two hours.
+- If I turn it off, do you think Clara will stay asleep?
+- It couldn't hurt to try.
+- (music stops)
+- (both sighing)
+- (Clara fussing)
+- (crying)
+- Hey, it could be worse.
+- Really? Could it be?
+- Hey, we're doctors.
+- We've gone without sleep before.
+- We were born for this.
+- Okay, you're right.
+- (music resumes)
+- (crying stops)
+- ♪ Ombasayo ♪ (playing over teddy bear): (singing along): ♪ Ombasayo ♪
+- ♪ On the way ♪ On the way ♪
+- ♪ Babalee-say-bableeom ♪
+♪ Babalee-say-bableeom... ♪
+- Hey... Morgan, Morgan buddy, I got... I got to pack for the mission, but Sarah called me and said you were moving out.
+- So I told her that was, of course, completely... ridiculous.
+- Morgan: No, she's right.
+- I'm doing it.
+- I'm gonna move out.
+- No, but see, that's totally ridiculous.
+- That's what I'm trying to say...
+- Morgan, look, I'm-I'm-I'm so sorry about busting in on you and Alex on Valentine's Day with the bearskin rug and the...
+- That's not the point. The point is, you had the living room for 90 minutes. We had a deal, I broke it. I'm so sorry.
+- I am not moving out because of what happened on Valentine's Day.
+- No, man, I'm--
+- I'm moving because it's just, it's been a long time coming, you know.
+- Neither of us wants to admit it, but...
+- Admit-- admit what? What do you mean?
+- Chuck, do you realize-- you and Sarah are going to be married in a few months?
+- My friend-- married.
+- You guys should have your own place.
+- It's ridiculous.
+- You should have your own place.
+- And you know what, I have-- I have a serious girlfriend now.
+- Who, by the way, takes me seriously.
+- I just think it's time we both grow up.
+- We are grown up!
+- (chuckles) Come on.
+- Why wouldn't you want to live with your two best friends?
+- I'm happy. Aren't you happy? I'm happy.
+- Of course I'm happy. But you know what, we were both happy when your father let us build a fort in the attic and sleep there all summer.
+- That was a great summer.
+- That was a good time.
+- But things change, and uh...
+- It's not really a bad thing.
+- I think it's going to be okay.
+- Where you going to go?
+- I don't know.
+- I got to finish packing up, and then I'm going to head out that door, dude, and I'm just going to open myself up to the universe.
+- So, moving to your mom's?
+- Yeah, yeah.
+- Pretty much straight over.
+- (sighs)
+- Come on, this is okay. This is okay.
+- Bright side-- this is not going to be hard to split up, okay?
+- I've done most of it.
+- From what I can figure, original super NES with Donkey Kong-- yours.
+- Right, sure.
+- And you'll be taking all the Hong Kong wire-fu and Miyazaki flicks, I assume?
+- You know what happens when you assume.
+- You're usually correct.
+- Yeah.
+- I guess really all that's left to take into consideration is our, uh...
+- Han Solo and Chewbacca original '77
+- Kenner line Collector's edition.
+- (sighs)
+- We went in on these together, buddy.
+- Sure did.
+- So we just each take one?
+- No, no. That's crazy talk.
+- We can't split 'em up.
+- You can't separate Han and Chewie.
+- Chewie's Han's first mate and constant companion.
+- What up?
+- Plus, they're worth more--
+- (clearing throat) as a set, so...
+- So we should sell them.
+- Look, we don't need to decide right now.
+- We can sleep on it.
+- We can decide tomorrow. Totally.
+- You know, I've got a big mission ahead of me.
+- Right. Yeah, sure you do. And you know what, I have so much more packing to do, and...
+- So I'll just-- I'll just--
+- I'll just sleep with him tonight in my room.
+- Not sleep with him.
+- I wouldn't sleep with him.
+- But he's going to be in my room, you know.
+- And you know, Chewie will just stay with me.
+- For the night, obviously.
+- Obviously, obviously.
+- Okay, then. Okay.
+- (sighs)
+- Sarah: Chuck, is everything okay?
+- Yeah, yeah. (clearing throat)
+- I was just resting-- stretching. I was stretching.
+- I find the wall to have... It's a lower lumbar thing.
+- So I'm fine, I'm good.
+- I'm sorry about Morgan.
+- It's fine. I'm fine. He's fine.
+- We're fine, so...
+- How's the... ? (clearing throat)
+- How's the packing for the mission going? You ready?
+- Yeah.
+- Casey: Well, if we're going to use Boris's knowledge of you to our advantage,  we're going to have to know the details.
+- Walk us through an average day.
+- We need to figure out when you're most vulnerable.
+- Odds are Boris is doing the exact same thing right now.
+- I wake up at 6:00.
+- I make breakfast...
+- Get dressed... and then I take Artemis out for a morning walk.
+- Hello, Vivian.
+- How do I look?
+- You said the details are important, right?
+- Mm-hmm.
+- Here.
+- Wear this.
+- Are you okay?
+- Well, shouldn't I be the one that goes into the woods?
+- Chuck: Absolutely not.
+- You should stay here with me, where it's safe.
+- Everything's going to be fine. Trust me, Sarah's had years of training.
+- And Casey will be watching my every move.
+- I'm at the north gate.
+- If Boris attacks, he'll do it here.
+- This is it.
+- Are you sure she'll be all right?
+- Chuck: She always is.
+- (wind whistling)
+- Everything looks clear.
+- I've got a mile until the gate.
+- I'll be waiting.
+- It's time. whoa.
+- (wood cracking)
+- Casey, something's wrong.
+- I'm coming to you.
+- (electronic whirring)
+- (horse whinnying)
+- Whoa!
+- Whoa, whoa.
+- Whoa, whoa.
+- Whoa!
+- Coming, Walker.
+- Casey: Sarah?
+- What's happening? Casey, what's wrong?
+- Is everything okay? You stay inside.
+- You shouldn't be out here. It's too dangerous.
+- Where's Sarah? Casey, where are you?
+- 60 seconds out.
+- Stay with Vivian. I'm on my way.
+- What do you think you're doing?
+- I'm not doing this anymore.
+- I'm not letting anyone die for me.
+- I have spent my whole life hiding, Charles.
+- It ends today.
+- All right, let's do this.
+- It's not Vivian.
+- Then k*ll her and find Vivian.
+- She's the only one who has what we want.
+- (r*fle cocks)
+- Walker.
+- Walker? (groans)
+- Sarah: There's too many of them.
+- Go and get Chuck. okay? Shut up.
+- You know I'm not leaving you here.
+- Let's get you undercover.
+- The road's just up ahead. You okay back there?
+- Yeah-- yeah, yeah.
+- We got company.
+- I didn't spend ten years in equestrian school for nothing.
+- Hi-yah!
+- Hi-yah!
+- Vivian: Do you think we lost them?
+- I don't know.
+- I know. No, we haven't!
+- Hi-yah!
+- Go, Artemis, go.
+- Chuck: They're gaining on us.
+- Come on, come on.
+- Chuck: Listen, it's only a matter of time till they catch us.
+- We're carrying too much weight.
+- Well, what do you suggest?
+- Plan B.
+- Don't stop for anything.
+- That was kind of cool.
+- Sarah, Casey, where are you?
+- (groans)
+- (panting): Hey.
+- Sarah...
+- Where's Vivian?
+- Chuck, I've reached the stables.
+- We're on our way. Good. Stay there.
+- Boris: Vivian.
+- What do you know, Alexei Volkoff has a daughter.
+- Must have taken a lot of work for them to keep you under wraps.
+- Now just give me the key and I'll make it painless, I promise.
+- My father never gave me any key.
+- Yes, sweetheart, he did.
+- When you were young.
+- A token of his affection.
+- Think hard, Vivian.
+- Where is it?
+- I don't know. None of this makes any sense.
+- My father-- he didn't want me to be involved in any of this.
+- Really? You were skeet sh**ting at age seven, had your black belt at 13 and by the time you graduated from the London School of Economics, you were fluent in five languages.
+- Your whole life your father's been grooming you.
+- You are his succession plan.
+- But he was wrong about you.
+- See, he couldn't recognize what you really are-- an indecisive, weak little girl.
+- (whinnying)
+- Boris would have k*ll you.
+- Chuck: But now he's gone.
+- And the rest of the lieutenants are dead.
+- There's no one left to put the pieces of Volkoff Industries back together.
+- What happens to it now?
+- Without a leader, your father's empire is just an empty office building in Moscow.
+- Chuck: Uh, Vivian, did Boris tell you anything about the key?
+- What he was looking for?
+- No, he didn't.
+- Sorry.
+- Casey: Time to go.
+- You sure you'll be all right?
+- Yeah. I can't thank you enough.
+- For your advice, everything, Charles.
+- I think it's time I figured out what to do with the rest of my life.
+- Well, I'm sure you'll think of something.
+- Bye.
+- So this is, uh...
+- This is it, huh?
+- (sighs) Yeah.
+- Yeah, this is it.
+- Buddy, I know you're committed to moving out, and I get it, but I can't tell you enough how much Sarah and I love you.
+- And love having you here.
+- I love being here.
+- It would be easy to leave if things sucked, or you know...
+- And I need to grow up.
+- Maybe that means leaving behind something that's great, too.
+- The end of an era.
+- It is indeed.
+- Obviously, we'll still have game night, though.
+- Every Monday.
+- So what's going to happen with Han and Chewie, huh?
+- Where are they? Did you sell them already?
+- Well, I mean, Chewie's Han's first mate and constant companion.
+- It just didn't seem right to separate them.
+- More importantly, I thought they should stay in the family.
+- You moved her into the nursery?
+- You think she's ready for that?
+- Honey, she's three months old.
+- It's time for Clara to be in her own room.
+- Besides, she's not alone in there.
+- Which means, uh, we can be all alone.
+- I am way ahead of you.
+- I already have our outfits laid out and ready to go.
+- I've been waiting for this since Clara was born.
+- Casey: I want you to let you know, I'm not leaving my team.
+- What I have here is good.
+- Of course it is, but you've been here for four years.
+- Longer than any other assignment you've had.
+- These people mean a lot to you.
+- For God's sake, you saved Agent Walker's life today.
+- But you're not going to spend the rest of your career with this team, and you know it.
+- Sooner or later, you're going to have to move on, Colonel.
+- Why not today, when you can go out on top?
+- I'm not leaving Burbank.
+- You won't have to.
+- The mission's right here.
+- Huh.
+- (elevator bell dings)
+- ♪ ♪
+- (mechanical whirring)

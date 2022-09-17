@@ -1,0 +1,728 @@
+# Chuck Versus the Fear of Death
+
+- Chuck: I'm Chuck. Here are a few things you might need to know.
+- I'm not gonna fight you on this anymore. If you trust her, that's enough for me.
+- Mary: Your father never wanted you to see this.
+- See what?
+- Flash, come on.
+- My mom did something to me with that device.
+- You mom gave us a way out.
+- Chuck: Sarah, I can't flash. The Intersect is gone.
+- We're in a real mess, Agent Bartowski.
+- Your trust in Agent Frost proved a colossal error.
+- Chuck: I know I screwed up, general.
+- If she weren't my mom, I would have shown much better judgment.
+- Beckman: Which is why you haven't been ejected from the agency.
+- But Agent Frost is extremely dangerous.
+- She and Alexei Volkoff are now top priorities for capture.
+- Agent Walker, Interpol reported a sighting of them in Istanbul.
+- Move out immediately.
+- What about me?
+- Beckman: Until the Intersect is working... you're Chuck's shadow, in Burbank.
+- [GROWLS]
+- Uh, general? I'm sorry.
+- I'm sorry, but are you saying that the Intersect can, in fact, be fixed?
+- Our scientists think your mother used a suppression device.
+- There could be countermeasures.
+- So it's only been suppressed. It's not gone, like "gone" gone?
+- I'm not a scientist, Chuck.
+- But you're about to meet a lot. You can ask them.
+- This is pretty snug.
+- The Intersect is an implanted collection of memories.
+- A suppression device hides those memories... under what you might call a psychological rock.
+- We need to find that rock and remove it.
+- Here we go.
+- [CHUCKLES]
+- Ooh.
+- [LAUGHING]
+- [BEEPING]
+- What was the point of the water? I was just wondering.
+- Mm-mm.
+- [SCREAMS]
+- [CHUCK GROANING]
+- All right.
+- And that's day 31.
+- Great session, fellas.
+- [THUDS]
+- [SIGHS]
+- The file you requested, Mr. Bartowski.
+- Thanks, Greta.
+- Is it strange that all of the new employees have been named Greta?
+- Strange? What's strange about it?
+- Doesn't seem strange to me at all.
+- Who cares?
+- As long as they're spicy.
+- That's strange that you don't find that strange.
+- But speaking of strange. You've been giving off some real sad sack vibes lately.
+- Bit of a whiny wuss, if you ask me.
+- Do you ever wonder if this is all life is gonna be?
+- You know, Buy More? Burbank? Are the best years behind us?
+- Whoa, whoa.
+- Wow.
+- That sounds like candor.
+- Yeah, no.
+- Yes. No. Yeah, no. I mean, I can handle candor.
+- I'm an emotional man. But candor from you?
+- No-ski, Bartowski. No interest.
+- You knew that.
+- I must be worse off than I thought.
+- I don't know why.
+- My life would be a never-ending Cialis commercial if I had her.
+- Hey.
+- Hey.
+- You look gorgeous.
+- How was, uh?
+- Russia this time?
+- I wish I had good news.
+- There's no sign of your mom or Volkoff anywhere.
+- What about his headquarters?
+- Boarded up.
+- For the last month, every trail has gone cold.
+- They're underground. Any luck with... ?
+- Tests?
+- You'd have heard.
+- And by that I mean you'd have heard my giant sigh of relief, even in Moscow.
+- Ha, ha.
+- You'll get it back soon enough.
+- When? What's the timeline?
+- I'm hoping very soon.
+- Because I haven't been on a mission in a month.
+- I wake up with my trigger finger twitching.
+- It's itchy. Literally, it itches.
+- Um, all the scientists who were checking me out, they hit a wall.
+- But they're sending a specialist in. Should be here any minute.
+- Better be good.
+- Casey... nobody wants to put the team back together on missions more than me.
+- [GRUNTS]
+- He's not being fair.
+- Hey.
+- Don't let anybody pressure you.
+- Hey, hey, no pressure, buddy, but, uh, Casey is a disaster.
+- Morgan.
+- No, I'm worried about the guy, okay?
+- I was talking to Alex. He went over to move furniture.
+- He stood there, staring at her fish t*nk, muttering about an itchy trigger finger.
+- I need the Intersect back. I get it.
+- He gets it.
+- Okay.
+- Look, the specialist is probably here right now, so wish me luck.
+- Really, really, really good luck.
+- Hello?
+- [NINJA GRUNTS]
+- [GRUNTS]
+- [GRUNTS]
+- [GROANS]
+- Stop! Oh!
+- Whoa, ho, ho. Whoo!
+- Amazing work, Agent Carmichael.
+- You've got the stones of a bull.
+- Thanks. And who might you be?
+- Agent Rye. Jim.
+- CIA psyops division, Langley. Forgive the dramatic introduction... but I need to know what kind of man I was working with.
+- And you, taking on three ninjas without the Intersect?
+- Lmpressive.
+- Thanks. Ha.
+- You're, uh, different than the other scientists.
+- I don't believe the psychological rock can be hoisted off the Intersect... by watching kittens play with yarn.
+- Huh.
+- My method is physical... psychological, painful... brutal.
+- Brutal? Can't wait to get started.
+- Chuck, if you're serious about restoring the Intersect... then I promise you, at the end of this process you will be a spy again.
+- Now what do you say?
+- You with me?
+- Let's get physical.
+- Visualize for me the rock sitting on the Intersect.
+- Done. It's, uh, granite, I guess.
+- Ooh. With specks of marble. The kind of...
+- Talk to me about size. Is it large, small?
+- Large-y small? I don't know, it's... Ow.
+- What was that for?
+- We're starting with pain therapy.
+- That was the required dose to lift a small psychological rock.
+- Great, great. Got it.
+- Small psychological rock. Okay, good. Got it. Ow.
+- Why?
+- That was the shock for a medium.
+- I need to know what I'm dealing with.
+- Oh, so if it's a boulder... are you gonna hit him with a t*nk?
+- I have to do this.
+- We are digging deep into my mind.
+- It looks like he's hitting you.
+- Agent Walker, how long has it been since you've done kempo karate?
+- Not since spy candidate school.
+- Naihanchi one!
+- Unh.
+- Naihanchi two! Bear kata.
+- Unh.
+- [YELLS]
+- Old man kata. Hyah, hyah.
+- [GRUNTING]
+- Well executed.
+- And you smell delightfully of grapefruit.
+- Once we determine the proper method of treatment... be it fear, pain, anxiety... this will happen with the Intersect, like her memory of kempo.
+- We just have to find the right stimulus to reactivate.
+- Agent Walker, no more interruptions.
+- Yes. Thank you for coming in today. Next time, buy something.
+- [LAUGHING]
+- That's all I'm...
+- Dude, dude, listen to me.
+- That new Greta just disappeared into thin air.
+- I've seen her do that before.
+- Mm-hm.
+- I thought it was in my head.
+- No.
+- She also has a tail.
+- That is in your head. But this disappearing... isn't that highly suspicious?
+- I'll answer for you. Yes, beautiful Lester, it is.
+- [FOOTSTEPS APPROACHING]
+- Follow moi.
+- Black forest ham on honey oat with chipotle sauce... banana peppers and jalapeños?
+- See?
+- No Buy More employee is that sophisticated.
+- [SPEAKING IN ITALIAN]
+- Sarah: Oh.
+- God, you got b*at to a pulp.
+- Yeah, well, neuroscience hurts.
+- You know, I don't know about Agent Rye's method.
+- He seems a little unorthodox.
+- Well, yes, granted. No question about that. But he's doing his best.
+- And I'm willing to endure pain if it means getting the Intersect back.
+- Chuck, your physical and mental health are important too.
+- Ah, ah, ah.
+- Why are my earlobes sore?
+- Okay, I think I know how to fix this.
+- Oh. Ahem.
+- Oh.
+- Oh, yeah.
+- I should get b*at up more often.
+- Chuck, this, um, treatment, the experiments... promise me you're not doing it for me or us.
+- No. No, I'm doing it for the team.
+- No, I just...
+- I've never been a spy without the Intersect. And I quite like being a spy.
+- [SIGHS]
+- Doing great things, doing them with you. I want that back.
+- You don't need the Intersect to do great things. You're great on your own.
+- [SIGHS]
+- But am I a spy?
+- Yes. Yes, but you're Chuck Bartowski... and you do that all on your own.
+- Massage oil should be warm. I'll be right back.
+- [GROANS]
+- [SIGHS]
+- I think we should start with some top half.
+- Aah!
+- Honey, we have company.
+- Rye: What happened? Did you flash?
+- What the hell is going on?
+- What the hell is going on?
+- Did you flash?
+- Yes or no?
+- What are you doing in our bedroom?
+- Since our pain experiments failed, your fault, not mine... I think the key to restarting the Intersect is fear.
+- What are you doing in our home?
+- The castle's a safety zone. And apparently this place is too.
+- Chuck feels protected by you. We need to up the ante, again.
+- PFOD.
+- P-F?
+- Pfod?
+- Pure fear of death.
+- We need uncut, pure, adrenalized fear... rocketing through your plasma right now.
+- This was close, but, hey, that could be the cure.
+- Holy... ! Ha-ha.
+- Boy, you scared me half to death. L...
+- Two civilian employees have been watching me.
+- I'm getting annoyed by this.
+- I have a way of dealing with annoying things.
+- It's pleasant. But only for me.
+- Oh, I see.
+- And, uh, could you tell me which two civilians... might, uh, that be?
+- Why'd I even bother? Of course, I will keep an eye on them.
+- Okay.
+- Go home. Go home.
+- You go home.
+- Get out of here.
+- This way.
+- Chuck can't go on a mission without Intersect. That's insane.
+- As well as being an expert psyops operative and neurological Ph. D... Agent Rye is a fully trained field operative.
+- If he thinks the Intersect will be restored on a mission, he's going.
+- And a mission just hit our radar, Agent Rye. I think it fits your bill.
+- Is it dangerous?
+- Beckman: Incredibly.
+- Chance of violence?
+- Guaranteed.
+- Great.
+- This is not great. This is crazy.
+- Agent Walker, this is what Chuck wants.
+- Right, Chuck?
+- Whatever it takes to get the Intersect back.
+- Beckman: Chuck and Agent Rye will be going to a chalet in Gstaad, Switzerland... for the auction of a 100-carat diamond... the Cane Volto.
+- Our intelligence indicates leaders of criminal and t*rror1st organizations... plan to attend the auction.
+- This stone is more than it seems.
+- Method for money laundering, payment for illegal w*apon.
+- Yeah, we've done this before.
+- Thanks.
+- Ooh.
+- Chuck, your job is to win the auction and bring the stone back to the U. S.
+- A room full of underworld k*ll. Sounds great, right?
+- Casey and I will be there as a backup?
+- No.
+- No. With them in Gstaad, Chuck will never reach maximum fear.
+- Walker, you and Casey will monitor the mission from Castle.
+- What?
+- Chuck is going alone with Agent Rye?
+- I'll be able to flash if there's no safety net.
+- Yes, Chuck, but then there's no safety net.
+- We got a plane to catch. Let's move out.
+- Wish me luck?
+- Chuck, don't.
+- Don't be a hero.
+- Just come home safe to me, okay?
+- Quite a tableau.
+- Sometimes the scenery makes me cry.
+- Isn't it amazing being a spy?
+- I wish Sarah was here.
+- Not in, uh, an official capacity, of course.
+- The only way in or out of the chalet is the gondola.
+- Things go south, we're trapped.
+- You'll produce enough adrenalized fear to lift a car, let alone restart the Intersect.
+- [SIGHS]
+- He's a big boy, Walker.
+- Yeah, Chuck's never been on a mission without the Intersect.
+- Tell me, honestly, if things go wrong, do you think that he can handle himself?
+- I don't know. But I know he'll try.
+- Which is exactly what worries me.
+- I'm just gonna just check in again.
+- For the sixth time.
+- [PHONE RINGS]
+- Sarah: Chuck, are you there yet?
+- Yeah, we're here.
+- Sarah, Switzerland is amazing.
+- Other than the fact that this place is populated... with a crowd of international psychopaths... the air is so fresh, and the chocolate, so milky.
+- Uh, Chuck, listen, listen. If you get cornered and you still can't flash... just don't do anything crazy.
+- Don't worry. Everything's gonna be just fine. I'll talk to you soon, okay?
+- Hey, are you sure I don't need a disguise?
+- Hmm.
+- Someone could recognize you as CIA and come after you with a kn*fe.
+- Ha, ha. That would be great.
+- Auctioneer: Ladies and gentlemen, if you'll take your seats, we will begin the auction.
+- Thank you.
+- [CLEARS THROAT]
+- The seller, Aldebert De Smet.
+- Better known as the Belgian.
+- Chuck: Oh.
+- I bet I know how he likes his waffles.
+- Belgian. Yes, yes.
+- I love your humor. So disarming.
+- Oh.
+- De Smet is known for industrial espionage not precious gems... which is another reason this auction seems odd... aside from the crowd.
+- We've got underworld players from Russia, Serbia, Montenegro.
+- Wow, you really know your Euro baddies, don't you?
+- Focus. When you win the bidding, your competition is not gonna be happy.
+- If you're lucky, they'll follow you and try and k*ll you.
+- Fingers crossed.
+- Good luck.
+- No, wait.
+- You're going? I'm alone on this?
+- It's your best chance to flash.
+- Okay.
+- The Cane Volto diamond.
+- Very rare, 100 carats... D colored, internally flawless.
+- Bidding starts at 25 million Swiss francs.
+- Do I see 30 million? Thirty million.
+- Do I see 40?
+- Forty. Do I see 50?
+- Sir, you're already the high bidder.
+- Do I see? Fifty.
+- Sixty?
+- Sixty million Swiss francs?
+- MAN [IN RUSSIAN ACCENT]: Bid again, get b*llet in back.
+- Auctioneer: Holding at 50 million? Fifty million going once?
+- Nice try, Rye, but I'm not falling for it.
+- Going twice.
+- Sixty million Swiss francs.
+- I'm not afraid of your phony Russian accent or your finger g*n, okay?
+- Man: Bid again and die.
+- Do I hear 65?
+- Ooh, let's get crazy. Eighty million Swiss francs.
+- Auctioneer: Eighty million to bidder number three.
+- Oh, I didn't die. What a shocker.
+- Stop fooling around, okay? We got a job to do.
+- Do not bid.
+- Auctioneer: Eighty then, going once...
+- One hundred million Swiss francs.
+- Auctioneer: One hundred million, ladies and gentleman.
+- Going once... twice... sold.
+- Man: You can go.
+- I blew it.
+- You absolutely blew it. And no flash, huh?
+- Have you had this chocolate?
+- Yes, it's so milky.
+- So good. Thought that Russian would get your bl*od pumping.
+- I thought it was you.
+- The Russian? It was such a horrible accent. It sounded so phony.
+- What kind of a spy am I? I can't even be scared properly.
+- But listen, I had a thought.
+- Who carries around a hundred million Swiss francs on them? Nobody.
+- The diamond is gonna be here until the money is transferred.
+- Until then, we can get a better look at the thing.
+- You're good, Chuck. Genius minds think alike.
+- But I say we do more than just look at it.
+- Let's steal it.
+- You all know of this new Greta.
+- She's beautiful, yes. And efficient, sure.
+- But why all the suspicious behavior?
+- We're forming a fact-finding mob and we want you, my friends, involved.
+- We are calling it Operation Get-A-Greta.
+- The objective is to root out why such a nefarious individual... is working here at the Buy More.
+- Oh, crap. They're onto Greta.
+- What do we do?
+- Tell Greta. She'll handle it.
+- Right, she'll... Wait a minute.
+- What do you mean, "She'll handle it"? Hey.
+- Who is she?
+- Assassin.
+- No, she'll chop them up into a bunch of pieces.
+- Are you kidding me? I mean, these are our sort-of friends.
+- Colleagues?
+- Hmm.
+- No, huh? It doesn't matter. No assassins. We have to handle this.
+- We don't have to do anything. You're on your own.
+- Come on, I thought we were a team, you and I? A damn good one.
+- The team is DOA without the Intersect working.
+- So why protect something that's going up in smoke, hmm?
+- You wanna waste time with these idiots? You're on your own.
+- [SCOFFS]
+- Hey, Chuck, hold on a second.
+- Do you happen to have the time?
+- Amazing. Where did you learn that?
+- Star Trek.
+- Star Trek? Really?
+- No, not really. Bangladesh.
+- Meditative trancing.
+- The secret is mind over matter.
+- But I love the show.
+- Well, who doesn't.
+- [CHUCKLES]
+- There is nothing in here.
+- Well, what are we supposed to do now?
+- Now you flash.
+- How can I? I don't exactly fear death.
+- WOMAN [ON PA]: Security measures will activate in four, three... two, one.
+- Security measures?
+- I've heard of this thing.
+- The temp drops about 150 degrees in 30 seconds.
+- So unless you wanna become a Chucksicle... I suggest you flash.
+- [BREATHING HEAVILY]
+- [BEEPING]
+- It's not happening.
+- Concentrate. Feel the fear lifting the rock.
+- Chuck: No flash, no flash.
+- Maybe Sarah can help us. Yeah, Sarah can help us.
+- I got no service. What are we gonna do? My teeth are freezing.
+- Chuck, can you flash?
+- It's not happening.
+- How about now?
+- [STAMMERING] Nothing.
+- How about now?
+- All right. Move out of the way.
+- I honestly thought you would flash.
+- You knew the combination this whole time?
+- We have a mission to complete. I came prepared.
+- But I honestly wasn't prepared for this.
+- There's more than one diamond.
+- What is going on? This has gotta be worth billions of dollars.
+- They can't just be diamonds. On my missions, it's never just diamonds.
+- Yeah, you're right. They're working some angle.
+- Do you always carry a loupe?
+- Yeah, well, when I heard the mission was diamond-related... I took the liberty of grabbing a loupe out of Castle's closet.
+- I took an online gemology class on the flight here.
+- It was very convenient.
+- Like I thought, fake. It's made of glass. But there's something embedded inside.
+- Microdot.
+- Replace it with our phony.
+- This is a fake too.
+- Great work, Bartowski.
+- Now we gotta figure out what the story is on these phony diamonds.
+- Chuck: Rye, I don't understand.
+- A minute ago, I was truly fearing for my life. Why isn't this working?
+- We need to explore a more sophisticated level of fear therapy.
+- The psychological rock has keyed onto a deeper anxiety... a person... a relationship.
+- With whom?
+- Ah. What are you... ?
+- With her.
+- Well, this has been a quiet lunch.
+- Uh. I should let you get back to your books.
+- And you back to work.
+- How is that going by the way?
+- What have you heard?
+- Just what Morgan's told me.
+- That he's about ready to have an intervention on you.
+- Look, we both know you haven't been on a mission in a while... but I think there's a little more to this than just an itchy trigger finger.
+- What gives?
+- I'm preparing myself psychologically... in case I get sent back to Afghanistan or Iraq.
+- I got soft. I made friends here.
+- Well, you know Morgan is scared of the team being broken up too.
+- And if you are transferred, which might not even happen... don't you think it'd be better to be nice to your friends... than drive them away?
+- Just a thought.
+- [SIGHS]
+- Hey, fellas.
+- What are you doing? Can you tell me what this is?
+- Not a lure for the new Greta.
+- Do me a favor. You need to back off this Greta thing. For your own good.
+- The operation is underway. You can't stop this pit bull.
+- He's got a taste for meat.
+- Who's gonna be meat? You guys.
+- You don't scare us.
+- Lester: Yeah.
+- We won't be stopped. And we can't be stopped.
+- And we won't be stopped.
+- [FOOTSTEPS APPROACHING]
+- Lester: I think I see her. Move.
+- Move.
+- Hey, what are you... ?
+- Hey, now! Wow, ha-ha.
+- You have to stop that. I have a bad ticker.
+- This is absolutely the last straw.
+- They put a webcam in my locker, bugged my price g*n.
+- The psychotic one follows me, narrating, "The tracking of the Greta marmot. "
+- What does that even mean?
+- Which one do you think is the psychotic one? Doesn't matter.
+- If they discover my identity, it'll breach national security... and a CIA facility will be at risk.
+- It's time to neutralize the risk.
+- Oh, hold on a second, please. They don't know anything, okay?
+- You... Trust me, they have the mental capacity of field mice.
+- They bother me again, they meet my favorite friend.
+- Understood.
+- Rye: I'm magnifying the microdot.
+- God only knows what's on it.
+- But it can't be good.
+- We'll start the analysis and send it back to the team at Castle.
+- Do you really think that Sarah is the emotional rock sitting on the Intersect?
+- Why do you always call for her before you flash?
+- You did it in the bedroom and in the vault.
+- Yeah, well, you know, I was...
+- Scared.
+- Perfectly normal.
+- For a Nerd Herder.
+- But a spy, Chuck, handles his fear on his own.
+- Or her own.
+- Ask yourself a question.
+- Are you a spy or are you a guy with a spy girlfriend?
+- I'm a spy.
+- The microdot is heavily encrypted... but it appears to contain photographs and blueprints for CIA assets.
+- Belgian is selling our intel to the highest bidder.
+- CHUCK [OVER MONITOR]: And there are a dozen other fake diamonds.
+- Colonel Casey, Agent Walker, finish decoding the intel.
+- Bartowski and Rye, capture the Belgian and recover the fake stones.
+- Until we know what's on those microdots... this is code red and could likely get very ugly.
+- I feel it's essential I go with Chuck and Rye to Switzerland.
+- Um, I think Sarah should let us handle this... seeing as this is the only way I will get the Intersect back working.
+- We're talking about real danger now.
+- I can only handle fake danger?
+- I know Intersect is important but none of Rye's therapies have worked.
+- The microdot contains highly sensitive information the wrong people will k*ll for.
+- I can take care of these people without you holding my hand.
+- Why does it make sense to risk your life?
+- It's what I do, I'm a spy.
+- No, Chuck, you're not.
+- Not right now.
+- The mission is best accomplished with the proper manpower.
+- Agent Walker, get to Gstaad.
+- A supersonic jet will have me there in five hours. We'll talk.
+- Okay? I'm sorry Chuck. I just can't let you risk your own life.
+- Greta to the cage. Greta to the cage, please.
+- Greta to the cage.
+- A delicious, though complicated, footlong sub... with black forest ham... honey oat...
+- No, no, no.
+- ... chipotle sauce and banana peppers...
+- What are you doing?
+- Lf she doesn't k*ll you, I will. ... and jalapeños... has been found with your name on it.
+- So come to the cage.
+- Now we wait.
+- [LESTER LAUGHS]
+- So I see our little lure worked, eh, Greta?
+- If that is your name.
+- Come, sit.
+- What the hell are you doing, moron?
+- Listen to me. Mm-hm.
+- [CLEARS THROAT]
+- We can do this the hard way or we can do this... the way... that's very difficult.
+- Whoa, whoa, stop, guys. Greta, guys... quit this now.
+- Lester: No.
+- I have had it. This stops here and now.
+- Who are you, Greta? And what do you know?
+- [GASPS]
+- Okay, there it is.
+- There it is. We are prepared for the kn*fe eventuality.
+- Jeffrey, please disarm her.
+- No.
+- Whoa, mama.
+- The only question is, do you wanna die with your wig on or off?
+- Are you talking about my hair?
+- Wait, no. Whatever you're thinking, do not do it.
+- It is not worth it.
+- Stand down. Now.
+- Stand down.
+- What is going on here?
+- Her locker was full of credit card slips.
+- And she was making off with the head massagers.
+- She's been sneaking around because she's a thief.
+- [GASPS]
+- You swine. How could you do that to me after I trusted you?
+- Let's go. Let's go. Come on.
+- Thank you. Well, done.
+- Casey, thank you.
+- Mm.
+- Okay, you're going downtown.
+- Thief?
+- How does a thief disappear into thin air?
+- There's an old walkway behind the walls in the HTR for electrical repairs.
+- Should have been boarded up after the fire, but she found it.
+- Why did she transmogrify into a woodland creature?
+- Shh.
+- Why does she have a tail?
+- Consider that ignored. You fellas did a great job.
+- Buy More thanks you.
+- That was intense. We caught a thief.
+- And I need a change of trousers.
+- Rye: Hey, hey, hey, Chuck, I think we got a visitor. Yep.
+- The Belgian just entered the vault.
+- Belgian: There's no microdot.
+- Evidently, we, uh, had a security breach?
+- Belgian: Get surveillance footage of the vault and the hallway.
+- And meet me at the gondola.
+- But the Russian buyer...
+- No time for that. Pack up the diamonds. We're leaving now.
+- Gondola.
+- Perfect. Enclosed space, no escape.
+- We'll arrest them there.
+- Uh, Sarah's plane is almost here.
+- Well, we can wait for her and lose him.
+- Or go be heroes.
+- Let's be heroes.
+- Thattaboy.
+- Yes.
+- CHUCK [ON RECORDING]: Hey, it's Chuck. You know what to do.
+- It's me again. Why aren't you getting my calls? Call me, okay?
+- I love you.
+- Colonel Casey, I've admired your work for years... but this outpost and its personnel... are unprofessional.
+- And I'm disappointed in you.
+- Well, listen, Agent Greta.
+- I don't know who you've worked with or what crew you were on.
+- This is the best damn spy team in the world.
+- We are strong. So do us a favor, don't let the door hit you in the ass.
+- [BOTH GROWL]
+- [SIGHS]
+- We are strong, aren't we?
+- Mm.
+- Yeah, even if we are missing a few pieces.
+- Doesn't it feel better being part of a team... than always suffering alone.
+- Right. I always forget the no-touch thing. Point taken.
+- [MONITOR BEEPING]
+- Oh, man. Speaking of missing pieces.
+- Casey, why is Chuck on that monitor?
+- This isn't good.
+- [PHONE RINGS]
+- Hey.
+- Chuck's on the microdot.
+- The Belgian knows he's the Intersect.
+- Sarah: What?
+- Come on, Chuck, pick up the phone.
+- [PHONE RINGS]
+- SARAH [OVER PHONE]: Chuck.
+- Sarah.
+- Where are you?
+- We're about to arrest the Belgian.
+- Lf anything happens, I know I'll flash.
+- The Belgian knows...
+- Walker, we can handle it from here.
+- No, wait!
+- All right, just follow my lead.
+- If we get into real trouble, you'll get us out of it. You don't need Sarah.
+- This is all you.
+- Last chance, Chuck.
+- On or off?
+- On.
+- Aldebert De Smet, you're coming with us.
+- No, no, no. Agent Carmichael is coming with me.
+- The assets in your head is worth far more... than the entire list embedded in these microchips.
+- Surrender or die.
+- They know I'm the Intersect.
+- Scared?
+- Me too.
+- [SIGHS]
+- Drop your w*apon.
+- No tether, no Sarah.
+- We're in it up to our chins.
+- How we feeling, Chuck?
+- Not great.
+- I sort of flashed, but I'm not sure.
+- All right. Well, let's find out.
+- [ALL GRUNTING]
+- [GRUNTS]
+- Rye.
+- Rye!
+- Two hundred feet to the rocks below.
+- Talk about some serious danger, huh?
+- Ow.
+- Anything?
+- No. No, nothing yet.
+- Believe me, I'm plenty terrified. Help me up.
+- Sorry, Chuck, not gonna happen.
+- What? No. My hands are slipping.
+- Rye, I may actually die right now.
+- Fantastic. This is your final test. The wind's picking up.
+- You're looking death in the face. Only thing that can save you is Intersect.
+- Focus, Chuck. You can do this.
+- [CHUCK GROANING]
+- No, this is crazy. It's not coming back.
+- But you know the rock is Sarah.
+- Tell yourself you don't need her and give in to the fear.
+- But I do need her. I love her.
+- I'd rather love Sarah than have the Intersect. Help me up.
+- The CIA didn't send me out here to affirm your love, Bartowski.
+- You need the Intersect up and running. Now, get that rock off your chest... and be a real spy like me.
+- Did I just get sh*t?
+- No, no, no.
+- I certainly did.
+- Grab my hand or die.
+- Come on.
+- [PHONE RINGS]
+- What's going on? Where are you?
+- Pursue Agent Carmichael and we will k*ll him.
+- Slowly.
+- There will be no further warning.
+- No. Please wait.
+- General, I want immediate authorization to hunt down this son of a bitch.
+- I would grant if there was indication De Smet was in Belgium.
+- There's no indication of his whereabouts.
+- They were at Gstaad Airport.
+- I have a witness who saw them board a private jet, tail number CLM...
+- CLM1211. I know, Agent Walker.
+- The plane didn't just disappear. It had to have landed somewhere.
+- We put a code red out to every clandestine agency on the planet.
+- The moment there's a sign of Chuck, we'll mobilize every resource.
+- Colonel Casey, you've got your mission. You're running point.
+- And me?
+- Sarah, he's out there. We'll find him.
+- But until there's intel, go home and get some rest.
+- You'll be informed of any developments.
+- I'm staying right here.
+- You're going home. That's an order.
+- [SIGHS]
+- Bartowski's smart. Intersect or no, he'll be fine.
+- This is all my fault.
+- He did this to prove to me that he could be a spy.
+- [CHUCK BREATHING HEAVILY]
+- [GRUNTS]
+- What do you want?
+- I want the Intersect.
+- What are you doing, Walker?
+- [SIGHS]
+- I'm gonna go find Chuck.
+- We'll go together.
+- Wherever he is, we will find him and we'll bring him back.
+- Thank you.
+- I don't have it, Mr. Belgian... De Smet.
+- It's gone. I lost it.
+- Please, Agent Carmichael, don't take me for a fool.
+- The less you resist, the less painful this will be.

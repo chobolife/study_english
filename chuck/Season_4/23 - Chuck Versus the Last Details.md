@@ -1,0 +1,765 @@
+# Chuck Versus the Last Details
+
+- Elle, you know that Intersect project that Dad was working on?
+- I've been trying to figure it out for weeks. It's in my head.
+- Ellie: From what I can piece together from his files,
+- Dad used this program to input a new identity into an operative.
+- But once he went undercover, something went wrong.
+- The program took over. He became his cover identity.
+- Chuck: Agent X is Alexei Volkoff?
+- I have a company to run and I need leverage to run it.
+- Victoria: And Norseman's the most dangerous w*apon in the world.
+- Rebuild the device as quickly as possible.
+- That way, no one can touch me... ever.
+- (door clangs open in distance, footfalls)
+- Right this way, Miss Volkoff.
+- Again, I'm sorry it's taken so long to reassemble The Norseman, but we've finally done it.
+- I should hope so.
+- Miss Volkoff's patience has worn very thin.
+- Whoever's been trying to sabotage the operation certainly won't find their way down here.
+- (w*apon clicks)
+- (w*apon beeping)
+- (chuckling)
+- (w*apon beeps loudly, then chirps a few times)
+- (Riley sighs)
+- Riley: Let me, Vivian.
+- (w*apon briefly whirs)
+- If-if I may ask, who is the first subject going to be?
+- (w*apon clicks, whirs)
+- Ow!
+- Scientist: God! Ow!
+- God! That noise!
+- (whirring stops) Amazing!
+- It located the correct DNA.
+- It works! You know, dear, you really should try to do some of this dirty work yourself.
+- You know, the head of Volkoff Industries needs a public face that spreads fear... and respect.
+- Thank you.
+- I appreciate your guidance.
+- Riley: Of course, dear.
+- After you.
+- (door slams shut)
+- (control line zips up, clanks ceiling)
+- (door bursts open, g*n cocking)
+- I think the proper word right now would be "freeze. "
+- Hello, Riley.
+- Vivian, meet the woman who betrayed... your father for 20 years.
+- Frost, welcome back!
+- (g*n smacks Mary, body hits floor)
+- Good morning.
+- You know what we have to do today?
+- Mmm.
+- Hunt someone? No.
+- Blow something up? No, again.
+- M-mm. Crawl through... sewers or... rat holes or underground lairs filled with sewage and/or rats?
+- No, no, and no.
+- Today we have a day off from the CIA.
+- Today is about you and me and our wedding.
+- (whispers): God, that's good.
+- Mmm.
+- (grunts)
+- I'm sorry my bridesmaids couldn't help out more.
+- Staging that coup is taking longer than expected.
+- No. That's totally understandable.
+- I mean, you know, coups take time.
+- Anyway, uh, Awesome and Morgan and Ellie have basically taken over every chore we had, so...
+- Your family is so sweet.
+- They're bending over backwards to protect us from anything that's stressful.
+- I know.
+- Of course there is that one little thing I have to do that you don't get to know about, because I am adorable.
+- (giggling): Yes, you are.
+- Everything is perfect. Nothing can go wrong.
+- Oh, Sarah, you didn't.
+- (clang, crash)
+- Morgan: Chuck!
+- What? Why would you say that?
+- Do you not watch movies?
+- Well, I finally watched Mannequin.
+- Oh, yeah? Did you like it?
+- Morgan: Not good. Little help.
+- Oh, my God!
+- Ellie: Oh, my God. Oh, my God.
+- Honey, get him down. I got him.
+- Yo!
+- Captain: Okay, bud.
+- Uh, just go limp; Fall into my arms. Go limp! You go limp. Chuck!
+- Good morning. Everything...
+- Everything fine here.
+- Nothing to worry about.
+- Morgan: Chuck! Do something!
+- All right, everybody calm down. I got this.
+- Whoo!
+- (Chuck grunts)
+- All right, here we go. Here.
+- Here we go.
+- Chuck: You all right? Yeah, all good.
+- Your face is a little flush.
+- Well, so... Coming down!
+- Awesome! Impressive, isn't it?
+- You seriously don't do any core work?
+- Oh, just sitting up to reach the remote.
+- Bitchin', dude. Right?
+- Oh, okay? You know what?
+- Chuck, Sarah, that was great, but seriously, back inside. I don't want you doing any work today. Go do something romantic, okay?
+- Chuck: Right. Romantic, got it. Thank you.
+- Morgan? Yes, ma'am.
+- We have more twinkle lights, don't we? Yes, ma'am.
+- Because this place has to be magical.
+- Yes, ma'am. Magical! Morgan...
+- Yes, ma'am.
+- Honey, you're scaring me.
+- Just keep it moving.
+- I hear you, honey. I'll...
+- I'll take care of it, I promise.
+- Thank you, Dad.
+- Guys, guys, I'm so sorry.
+- But, uh, I need a little help here.
+- I just told Ellie that I have all these extra twinkle lights, And I don't have actual twinkle lights, and she could yell at me.
+- Oh, do you want me to just go out and get some for you?
+- Can you do that?
+- Yeah. - Really?
+- Of course. You're the best.
+- You are wonderful. Come here.
+- And did I tell you... how very excited I am to have you as my very, very hot date to Chuck's wedding?
+- See, I was figuring when this day came, I would be taking my mother.
+- Yes, so... Well, your mom's gonna have to get her own date, because you are mine. Oh.
+- (growls)
+- (cell phone buzzes)
+- Castle. Oh, no.
+- "Oh, no, " what?
+- What? Wha-wha-wha-wha-wha-what? Do we have a mission? Today?
+- I have a mission. Oh.
+- Morgan: I'll just tell Ellie she's gonna have to do without us.
+- No, no. Not you.
+- (door opens)
+- What's that about? (door shuts)
+- Buon giorno...
+- No. No. Casey, no way.
+- We have the week off.
+- You'd better be here to talk mimosas or wedding.
+- I am.
+- Your mom might not be able to make it.
+- Why? What happened?
+- She's been taken... by Vivian Volkoff.
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Why was she even working on Volkoff?
+- That was our case. She must be trying to protect us.
+- Taking Vivian off our plate so we could focus on the wedding.
+- Yeah, but look how she went in-- no backup, no contingency...
+- Have you even spoken to her lately? No. I haven't even gotten a chance to ask her about my Dad and Agent X; find out if she knew about it.
+- Where is she, Sarah?
+- Well, this is her last communiqué.
+- This is a mine in Colombia.
+- Lot of bad guy traffic there for some reason.
+- Okay, good. So we start there. It's a quick flight, and we'll have your mom back for the rehearsal dinner. - Sarah...
+- I need my best man.
+- You need your best man!
+- Come on! Let's go get your mom, dude!
+- Time to save the day.
+- No, uh, Morgan, Morgan, uh... I actually I need you to save the day in a different way... by... creating a very romantic video montage of me and Sarah for our rehearsal dinner.
+- Oh. Hmm.
+- Hmm, not quite as Superman as I'd like, but, uh, of course, man, anything you need.
+- Thank you so much. Um...
+- Just a little problem...
+- Sarah doesn't have any old pictures.
+- So I was thinking maybe we could just Photoshop her into some of the different places that she's lived, something kind of cute.
+- Totally cute. Okay.
+- I get it. I got it. I'm on it.
+- Done. I'm on it. Thanks, buddy.
+- Yeah, of course. My best man.
+- Means a lot to me. You know... Yeah.
+- Best man. Nah...
+- You are the best man. Come on! I am, aren't I.
+- Jeffrey, our time has come.
+- Need some footage of Sarah, do you?
+- Why?
+- You don't have any, do you?
+- We have over 1, 250 hours of Sarah-related footage.
+- My clients have been exploring their options as filmmakers ever since realizing that Jeffster! may not be as... lucrative as expected. No way.
+- I've had a camera running for years.
+- Jeff: We have voyeur, we have candid, we have nip slips of Chuck.
+- Okay, all right, good, great. Listen, all right...
+- (groans) Cannot express to you the rage that is actually building up...
+- On the other hand...
+- I really could use that footage to complete this present for Chuck, so... (clears throat)
+- May I have this footage?
+- Lester: Grimes, I am a montage... artist.
+- I am gonna need first and... final cut. I am fairly certain it'll turn out terrible...
+- I can hear you... But I do need the footage. So...
+- You may have first cut, then he will hand it over to me, and then I will make it good.
+- Yes. Uh, my clients will attach themselves under those terms. Agreed.
+- Morgan: Casey!
+- Good news.
+- Best man chores are off the plate, so I am fully avail for the mission.
+- Let's go save Chuck's mom!
+- Howitzer.
+- All right!
+- (imitates b*ll*ts firing): Na-na-na-na, na-na-na-na, na, na, na... nah... I don't know.
+- I kind of like the ones that make me look big,  you know? You're not coming.
+- Can't believe how much you worry.
+- Casey, listen to me.
+- All the wedding stuff is going to get taken care of.
+- Ellie is on it.
+- And I need to be here for my team.
+- You're not part of any team. I don't see...
+- How could you say that?
+- I've have been doing a ton of really, like, big-time stuff lately.
+- You're not coming, so why don't you just... focus on your twinkle lights.
+- My twinkle lights.
+- Ouch.
+- (explosions booming)
+- (indistinct chatter)
+- Oh, God.
+- Uh...
+- (Sarah sighs)
+- Lot of chickens and stray dogs, and not a lot of top-secret holding cells.
+- Where do we even start looking?
+- How many mines have security like that?
+- Let's find out what these guards are up to, huh?
+- (speaking Spanish)
+- Hope you boys are hungry.
+- Casey: Looks like there's two entrances to the mine.
+- The miners go in one; guards go in the other.
+- Bet you Volkoff's down in that one.
+- Well, if your mom is still in the area, she's probably being held down there.
+- All right. What are we waiting for? Let's do this.
+- (speaking Spanish)
+- (chuckling)
+- Ugh.
+- Casey: The guards are leaving.
+- We got to move. Yeah, well, we can't just waltz in after them. Look at the traffic going in and out. We might be way outmanned.
+- I have an idea. Why don't we leave the table before this thing attacks us?
+- Yeah. Agreed.
+- Gracias.
+- (chuckles)
+- (grunting and groaning, loud body blows)
+- Move it along, Chewie.
+- Chewie?
+- Why are you calling him Chewie?
+- He didn't even eat anything off that disgusting platter.
+- Honey, it's a reference to Star...
+- Oh, I love you.
+- I got a bad feeling about this.
+- Prisoner transfer from Pueblo facility.
+- Do you have documentation for that?
+- Sarah: It was a verbal.
+- So if you just tell us which cell is available, we'll take our man back there.
+- I don't know how you ran things in Pueblo, but you're not getting back there without the proper paperwork.
+- Casey (whispering): This is what happens when you draw your plans from Star Wars.
+- Got to get bloody now.
+- Just hang on. Hang on a minute.
+- Hang on.
+- Chuck: Uh, excuse me, sir.
+- Uh, look, I don't mean to... I don't mean to bug you, but can you look at the cute little number that came in with me?
+- Not the large man.
+- Real pretty one-- blonde.
+- Girls like that are pretty few and far between in Pueblo, if you know what I mean.
+- The two of us have kind of had this will they/won't they, burgeoning office romance going.
+- I'm really trying to impress her, so could you help me out a little bit?
+- b*at your man.
+- Sorry?
+- Once, I snapped a guy's neck for a girl.
+- She melted all over me.
+- Chuck: Is that right?
+- I can kind of see that.
+- Okay. Locking that one away.
+- Oh, now. Right now.
+- You want me to do that now.
+- Okay, yeah. Now would be the appropriate... time.
+- (grunts)
+- Really?
+- Do you want to die alone?
+- (Chuck grunts)
+- Okay!
+- I did that! Wasn't that sexy?
+- Uh, so sexy.
+- Mm. All right. You two crazy kids take him back to cell 24.
+- But, uh, I think this girl's already been to cell 24.
+- Oh, she looks like a dirty one.
+- (chuckling)
+- (laughs)
+- Oh, I get it. Yeah, like cell 24. Dirty one.
+- (grunts)
+- (sighs)
+- Hey, that's so sweet. You defended my honor.
+- Well, you know, we're getting married in a week, sweetheart.
+- Now, let's get rid of this body, huh?
+- I'll get rid of it. You go find your mom.
+- I'll be right there as soon as I get this guy's pants off.
+- Oh, shut up. Move.
+- Come on. Let's go.
+- Looks like your mom's in cell 13.
+- (beeping)
+- (computer trilling)
+- Mom. Chuck!
+- You're about to get married.
+- What are you doing here?
+- Yes, exactly-- we're about to get married, which is why we're getting you out of here right now.
+- Oh, no, honey.
+- I'm sorry. I can't leave yet.
+- But you should go. I can handle myself.
+- No offense, Mary, but that's the attitude that got you captured in the first place.
+- Vivian's team has reassembled The Norseman down here.
+- I can't leave without it.
+- I'll just endure a couple of rounds of torture, and then I'll find a way to break out and get it. - Uh, no.
+- We're not leaving you here to get tortured.
+- We have a wedding to get you to.
+- Casey: Hey, come on, we got to move.
+- Let's go. Sweetheart, I know the wedding is important, but so is the nation's safety.
+- If I leave now, they will move the w*apon and we'll never get it.
+- Sarah: Mary, don't be stubborn.
+- We're just here to extract you, not finish a failed mission.
+- Failed? Stubborn?
+- Okay, okay, okay. Look, here's the plan-- I'm gonna go with Casey to get The Norseman; Sarah, you're gonna stay with Mom, make sure she doesn't get tortured. I don't need backup.
+- Why can't Casey stay here with your mom?
+- Hell, no. I'm going with Chuck.
+- Okay, great, that's the plan. See you soon.
+- I'll be outside.
+- (exhales sharply)
+- Casey: Interesting choice-- choosing your mom over your fianceé.
+- Oh, come on, man, I was just trying to make everyone feel...
+- Wait a minute, wait, wait, is that really how it looked?
+- Just remember, Bartowski, Sarah's the one you're gonna be sleeping next to at the end of every day.
+- She's the one you protect.
+- (kicks down door)
+- Where's The Norseman?
+- Mary: I don't know why Chuck felt it was necessary to come and get me.
+- I think Chuck wouldn't have felt it necessary if you had any backup.
+- Chuck knows that I can take care of myself.
+- Maybe, but now Chuck and the rest of his family are in harm's way two days before his wedding.
+- The food here is really ghastly.
+- Where's the guard?
+- It's been moved, but I don't know where.
+- Vivian's planning a meet to sell it to the highest bidder.
+- We got to get to that meet. And we got to get out of here before Vivian finds out we know about it and calls it off.
+- Come on, let's go before your girls k*ll each other.
+- You don't have to tell me twice.
+- Vivian: Everything's still locked down.
+- (whispers): Hold your fire.
+- They'll never k*ll me. You don't know that.
+- No interruptions, guard.
+- (chuckles)
+- Riley: Hello again, Frost.
+- Chuck: Sarah, the w*apon's been moved; Vivian's selling it.
+- If she turns up, keep her alive so the meet still happens.
+- What do you want with me?
+- I really just want to see you dead.
+- And I've been waiting for my young friend here to be ready to do it.
+- Vivian, surely this is one trigger that you'd like to pull yourself.
+- Mary: Vivian, I know you won't do this.
+- Riley: Do it, Vivian.
+- Don't.
+- Sarah: Everybody against the wall right now.
+- Move it. Now.
+- Vivian: Sarah!
+- I'm sorry, Frost has somewhere to be.
+- Hey.
+- Mom, it's time to go.
+- Mom?
+- The woman who betrayed my father is the mother of the man who's betrayed me? Well, that makes sense.
+- Vivian, there is still so much that you don't know and we need to talk about.
+- No, I'm done talking to you.
+- Casey: Guards could be here any second.
+- Come on, we got to move.
+- Let's go.
+- Come on, come on, come on, come on.
+- Vivian: Guards? Guards!
+- Okay, well... since we're not on a long plane ride home with my mom now, maybe we should talk about what what happened in the mine.
+- Okay. Talk.
+- All right, so, first of all, I know I messed up, but I was just trying to get all of us out of there safely.
+- I mean, the places was crawling with bad guys.
+- I know-- but sometimes it feels like you can protect me from anything... except your mom.
+- No, you're right.
+- You're right, but I-I can protect you, even from my mom, I promise.
+- (phone buzzing)
+- Beckman needs us at Castle.
+- No need to unpack.
+- Beckman: Team, it looks like Vivian Volkoff is indeed planning to auction off The Norseman device in Moscow in 12 hours.
+- It's up to you. We must strike now.
+- Uh, but can't someone else go?
+- I mean, our rehearsal dinner is tomorrow.
+- I'm afraid we don't have time to train a new team.
+- Oh, and thanks for the invite.
+- Oh...
+- N-No, um...
+- I'm not serious.
+- General, Vivian knows all of our faces, so how are we supposed to get in?
+- Agent Bartowski, if you don't mind?
+- An agent will impersonate one of the buyers.
+- They'll outbid all of the others for The Norseman device, and walk out the front door; no bloodshed.
+- Okay, except, like Sarah just said, Vivian knows all of our faces.
+- So not sure exactly how to avoid the bloodshed.
+- Luckily, one of the buyers Vivian invited was just detained by Interpol: Italian arms smuggler Etorre La Barba.
+- Remind you of anyone we know? Morgan?
+- General, Grimes is not prepared for an operation like this.
+- We don't have time to argue. He fits the profile.
+- You have your orders. Good luck, Team.
+- (computer chimes)
+- Etoray La barbah, huh?
+- Ciaobella!
+- Eh, spaghetti pizza.
+- Eh, mamamia!
+- It's a-me, Mario.
+- I sell-a the arms to-a the bad guys.
+- This is a horrible idea.
+- Buddy, are you absolutely sure that you feel comfortable doing this?
+- Sí, sí, si. Don't a-you worry about-a me, huh?
+- I take care of everything. I am-a you Best-a Man!
+- Whatever you need-- bada-boom!
+- You have to stop that.
+- Morgan will be fine.
+- Casey, you and I will provide plenty of backup.
+- (groans)
+- And you two will just stay here and get ready for the wedding.
+- Stay here? What? You're taking us off our own mission?
+- I-I appreciate you trying to protect us, Mom, I do, but Morgan is my best friend, and we've been on Vivian Volkoff for months.
+- In which time she's gone from harmless coed to one of the world's top w*apon dealers.
+- Which is why I had to step in in the first place, to fix your mistake, sweetheart.
+- Our mistake? Um...
+- I don't mean to be critical, but obviously, you've been very busy getting ready for the wedding, and your minds are elsewhere.
+- Yeah, like maybe on the fact that Dad turned an innocent man into Alexei Volkoff.
+- Mom, did you know about Agent X?
+- Chuck, I could not afford to let the CIA know that I knew about Agent X.
+- And neither should you, which is obviously something else we have to clean up.
+- We don't have time for this right now. The point is, Chuck and I are going on our mission, you're providing backup, and that's the way it's gonna be.
+- I don't think so. I agree with Sarah.
+- Thank you.
+- That is...
+- Sorry, sorry, sorry, guys, I need to borrow the big guy for one second.
+- Just best man stuff that just dawned on me.
+- I have to...
+- Thanks, buddy, it was getting kind of tense in there.
+- No problem, but you know the errand you gave me to take care of-- obviously I can't get to it right now, but not a problem.
+- Got my top people on it, so not to worry.
+- Couldn't we have just watched this at home? I have, like, a million things to do today.
+- Captain: Yeah, I love popcorn and massages as much as the next guy, but can we just get this started?
+- Moviemaking is a collaborative art, even for an auteur.
+- I have many people I'd like to thank-- my rep Big Mike, Jeffrey, my parents-ish, and, uh... my main man upstairs.
+- Anything is possible.
+- Let's get this puppy started, shall we, Jeffrey?
+- (romantic theme plays)
+- Heart.
+- Pancreas.
+- Cockle.
+- My cockle.
+- (Lester gibbering on video)
+- (screeches)
+- America.
+- Ellie: Stop, stop, stop.
+- Please, make it stop, make it stop.
+- God. Dude, dude, that is just unholy.
+- Thank you. Okay, I am going to need the footage from your clients.
+- I'm gonna be taking over from here.
+- W-Wait, does that mean Big Mike doesn't get his ten percent?
+- We weren't even paying them.
+- What?
+- Then what was I doing all day?
+- How do you guys feel that went?
+- Hey, what do you think?
+- I finally got the accent down.
+- (in bad accent): Don't move or I will k*ll you whereas you stand and not even your madre will recognize your corpse.
+- (spits)
+- Yeah.
+- If I had my druthers, you'd stay topside selling microwaves.
+- That's great, that's great.
+- Let's, let's, let's figure this out 'cause I thought we were past all this.
+- We're roomies, you've been training me really hard, I've been in danger a ton of times, and not to mention you love the little snack packs I bring on missions.
+- So, why suddenly are you being this big jerk to me?
+- It's Alex.
+- She's worried about you.
+- Oh.
+- Wait, wait, wait, wait, wait, wait, wait, okay, okay, you're telling me you are being a jerk because you care?
+- (grunts)
+- Yeah.
+- Fat load of good it's done me, too.
+- I promised Alex I'd keep you safe.
+- There are times on every mission when things go sideways.
+- That happens, I can't protect you, and I've broken a promise to my daughter.
+- I see your dilemma.
+- Yeah.
+- Everything's gonna be fine, everything will be fine.
+- Trust me, nothing will go wrong.
+- Why did I just say that?
+- Mm-hmm.
+- You know, you can wait in the van if you want. No, it's all right.
+- I think I'll give Chuck and Sarah a little space on this one.
+- It's hard to have kids.
+- You can't always protect 'em.
+- Yeah, or their idiot boyfriends.
+- (chuckles)
+- Casey: We're in position.
+- Is Grimes ready?
+- Chuck: Just a second, Casey.
+- I-I don't know if I can do this, uh, guys.
+- I've been thinking about it, and, um-- you know, what do I know about being a bad guy?
+- Plenty, buddy, plenty.
+- Look at that suit-- part Goldfinger, part Drax, right?
+- You noticed.
+- Come on, seriously, you got nothing to worry about.
+- We're going to be with you the whole time on the comms, not to mention the fact that we will be monitoring the video feed through these glasses.
+- And Casey will be on the opposite rooftop with a sn*per r*fle.
+- You know how he likes to sh**t things from far away.
+- I do, yeah. (chuckles)
+- Chuck: You can do this, Morgan, you can totally be a bad guy.
+- Okay, yeah, it's going to be great.
+- (exhales)
+- (humming "Darth Vader's Theme")
+- (Morgan hums along with Chuck)
+- (humming intensifies)
+- This'd better not take long.
+- I already tried to k*ll three people at this table.
+- (in Italian accent): Yes.
+- What do you mean?
+- No, you heard me the first time.
+- sh**t the puppy.
+- I am so sick of feeding him.
+- k*ll the puppy.
+- Ciao.
+- So hard to get good henchmen nowadays, hmm?
+- Si, si.
+- Thorium signature detected.
+- Looks like they're bringing in the Norseman. Casey?
+- Vivian: Welcome, gentlemen, I'm so sorry to have kept you waiting.
+- You're all here for the same reason: a chance to purchase one of the deadliest w*apon ever created-- the Norseman device.
+- By locking onto a target's DNA, it can k*ll a single person in the middle of a crowd with 100% accuracy.
+- Perfecto.
+- There's no way to run from it, even on the other side of the world.
+- Whoever ends up with it has an enormous advantage, but, truth is... it's an advantage I intend to keep.
+- (groans with pain)
+- (men groaning in agony)
+- Morgan: What do I do, guys?
+- Casey: Morgan, Morgan, you have to die, or they're going to k*ll you. Do it.
+- Oh, no!
+- Aah!
+- (body hits floor)
+- Morgan, whatever you do, stay calm.
+- Mom, Casey, tell me you got a line on him.
+- I got him in my sights.
+- If it gets hot, I'll take 'em all out.
+- Riley: Don't feel bad, Vivian.
+- Every man in this room would have k*ll you without a second thought.
+- That's why we collected their DNA.
+- This one-- he k*ll all the families of his rivals.
+- Sick.
+- And this one... he gassed an entire village of innocents just to eliminate... one enemy.
+- Sicker.
+- And this one right here with the beard...
+- Stop.
+- These are dangerous men-- I get it.
+- Riley: Vivian, I'm not trying to turn you into someone you're not.
+- I'm trying to turn you into who you need to be.
+- And you may still get your chance.
+- What do you mean?
+- There is a man in this room who isn't actually dead-- someone who has infiltrated our organization by pretending to be someone we invited here today.
+- He's merely feigning death.
+- Casey: Riley left my scope.
+- I do not have Riley.
+- Morgan, Morgan, don't move.
+- So, friend, are you going to get up?
+- The name's Carlisle.
+- Sebastian Carlisle.
+- Carl to my friends, which you are not.
+- I take it you're MI6?
+- I've been tracking you since Munich.
+- It was actually rather clever.
+- You see, first I cr...
+- Oh, I'm sorry, dear.
+- Next one's yours, promise.
+- Casey: Chuck, Sarah, Norseman's on the move.
+- You're on it, go.
+- Copy that.
+- Looks like they're taking it out of the building.
+- I'm going to help them secure the w*apon.
+- You stay here and keep Alex's boyfriend safe.
+- Roger that.
+- w*apon's leaving the building.
+- You ready? Yeah.
+- Always wanted to say this-- fasten your seat belt.
+- Literally, you should fasten your seat belt right now.
+- Oh, okay, sure.
+- (whispering): Guys...
+- I haven't heard anything in a while.
+- Please tell me it's okay to move.
+- Casey: Wait, wa-wa-wait.
+- Okay, okay, go quick.
+- I'll cover you.
+- (door opens)
+- (stammering)
+- Somebody-somebody-somebody's coming, somebody's coming.
+- Oh, Casey, they got acid, just like in that really disgusting scene from Breaking Bad.
+- I've never seen Breaking Bad.
+- You'd love it, it's great. What?
+- It's like the perfect counterprogramming to... the curtains. I can't see you. Morgan, shut up! They closed I can't protect you if I can't see the targets.
+- Run!
+- Okay.
+- What the... ? Oh. Who's that?
+- Hey. Hey, just one sec...
+- Did it!
+- Use your glasses.
+- Show me the targets with your glasses, Morgan.
+- And try not to move.
+- (groans)
+- (grunts)
+- (g*n, man groans)
+- Morgan?
+- Morgan, can you hear me? !
+- (body hits floor)
+- Morgan, can you hear me?
+- Morgan!
+- Yeah. Yeah.
+- (grunts)
+- Oh...
+- Casey, I think you sh*t me.
+- What about the rest?
+- Yeah, they're all dead.
+- Casey, that was amazing!
+- Oh, Lord, I feel faint.
+- Just breathe.
+- Get to the elevator.
+- I'll meet you outside.
+- Yeah. Yeah.
+- Looks like they're leaving the building.
+- (tires squealing)
+- (tires squealing)
+- (sensor beeps)
+- The w*apon's in the trunk.
+- I'm going to get something to open it.
+- You all right?
+- Don't pretend to care.
+- Vivian, I am truly sorry for everything that's happened, but there is so much that you don't know.
+- I know enough. I know that you're Agent X.
+- No, Vivian, I'm not.
+- Agent X... is your father.
+- He was an MI6 agent.
+- He was going undercover.
+- He let the CIA perform an experiment on him-- one that changed him into the man we know now as Alexei Volkoff.
+- But before that, he wasn't evil, and neither are you.
+- This... This is crazy.
+- Don't move.
+- Riley, is this true?
+- Yes, I'm afraid it is.
+- But, first, are you going to tell her who turned her father into Alexei Volkoff, huh?
+- It was Stephen J. Bartowski.
+- Chuck's father.
+- He and Frost manipulated your father to give up his own identity so they could further their CIA careers.
+- That's a lie!
+- No, it's the truth!
+- And I will not have you lie to Vivian anymore.
+- No!
+- (Sarah gasps)
+- Chuck.
+- You saved me.
+- Always.
+- Where's Vivian?
+- We have to find her.
+- Mary: No.
+- We should go.
+- You two have somewhere to be.
+- Honey, I totally dropped the ball on Chuck's present to Sarah.
+- I fell asleep right in the middle of cutting it.
+- You did what you could.
+- It'll be okay.
+- Look. There they are right now.
+- Guys, wow!
+- The courtyard-- it looks unbelievable.
+- I can't believe you did all this for us, Ellie.
+- Thank you so much, sis.
+- I promised myself that I wasn't gonna cry.
+- Mascara!
+- (laughing)
+- You ready for this?
+- Absolutely.
+- (camera shutter clicking)
+- Okay.
+- Hey.
+- Man, does Big Mike need this brandy Alexander.
+- Had another deal blow up in my face.
+- Huh.
+- But I do love the game.
+- What happened to your arm?
+- Wii Tennis.
+- Son, it's amazing you're not single. Mm.
+- (chuckles)
+- Casey.
+- How's the Sunshine Band, buddy?
+- (chuckles) It's KC and the Sunshine...
+- No one's ever used that on you, huh?
+- Really?
+- Seriously, um, there is one more thing I wanted to talk about. You're right.
+- I shouldn't be out there in the field.
+- Nah, not if it's making the woman I love worry, so you tell Alex I'm done, I am out.
+- Why don't you stand tall and tell her yourself?
+- Nah, it's better coming from you, I think.
+- No, no, why don't you tell her yourself?
+- Okay.
+- Hi.
+- I love you.
+- I love you.
+- Is he watching? No.
+- Should I walk away?
+- (giggles)
+- ♪ ♪
+- Mary: Many of you might not know me, but I am Chuck's and Ellie's mom.
+- (sighs) Truth be told, I was gone for a long time, and now that I'm back in their lives, I sometimes overcompensate.
+- But lucky for me, my soon-to-be daughter-in-law is very forgiving.
+- She's never heard me say it, but Sarah is one of the strongest and one of the most amazing women that I have ever met.
+- So I would like to propose this toast to her.
+- Sarah, thank you for taking care of my Chuck.
+- May you have many more adventures together, and may you always keep each other safe.
+- All: Oh.
+- (clinking) Thank you.
+- (clinking) Love you.
+- Love you.
+- Now for the little surprise I've been cooking up for you.
+- (humming)
+- Mm-hmm.
+- Excuse me. Hi.
+- Chuck, there's something I need to tell you about the video. It's...
+- What about the video?
+- ♪ ♪
+Oh.
+- (romantic theme playing)
+- (crowd oohing and aahing)
+- Lester never let you see my version.
+- Hope you like it.
+- (gasps)
+- What is this garbage?
+- (laughter)
+- (woman whooping)
+- (crowd sighing)
+- (phone buzzing)
+- (sighs)
+- Hello?
+- Hello, Chuck.
+- I hope I'm not interrupting anything important.
+- Vivian, what do you want?
+- To make you feel pain, the way I feel right now.
+- I've lost everyone important to me, and I have you and your family to thank for it.
+- Wait, wait, wait, wait. We can talk about this.
+- Or how about you look around the room at all your family and friends, and ask yourself, which one am I going to take from you?
+- You see, I still have another Norseman device.
+- Ple-Please, please.
+- Vivian, this is not you.
+- Okay, you don't do things like this.
+- Please don't do this.
+- I already have.
+- What's going on?
+- I think Vivian's going to try and k*ll my mom.
+- Oh, God, what is that noise? !
+- Oh.
+- Oh...
+- Oh!
+- Sarah? Sarah? Sarah! No! No! No! No! No! No!
+- No! No! No! No! No! No! Sarah!
+- (crowd gasping) Help me!
+- Help me. Help me.
+- Help me. Somebody help.
+- Woman: Calling 911.
+- Chuck: Oh, my God.
+- Oh, my God. Baby, baby, baby.
+- Baby.
+- Baby? Oh, my God.

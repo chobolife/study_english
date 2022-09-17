@@ -1,0 +1,829 @@
+# Chuck Versus the C.A.T. Squad
+
+- Man: They say it's a personality thing, but to me, a martini's got gin, not vodka.
+- Some folks like chocolate.
+- I'll take vanilla.
+- I say baseball over football.
+- And to me, man's best friend doesn't bark or fetch a ball.
+- See, personally, I like cats.
+- Meet my Clandestine Attack Team.
+- Better known as the CAT Squad.
+- Me-ow.
+- They were the best spy team in the business.
+- The year... 2003.
+- The girls...
+- Cold-hearted Carina.
+- (grunting)
+- Zondra, the bitch!
+- (grunting)
+- Amy... the party girl.
+- (grunting)
+- (grunts)
+- And... (grunting)
+- ... my pride and joy...
+- Sarah Walker.
+- (wind whips)
+- (g*n)
+- Go get 'em, Cats!
+- (women meowing, cat yowling)
+- Hmm.
+- Chuck: Buddy, hey?
+- You still with me? Yeah. Yeah. No. I just...
+- Your description of the CAT Squad has sent me into fantasy land.
+- I don't even want to think about what goes on there, but according to the CIA database, the CAT Squad was bad ass.
+- I just still hope they're tight, because I'm running dry trying to find Sarah's old friends for our engagement party.
+- Really? Um... here's a crazy notion.
+- Ask Sarah.
+- Well, yeah, uh, not-not such a wild notion.
+- It's just, she's being very reluctant to help.
+- You know, she-she's got a very complicated relationship with her family, she's lost touch with her friends, but I know she'd want someone there, you know, so I'm nudging, being a good fiancé.
+- I'm trying to help fix things.
+- Got it. Good.
+- Good for you. Where do I come in?
+- Well, uh, Carina was one of the Cats.
+- Carina, Carina?
+- So I need her info.
+- Chuck. Carina? Really?
+- I mean, Alex is gonna be there.
+- Alex, Carina. Carina, Alex.
+- Two of my lovers in the same place?
+- The universe may just collapse on itself.
+- Dude, give me the info.
+- Oh, fine. I don't even know if I have it anymore. I mean... (scoffs)
+- Here's her phone and e-mail and Facebook alias.
+- We're friends. Restricted.
+- I can't post on her wall or view pictures.
+- Go-Go easy on her. Break this whole Alex thing to her gently.
+- Carina's a-a delicate girl.
+- (grunting, yelling)
+- (grunting continues)
+- (cell phone ringtone)
+- (panting)
+- Walker in a white dress?
+- Please. But the Cats...
+- Interesting.
+- What?
+- My old spy partner's getting hitched.
+- Her fiancé wants to get the old team back together.
+- Nice.
+- (grunts)
+- (panting)
+- Woman: Hello?
+- Amy, Walker's getting married.
+- Oh, my God! Oh, my God! Oh, my God! Oh, my God!
+- Stop screaming. How do we find Zondra?
+- Ellie: Hi, Sarah.
+- Hey. Heading out?
+- Yes, to the in-laws.
+- Devon's packing up the car.
+- We're doing a little overnight for the grandparents.
+- But we'll be back with plenty of time for your party.
+- How's the invite list coming?
+- Done... I thought.
+- I told Chuck that I didn't really have anyone to invite, but he has this big idea now that he wants to discuss with me. Oh, boy.
+- Yeah. I'm really excited for the party, but digging into the past... old friends and family... it's, um...
+- It's a bit complicated for me.
+- And Chuck just dives right in.
+- Head first.
+- Well, I could talk to him.
+- No, I should probably try and get over the terror that I'm feeling right now.
+- Sarah, if you ever need to talk about complicated family situations, wedding stuff, anything, you can come to me.
+- Thank you. I appreciate that.
+- It does feel good to talk about it.
+- Anyway, have fun.
+- Well, not likely, but thank you.
+- We having company?
+- Oh, no, not we. You.
+- Two words: CAT Squad.
+- The CAT Squad.
+- Wow. I, um... I didn't see that one coming.
+- Well, you know, I thought it'd be fun.
+- I mean, your old team.
+- One could be a bridesmaid, or-or even the maid of honor.
+- I haven't seen them in a very long time, and I've changed a lot.
+- Look, I-I just think that we should have talked about this beforehand.
+- This could open a Pandora's box.
+- Really? How?
+- Well, first of all... Carina?
+- She was the mellow one.
+- Oh. So, you were a little wild back in the day.
+- Hey, hey, hey, Sarah.
+- I get it. I do. I get it. You're nervous.
+- I- I understand. I was terrified when I went searching for my mom, but look how that paid off.
+- It's just, you don't really know what to expect with this team.
+- (helicopter whirring) WOMAN (over bullhorn): Sarah Walker!
+- Oh, no. Oh, no, what?
+- (helicopter whirring)
+- What's going on?
+- Is it Close Encounters?
+- Is this really happening?
+- Woman: There's our girl!
+- ♪♪
+- It's my ex!
+- Heard you were getting married.
+- You know what that means.
+- Girls' night out.
+- I'm Chuck, by the way. Buckle up, girl. We're going for a ride.
+- We'll have her back by 12:00.
+- Midnight is very sensible!
+- (laughs) Try noon tomorrow, lover boy.
+- Maybe.
+- Morgan: Hello, Carina.
+- You look well.
+- Morgan. Remember? Morgan?
+- Something's different about you.
+- I am trying a new cologne.
+- That might be...
+- Let's go. (whistles)
+- I think she remembered me.
+- Sarah was right.
+- I honestly wasn't expecting that.
+- (cat yowling)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- Sarah?
+- (groans)
+- Head... hurts.
+- You're very dressed up... for bed.
+- Oh, we went to a club in Hollywood, and then another one in Vegas, and then an after-hours spot in Miami.
+- Who knew that Mikhail Gorbachev could dance so well?
+- I guess reconnecting wasn't such a bad idea after all, now, was it?
+- It was okay. Okay?
+- Well, okay is good. Okay is a start.
+- Springboard. Oh, Chuck.
+- Come on, you saw your friends, and you had fun.
+- The band's back together again!
+- No, the band is not back together again.
+- Why?
+- Look, some of us don't trust each other.
+- Well, maybe you should just have a quiet coffee, you know, and some conversation.
+- No, look.
+- A while ago, we were on a long-term mission, and the target kept anticipating our next move.
+- Something wasn't right in the team, so I swept our equipment for bugs, and I found a hidden transmitter in the heel of Zondra's boot.
+- She denied it was hers, and she passed a lie detector test.
+- And we shook on it and, uh, we decided to let it go, but it stirred some bad feelings.
+- Well, honey, if the CIA cleared Zondra, then it's got to be some kind of misunderstanding.
+- Right?
+- Time can heal those.
+- Margaritas don't hurt, either.
+- Speaking of which, I'm working on a new recipe for the party.
+- Engagement parties are not this squad's cup of tea.
+- They're leaving when they wake up, by the way.
+- The CAT Squad? They're here? Mm.
+- Yeah.
+- They were too tired to find a hotel room.
+- (sighs) Sarah, where is Carina?
+- (sighs)
+- Hi.
+- Good morning.
+- (high-pitched gasp)
+- What are you doing here? !
+- Mm. There was nowhere else to go except the floor.
+- But the floor can be fun, too.
+- Hmm? What? No! Get... Stop!
+- (grunts)
+- That was sultry.
+- You were just sultry right there.
+- And are you na... ?
+- Are you na... ?
+- Are you hitting on me?
+- Something is different about you.
+- The confidence, straight spine.
+- It can't be true, but you're behaving like you're having regular sexual intercourse.
+- Huh.
+- Martin, get back in this bed.
+- No. No!
+- All the times that I-I e-mailed you, snail mailed, texted, called out into the night... nothing.
+- You completely ignored me.
+- And now, I'm off the market, okay?
+- So I would like you to leave.
+- I have a lot of work to-to...
+- (gasping)
+- (gasping)
+- Chuck? ! Chuck!
+- That woman is an animal, okay?
+- And I will be back when she's gone!
+- This is ridiculous.
+- (muttering)
+- Well, that is a snazzy outfit.
+- (laughs)
+- Hey. Hi.
+- What brings you by here?
+- Breakfast.
+- (sighs)
+- You forgot. Here's the thing.
+- I was helping Chuck surprise Sarah.
+- Okay? She has some old work friends in town for this engagement party... just old hens... you know, and I just got caught up trying to help and be the good friend, and I'm sorry.
+- Let's just reschedule. No. Two seconds, bam, I'm out of this whole fashion statement and I'm... and I'm gonna be ready to go, okay?
+- I'll meet you back here... When are you starting the French toast?
+- Chuck said you would... you know, none of us can cook.
+- Oh. Hi.
+- Um, I'm Carina. Okay.
+- Carina, this is... this is Alex.
+- This is my girlfriend.
+- Beautiful girlfriend.
+- And this is, um... one of Sarah's...
+- Old hens.
+- Right. (laughs) Well...
+- It looks like you have been enlisted to cook.
+- Yeah, as in now. We are starving.
+- Oh, okay. Just...
+- Easy, easy, back inside... you; off you go.
+- (nervous chuckle)
+- Draft'll be the... the death of you.
+- She's just... whoa.
+- I'm sorry, okay?
+- You look beautiful, and I feel like a jerk.
+- Lunch tomorrow, okay?
+- Sure.
+- (slow chuckle)
+- And don't worry...
+- Morgan, I trust you.
+- Thank you.
+- Well, and... I know your dad.
+- And I trust you.
+- Right.
+- Now, that seemed like a threat.
+- ♪♪
+- So... I bet you Cats have some wild stories from your CAT Squad-ing days, huh?
+- They're top secret.
+- Are they? AMY: We could talk about our mission to Reykjavik.
+- The sulfur baths?
+- The floating massages.
+- Don't you guys ever miss it?
+- Running around together?
+- I guess.
+- Sometimes.
+- But I also like working one on one.
+- Hey, what's up?
+- How are you? Anybody want some more bacon?
+- Anything? Nothing?
+- Zondra: Hey, remember Pyongyang? That dissident we broke out of jail?
+- We did all those shots of snake's bl*od afterwards.
+- That was you and Sarah.
+- You guys made an amazing team.
+- I learned so much from you, had fun.
+- I think about it a lot.
+- I've b... I've been on a number of missions myself, actually, yeah.
+- My first one, I had to disarm this expl*sive device using Internet pornography.
+- So... (laughs)
+- Wow. (fake laugh)
+- This Chuck, quite a catch.
+- He's all right.
+- He certainly is.
+- Zondra: Okay, well, girls, it was good to see you.
+- Sarah. Got to catch a flight.
+- Me, too. You got room on your bike?
+- Yeah. Guess I'd better go, too.
+- Take me?
+- Sure. Good.
+- Chuck: The Cats certainly pack an attitude and Zondra is an acquired taste, but I do think it's good you reconnected.
+- I'll miss you.
+- Congratulations.
+- I'm gonna miss all you guys. Text me.
+- Yeah. Okay.
+- Come on, girl, let's ride.
+- It wasn't all bad, but I'm glad it's over.
+- Zondra: Walker.
+- Good luck with, uh... that.
+- Keys.
+- Chuck: Baby steps, right?
+- And no more surprises.
+- (alarm chirps)
+- Carina!
+- Sarah: Carina?
+- Carina!
+- Chuck: I'll call an ambulance.
+- Please.
+- Carina, your leg!
+- It's part of the b*mb.
+- (groans, pants)
+- Ladies, who's Augusto Gaez?
+- Beckman: Augusto Gaez is the arch nemesis of the CAT Squad and leader of the Gentle Hand.
+- The b*mb fragments trace to his factory in Rio.
+- He tracked you down, Cats.
+- Excuse me, General... the Gentle Hand?
+- Are these bad guys, or a massage parlor?
+- Zondra: They're brutal k*ll.
+- t*rrorists for hire.
+- If you want your competition blown away, that's who you call. SARAH: We hunted the Gentle Hand for years, but we could never pin down Gaez.
+- Every time we got close, he slipped away.
+- Amy: He must have thought we reunited to come after him again.
+- And tried to k*ll you on American soil.
+- Cats, the mission is in from Langley.
+- Capture Gaez and extradite him back to the States for trial.
+- General, I'm happy to hunt Gaez with Chuck and Casey, but...
+- Langley said all available hands.
+- Carina, due to your injury, you will monitor the mission and provide support from Castle.
+- Chuck and Casey, you're shadowing the Cats.
+- It's Carnival in Rio.
+- Gaez will throw a big party... he does every year.
+- It'll be heavily guarded, but I'm sure we can find our way in.
+- I love it.
+- General, we're not a team anymore.
+- This comes from the top, Sarah.
+- The Cats are back.
+- So, hey, Rio!
+- Sun, sand... that's... that's good, right?
+- Chuck, you know that tracking device I found in Zondra's boot?
+- We were on a mission to nail Augusto Gaez.
+- Uh... come on, you think that Zondra's working for Gaez, that she planted the b*mb?
+- The government cleared her name.
+- Yeah, we'll see.
+- (phone ringing)
+- Yes?
+- Man: The CAT Squad is on their way to Rio.
+- Excellent.
+- The plan is going perfectly.
+- We're going on a mission again!
+- CAT Squad high-five!
+- You guys are zero fun.
+- Hey, Sarah.
+- I have an idea.
+- Look, Chuck, I know that you have good intentions, but can we please ease up on the ideas?
+- This is a solid idea; hear me out.
+- Look, I'm gonna be stuck in a van with Casey, which gives me plenty of time to review all the CIA files on both the CAT Squad and Gaez and run 'em through the old computer.
+- If Zondra turns out to be a double agent, we take her down with Augusto.
+- But if she turns out to be innocent, you guys can be friends again and-and reconnect in a real way... maybe I can help you fix this. Look, it doesn't really matter whether or not I have friends at my engagement party.
+- I'm talking the big picture here.
+- I'm talking you engaging with your past.
+- Okay.
+- Okay.
+- I can just see that little hamster wheel turning in your head, Walker.
+- All I'm thinking about is nailing Gaez.
+- Hm. Well, you just make sure you keep your paws out of my boot heels.
+- Oh, you want to start that again?
+- Yes, I do.
+- Hey, hey. Cool it, Cats.
+- Hm?
+- You rang, Casey?
+- Is it hot in here, or is it me?
+- Carina's assigned to Castle.
+- Make sure she has I. T. support, food, whatever she needs.
+- No, no, listen to me, I- I can't be alone here with that woman, okay? She... she wants me.
+- Badly.
+- John, she desires my physical person.
+- And I'm hunting unicorns.
+- You're baby-sitting. Get over it.
+- I have intel on Gaez's Carnival party.
+- He'll be at Cabaret Soco Na Garganta.
+- Near the Sambadrome.
+- The only question now is, how do we breach security?
+- Disguise or commando entry?
+- Guys? (laughs)
+- Duh. It's a party.
+- (loud, lively Brazilian music playing)
+- How do Brazilian spies work with all this noise?
+- Sarah: Casey, we're in the club.
+- Do you have the signal?
+- Camera's up.
+- ♪♪
+- No sign of Gaez.
+- He won't show till later.
+- I know his habits.
+- I've been keeping tabs on The Hand, just in case.
+- Convenient.
+- We can cover more ground if we split up.
+- Well, I'm not sure if I'm comfortable with you on your own.
+- I'm not sure I care.
+- Huh. Good.
+- This is a hornets' nest.
+- Let's just do our job.
+- ♪♪
+- (sighs)
+- Uh... you know, the CIA's gone over that a hundred times.
+- The findings were inconclusive.
+- Get over it. Look, eight years ago the Cats got yanked into a Gentle Hand mission in Milan, but Gaez escaped before the girls ever made it to Italy.
+- Uh-huh. So I figured out that Gaez was tipped off from a CIA safe house inside Milan, so if I can prove that Zondra wasn't in said safe house, maybe Sarah will be able to trust her again.
+- You know, I used to be like you.
+- Wanted to fix everything.
+- Not now.
+- Example: Grimes suggested I approach Alex's mom.
+- I was tempted at first, but... she's moved on.
+- So...
+- Didn't need her life disrupted, and...
+- I let it lie.
+- ♪♪
+- I spotted Gaez.
+- He's surrounded by muscle.
+- ♪♪
+- He's heading into the VIP room.
+- We can get the layout from Chuck and Casey.
+- I'm not here to discuss anything past your immediate needs, which have been met, so...
+- I'm gone. (laughs)
+- My needs have not been met.
+- You're upset I never called you back.
+- Look, I'm sorry. Get over it.
+- Oh, I'm over it, sweetheart.
+- Yeah, yeah. And I'm with someone.
+- Some...
+- Oh. The girl at the door.
+- So, uh, you've told her you love her?
+- Yeah, of... hey... (sputters)
+- No. No. But I-I was going to, and then her father got thrown from the roof.
+- I plan to do it, very, very soon, and I just... What are you... So it's not even serious.
+- Huh? Look...
+- (phone ringing)
+- Excuse me.
+- It's Alex.
+- Oh, she's at the Buy More.
+- Listen to me, I have to go.
+- Uh-uh, you're staying.
+- You don't like it, take it up with General Beckman.
+- You got to be kidding me.
+- S- So... you're at the Buy More and I'm not.
+- Alex: N- No... you do not appear to be.
+- Yeah, yeah, and I-I don't think that's gonna... change anytime soon.
+- 'Cause I got shanghaied into... baby-sitting this injured agent.
+- Oh.
+- So you're, um... you're canceling on me again?
+- You're needed. Ah!
+- Now.
+- Uh, one sec. One second.
+- Would you please...
+- Yeah. I'm afraid so.
+- But I am going to make it up to you.
+- Whatever you want. Dinner, movie... ?
+- I owe you, so huge.
+- Yes, you do owe me.
+- I will be in touch.
+- Thank you, thank you, thank you, thank you.
+- (smooching)
+- If you're done slobbering, Grimes, there is a problem in Rio.
+- Um, can I asks you a question?
+- Zondra: Is your insurance paid up?
+- Ready? Yeah, I'm ready.
+- I'm ready!
+- Chuck, Casey.
+- NSA monitored a call from Burbank to Augusto Gaez yesterday.
+- Gaez knows the Cats are coming.
+- It's a trap, guys. Abort now.
+- Chuck: Sarah, you have to get out of there.
+- It's been a long time, Cats.
+- Drop your w*apon, or die.
+- All these years.
+- Enemies, fighting each other.
+- (clicking tongue)
+- Such a waste, no?
+- You're the bad guy, Augusto. That's how it works.
+- Says who?
+- Why can't we work together?
+- That's why we're here?
+- A sales pitch?
+- The worldwide market for The Gentle Hand has blown wide open.
+- GAEZ (over listening device): I need k*ll operatives who can open a door with a fist.
+- Or a smile.
+- Kitty, kitty, kitties.
+- You have been lured here to accept a career... with The Hand.
+- Or I'll bury you on Mount Corcovado.
+- Casey?
+- They're tied up. Five guards, all armed.
+- I'm going to use the Intersect to drop down and capture Gaez.
+- Just going to drop down out of the sky, huh, hero?
+- Don't you think you're overcompensating 'cause you got your girlfriend's car blown up?
+- That is not true.
+- You just sit tight, till I give you the signal.
+- Remember, you only have a tranq g*n.
+- Sarah: A career in The Hand?
+- With you and who else, Augusto?
+- Because you've already got one of us, don't you?
+- Do I, Sarah?
+- Why don't you let her finish the sales pitch?
+- Why don't you shut up?
+- No, I would like the air cleared, once and for all.
+- Sarah, let's just get out of this alive. No.
+- Let her say my name.
+- Offer me up, Walker.
+- Accuse me out loud, instead of under your breath like you've been doing for years.
+- Sarah: That's exactly what you've been doing to me, telling people that I put the tracker in your boot?
+- (gasps)
+- The suspense is a k*ll, no?
+- Maybe it's not tough Zondra.
+- Maybe sweet Amy?
+- Suspicious.
+- But so is Sarah Walker, the kitty who doth protest too much.
+- You know it's not me, and I've got no intention of joining up, So if you plan to k*ll us, you may as well tell me the truth.
+- I think that's fair.
+- I'd rather just k*ll you.
+- Casey? Casey, this just got ugly.
+- (grunts)
+- You're done, Gaez.
+- Now, do you want to live, or do you want to die?
+- Keep cool.
+- We are all... keeping cool.
+- You're going to tell me exactly what I want to know or you're the one getting buried on Mount Corcovado.
+- Okay.
+- The name is... Yeah?
+- Okay.
+- Gaez: I'll tell you. I think... I think Sarah needs help.
+- (screaming)
+- (tranq darts sh**ting)
+- (tranq darts sh**ting)
+- Ha, ha! (man grunts)
+- Hey, hey, hey, hey! Hey! Hey! Damn it.
+- I need immediate extraction.
+- Any way you can. Plane, boat, car...
+- How about fist?
+- Casey: I've got Gaez. Let's get out of here.
+- Wait. Wait.
+- He was about to tell me the name of the mole.
+- Now that he's in custody, he'll never talk.
+- I was... I was just... I was... I was helping. I was helping.
+- Look, look. Look, look, look at all the bad guys I tranq'd.
+- I don't need help with my job, and I don't need help with my past, so stop trying to help me, okay?
+- I don't need help!
+- No, no, no!
+- (groans)
+- I deserved that.
+- Excellent work in Rio, in spite of the hiccups.
+- But, Sarah, you were right.
+- There's a traitor in the Cats.
+- Well, you know who my money's on. Personally, I always thought that Carina had a shifty look in her eye.
+- Honestly, how well do you know Amy?
+- I mean, is anyone really that perky?
+- Conjecture and ill will do not make a case for treason. We need facts, and until we have them, I want the Cats to stay in Castle.
+- Casey, interrogate Gaez for the mole.
+- You're dismissed.
+- I have a job for you.
+- (door opens)
+- MAN (over P. A. ): Attention, shoppers.
+- The Buy More will be closing in five minutes.
+- Hello, beautiful.
+- Do I have the night of nights planned for you.
+- First of all, we are...
+- What? What?
+- Lipstick on your collar?
+- Oh, that dirty, little...
+- Whose lipstick is it?
+- The wounded agent?
+- Miss French Toast?
+- She obviously rubbed it in to sabotage our date.
+- She has the soul of a bridge troll.
+- I really want to believe you, Morgan, but you have been acting so strange.
+- And three times in a row?
+- That is asking a little too much.
+- Okay. Oh, yes. Oh, but Alex.
+- Alex? But... you trust me, remember?
+- Do I?
+- The Cats left their luggage at our apartment.
+- There might be another tracking device in their things, and I don't want anything leading home.
+- Great. Sounds like you're trying to get rid of me.
+- Look, I know I screwed up, Sarah, but...
+- Okay, fine. Fine, fine, fine.
+- But look, I did some analysis on the Cats' failed mission to Milan, and it seems very suspect.
+- It's not totally conclusive, but if we can figure out who actually was in Milan...
+- You're still helping. Stop.
+- Now.
+- No. Sarah, but...
+- Zondra: Hey, Walker.
+- I'm not running anywhere.
+- You know what? In fact, I am sick and tired of pussying around.
+- So why don't we settle this old-school?
+- Toe-to-toe?
+- Yeah, let's do it.
+- ♪♪
+- (grunts)
+- Still got that jab, Walker.
+- Yeah? Mm-hmm.
+- You want some more?
+- Got some questions for you, Gaez.
+- What is she here for?
+- Muscle.
+- I thought it might be fun. (laughing)
+- Ouch.
+- Shall we begin?
+- (both grunting)
+- I have never even heard of an organization called "The Gentle Hand. "
+- I'm a businessman.
+- Yeah. Business in terror.
+- Built a fortune, k*ll a lot of men.
+- But that all ends now.
+- (both grunting)
+- I'm not the traitor.
+- I didn't plant that tracker.
+- Neither did I. Then where did it come from?
+- Huh? You were the only one in Milan.
+- I was never in Milan on that mission.
+- I was supposed to be, but I got an anonymous call to stay put in Paris.
+- We need to disc...
+- You just gonna primp?
+- (Casey gagging)
+- (groans)
+- One of us had to have been in Milan.
+- Carina was in the U. S.
+- I read it in Chuck's report.
+- That leaves...
+- Both: Amy.
+- (Amy shouts)
+- (both grunting)
+- Traitor. Yeah.
+- So what? I paid for it.
+- Acting like the world's biggest dope.
+- Wearing stupid sexed-up costumes to fight world crime.
+- Now I have everything I ever dreamed of, except it is a little lonely.
+- Join me.
+- Go to hell.
+- (Sarah grunts)
+- I know where you live, Walker.
+- You even think of trying to find us, remember, there's a target on your back.
+- You, Chuck, the sister with the baby.
+- Don't forget.
+- (mutters indistinctly)
+- Chuck?
+- Can you think about making two trips?
+- Not really my style.
+- How's the reunion going?
+- Doesn't everybody want their friends and family around them?
+- I mean, wouldn't you have been disappointed if there hadn't been one friend or family member at your wedding?
+- Yeah.
+- But maybe Sarah sees the world differently.
+- I just want to make her happy, and everything I did backfired.
+- Chuck, you bend over backwards to help people.
+- It's one of the reasons that you're so easy to love, but sometimes the best thing you can do is just take a step back.
+- Be understanding.
+- You don't have to fix everything.
+- So I blew it?
+- Big time.
+- But I'm pretty sure she still loves you.
+- Where is she? Okay, listen, I don't know what it's gonna take to get it through that thick spy skull of yours, but you need to understand something.
+- You are not the only game in town, and I am in love with somebody else.
+- You really are angry. You're damn right I am, okay, and I'm through with you, and I'm through being your slave.
+- Wow. You're so worked up.
+- I guess you really do love her, huh?
+- You guess? You guess...
+- You're supposed to be an intelligence officer, and you guess?
+- Well, you haven't said it to her. I just figured.
+- You figured wrong, all right?
+- Although... I really should tell her.
+- I do love her.
+- Oh.
+- Oh, shut up. I'm gonna go get her back.
+- (computer chirping) If you need anything else, you can go to hell.
+- Marty, don't move!
+- Marty. Here we... It's Morgan!
+- How many times do I got... ?
+- (g*n chamber clicking)
+- Sorry, puss. Sleep time.
+- (groaning)
+- (panting)
+- (phone chirps)
+- (panting)
+- Come on, Chuck, pick up.
+- (phone ringing)
+- Sarah, I am the idiot of the century.
+- Chuck, Amy just escaped with Gaez.
+- She's the traitor. Where are you?
+- I'm at the Buy More. The store is closed.
+- Where are you?
+- We're locked down in Castle, but trying to override the system.
+- Gaez and Amy are headed your way.
+- They're in the elevator.
+- Okay, listen.
+- Do not try and fight them.
+- Just hold tight, and we'll be right there.
+- Yeah, well, there's no real time for that.
+- Okay? Just stay by the monitors and spot them for me.
+- Female Voice: Lockdown engaged.
+- He's a dead man.
+- Well, he's got a plan.
+- At least, I think he does.
+- (Chuck panting)
+- God, is he shopping? What's he doing?
+- Hey, they're following you. You've got ten seconds.
+- Well, can I just take these ten seconds to apologize for being such a fool?
+- Chuck, now's not the time.
+- Chuck?
+- Give us the key to the store, and we're gone for good.
+- You're no match for us, and you know it.
+- We don't want to hurt you, but we will certainly enjoy doing it if we have to.
+- (clack)
+- Talk to me, Sarah. Where are they?
+- They're at the Nerd Herd desk.
+- Okay, I just want to say that I have no intention of opening up any more cans of worms, or Pandora's boxes or anything else like that.
+- I just want you to be happy.
+- Okay, please just concentrate on getting out of this alive.
+- Well, that would a lot easier if I knew you'd consider forgiving me.
+- No time for that. They're headed your way.
+- (sighs)
+- (grunting)
+- (grunting) Oh!
+- Oh! (grunts)
+- I don't like fighting girls.
+- (grunts)
+- I mean, women.
+- I was taught to be a gentleman.
+- (Chuck groans)
+- (grunts)
+- (wind whipping)
+- (panting)
+- Going somewhere... p*ssy?
+- (cat yowls)
+- Small price to pay to find the real traitor.
+- Yeah, took us long enough.
+- I'm sorry. I'm sorry.
+- (laughs)
+- I should have never jumped to conclusions.
+- Me, neither. It cost us a lot of years.
+- Yeah.
+- We could try to make up for it.
+- We were good friends.
+- I miss that.
+- Yeah.
+- Well, there is, uh, this... engagement party.
+- I'll be there.
+- Me, too. I have an apology to make.
+- I would love to have you guys.
+- At the wedding, too, if you can make it.
+- Maybe you... you could be bridesmaids?
+- I've never been a bridesmaid.
+- Well, pretended to once for a mission.
+- I did, too, once, but there was a machine g*n under the pink taffeta.
+- Oh. (laughter)
+- Well, maybe we can try it for real this time.
+- Mm.
+- No machine g*n.
+- Scary, but I'll give it a sh*t.
+- All right.
+- Okay.
+- Hey.
+- Can I just... ?
+- Chuck, no more apologies.
+- I- I want to say thank you.
+- I'm really glad that the girls are here tonight, and that they'll be here for the wedding.
+- I'm just not ready to dive into my past right now.
+- Yeah. No way. Nuh-uh.
+- And my family...
+- Well, there's no misunderstanding to straighten out, really.
+- I know that it's complicated.
+- I totally hear you. I-I do.
+- And I'm done helping out.
+- No, Chuck, please don't ever stop helping me.
+- There are a thousand ways that I need your help every single day, and you're perfect.
+- Well, then I'll stick to those.
+- Mmm.
+- Let's party.
+- Let's do it.
+- ♪♪
+- I want to start.
+- Okay.
+- We're, um...
+- We're done.
+- It's not that I think you were unfaithful.
+- I just...
+- I mean, leggy girls, getting half the truth...
+- I don't fit into this world.
+- I can count the amount of special relationships I've had on half of one hand.
+- Me, too.
+- Then why don't I feel special, Morgan?
+- I just feel lied to.
+- I'm sorry.
+- No, hold on. Wait, wait, wait, wait, wait, wait, wait.
+- Hear me out, okay?
+- The reason I kept Carina a secret from you is because I didn't know how to handle you running into someone I'd had a... a relationship with.
+- To be honest, there have been so few that it was damn near a statistical impossibility.
+- (laughs)
+- I want you to know something, though.
+- Nothing happened between us, because nothing means more to me than this relationship.
+- I would never do anything to threaten that.
+- Ever.
+- I love you.
+- I love you.
+- I am in love with you.
+- Like, for real, "I love you"?
+- Oh, for real I love you, I love you.
+- I love you, too.
+- But you cannot do this.
+- I won't. I promise.
+- I think I owe you an apology.
+- I acted like a real...
+- It's okay.
+- He loves me.
+- Hi. This is lovely.
+- Oh. I'm so glad that you think so.
+- I'm just really happy being here in a dress and having a little wine.
+- (chuckling) So...
+- (sighs) What's on your mind?
+- Oh.
+- Must be hard... being here without your family.
+- Yeah, well, I'm...
+- I don't really know where my father is, and I have a very strained relationship with my mother, so, it's...
+- Complicated?
+- Yeah.
+- How about you and I talk about this?
+- We can get Chuck involved later.
+- That would be great. Thank you.
+- We're practically family, right?
+- Yeah.
+- More importantly, though, we're friends.
+- Yeah.
+- Well, I-I have a question for you.
+- I was wondering if you would be my maid of honor.
+- Seriously?
+- Yeah.
+- Oh, I would love to. Of course.
+- Oooh, who says Cats can't play nice?
+- You'll never know. Maybe will either another member of this squad.

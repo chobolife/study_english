@@ -1,0 +1,694 @@
+# Chuck Versus the First Bank Of Evil
+
+- Hi, I'm Chuck. Here are a few things you might need to know: I have nothing to do with Alexei Volkoff-- I haven't seen him in years.
+- Then why does he pay for the manor that you live in? Because I'm his daughter.
+- My father never gave me any key.
+- Yes, sweetheart, he did.
+- When you were young-- a token of his affection.
+- Your whole life your father's been grooming you.
+- You are his succession plan.
+- ♪ ♪
+- I give up.
+- Man: Strange reaction.
+- Most people show a bit more enthusiasm when they receive a gift.
+- Sorry. Who are you?
+- My name is Riley.
+- I'm your father's lawyer.
+- You father left a letter for you.
+- (clearing throat)
+- (imitating Volkoff): "My dearest daughter Vivian, "as you know, "I've met an untimely demise...
+- Sorry. "I... "
+- What are you doing?
+- (normal voice): He specified that I read the letter in his voice.
+- He thought it would make you feel comfortable.
+- Please stop.
+- I spent several weeks perfecting this.
+- But fine.
+- Uh...
+- "I'm sorry I was never much of a father.
+- "If I could do it over again, "I would trade my entire empire for another moment with you... "
+- (scoffs)
+- "but we can't relive the past, "which is why I have groomed you for the future.
+- "That card in my safe will help you rebuild Volkoff Industries... "
+- Mr. Riley, I'm well aware that my father now wants me to take over his evil corporation.
+- So how can I say no?
+- Hmm.
+- No.
+- Nobody ever said no to your father.
+- Than I'll be the first to do it.
+- I'm sorry.
+- I can't allow that.
+- Now perhaps you'd like to rethink your answer.
+- (screaming)
+- Ellie: Okay, roses or orchids?
+- Uh, I don't know.
+- Uh, roses?
+- What do you think?
+- I think that flowers can really set the tone of a wedding. you know, roses are-- are beautiful, they're classic, they're passionate.
+- Not very whimsical.
+- And that's good?
+- If it's what you want.
+- Uh, okay.
+- Uh, well... Orchids?
+- (laughing): Sorry. Sarah...
+- I'm sorry. I-I just--
+- I don't have a strong feeling either way.
+- I just don't think that maybe I'm cut out for this.
+- What if you just make the choices?
+- Okay, you know what?
+- Maybe-- maybe this girly stuff is a little outside your comfort zone.
+- I will tell you that, at some point, every bride feels a little overwhelmed with this stuff.
+- I totally did.
+- But there was a moment where that all changed.
+- I remember I had gone to pick up our wedding bands and I finally held them in my hands.
+- And it all just became so real.
+- I was getting married to the man that I love, for the rest of my life.
+- And then I just broke down crying, which sounds ridiculous right now.
+- Yeah, a little.
+- A lot.
+- But it was a turning point, you know.
+- From that moment on, everything became magical.
+- It was my wedding.
+- I don't know when and I don't know where, Sarah, but I promise you, it's going to happen to you.
+- You know what?
+- New apartment, I'm going to go no television.
+- It will be very liberating.
+- Kidding. I'm totally kidding.
+- 72 inches, dude. Bam.
+- I was honestly about to smack you right now.
+- So how is the apartment hunting going, anyway?
+- It's uh... Oh, man, it couldn't be going better.
+- I found a place. A little pricey.
+- So I'm looking for a roommate right now.
+- Well, that shouldn't be a problem, right? I hope not.
+- And you know what, in the meantime, it's kind of nice being at my mom's.
+- Buddy, I gotta say, I'm, uh, I'm a little relieved.
+- Chuck, this is needed on my part, okay?
+- I am growing mentally and emotionally, physically-- not so much physically.
+- But some people are saying that I'm acting taller.
+- (phone buzzes)
+- Uh, I gotta get down to Castle.
+- Buddy, I'm so glad that everything's going so well.
+- You're k*ll it.
+- Have a great day.
+- Talk to you soon.
+- Hey, son.
+- Sleep okay last night?
+- No. No, I did not.
+- Those cats outside the window are just so loud.
+- They gave me nightmares.
+- Yeah, cats.
+- Just a heads up-- Mm-hmm. those cats are having a romantic dinner tonight.
+- And there might be more cat fighting after dinner ends.
+- Unless your mom eats too much.
+- Listen, I don't want to think about you and my mom doing... making a... slipping and...
+- Son, when you move into the forest, you can't complain that the wildlife is making too much noise.
+- It's only natural.
+- And beautiful.
+- And frequent.
+- I need my own place. Yes, you do.
+- So then you went to Volkoff's headquarters and you were attacked? Yes.
+- I shouldn't have gone to Moscow.
+- I don't know what I was thinking.
+- It's okay. You're safe here.
+- Now, this man Riley-- he wants you to rebuild your father's empire?
+- Yes.
+- But I told him I don't want to have anything to do with my father.
+- Did he happen to say what his plan for rebuilding Volkoff was?
+- I think this may have something to do with it.
+- We need to talk to Beckman.
+- So Volkoff has all of his money in the First Bank of Macau.
+- We need to freeze those funds.
+- We do.
+- But the First Bank of Macau is no easy target. it's really operated by the Guan Yi Crime Syndicate.
+- The guards are mercenaries.
+- We've lost agents inside of there before.
+- But we've never had an account holder working with us.
+- That makes Vivian the perfect asset.
+- With her help, we'll be able to get through the bank's security and access her father's account. Um, General, I'm not so sure that Vivian is really built for this sort of mission, you know.
+- Not to mention the fact that she was pretty clear about never wanting to see her father again.
+- Well, it's your job to change all that.
+- You're a spy, she's an asset.
+- If this mission is going to work, you need to turn that girl into a Volkoff.
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Fabulously bearded man, seeks roommate ASAP.
+- No, Morgan, don't lead with the beard, okay?
+- Let it be a pleasant surprise.
+- Lester: Morgan.
+- Hey buddy. You look sharp.
+- Listen, um, you're obviously a worldly fellow.
+- I was wondering if you could settle a little debate betwixt us.
+- Where do you think would be the best place to meet ladies-- a Renaissance Fair-- right? Or a methadone clinic?
+- It's okay if the ladies are really ugly.
+- Really? I don't... I don't... a Renaissance Fair.
+- Okay, interesting.
+- Next question-- can we have two weeks off to to go a Renaissance Fair?
+- Not a chance.
+- See?
+- Look, I don't have time to discuss it.
+- I'm in the middle of a housing crisis and I need to find a place now.
+- Really? Dude, dude.
+- We have an extra room in our apartment-slash-van.
+- So how about this?
+- A place to stay in exchange for, say, one week off.
+- Hmm.
+- Huh? No.
+- WOMAN (over P. A. ): Manager to register seven, please.
+- Okay, I'm not... I'm done here.
+- Thank you for the offer, but no thank you.
+- "Slash-van. "
+- See yourselves out, please.
+- He's a heartbreaker; a soul crusher.
+- I'm going to pin that guy down and shave his beard.
+- Hmm.
+- It looks like Morgan's potential roommates are meeting him here.
+- Morgan won't let us go to the Renaissance Fair, we'll bring the Renaissance Fair to us.
+- (keyboard keys clattering)
+- I have no idea what you're doing right now.
+- So you want me to help you break into my father's bank.
+- Absolutely not.
+- I've had way too many g*n pointed at me recently.
+- We'll be there to protect you the entire time.
+- Look, most years I saw my father maybe once.
+- The longest conversation we've ever had is ten minutes.
+- I get that, I do.
+- Believe me, I understand.
+- So your father was a criminal mastermind who forgot your last five birthdays, too?
+- No, um... but he did leave me when I was 13 years old.
+- I'm sorry.
+- It's okay.
+- You know, for the longest time, all I ever wanted to do was ask him the same questions that I know are swirling around in your head right now.
+- Why'd you leave?
+- Why didn't you ever even make an attempt to contact me?
+- You ever get to ask him?
+- Yeah.
+- And I learned that even though my father wasn't around, it didn't mean he wasn't thinking about me.
+- Look, I don't know what you'll find out, but I can guarantee you that if you help us, we can help you find at least some of the answers that you're looking for.
+- When the thugs running the bank meet Volkoff's daughter, they're gonna be expecting someone intimidating.
+- And your current outfit doesn't really scream "bad guy. "
+- I wasn't exactly planning on infiltrating a bank when I got dressed this morning.
+- Well, we can fix that. Smile.
+- (scanner trills)
+- It's kind of like J. Crew for spies.
+- Wow.
+- Chuck: Yeah.
+- It's also got some really cool makeover features that are built in, in case you want to do a full... Not that I've ever...
+- Anyway...
+- Go ahead, try it on.
+- So, meet me in the armory when she's done.
+- Yeah. One sec, though. I want to show you something.
+- What do you think?
+- It's a little formal for a bank job.
+- You know what? You're right, it is formal for a bank job.
+- What do you think of it, I don't know, for our wedding?
+- Oh! Oh, the wedding!
+- Yeah! Yeah, you'll look great in that.
+- Very, very handsome.
+- What's going on?
+- What's wrong? Something's wrong with you.
+- 'Cause you love me in a black tie.
+- It's just that this is not really my thing, and I feel like I'm letting you guys down.
+- You're not letting anybody down.
+- Was that Casey?
+- Yeah.
+- Casey! Hey! Casey!
+- Yo, what's going on?
+- Nothing.
+- Just getting a Hot Pocket.
+- Oh. Love me some Fiesta Chicken, huh?
+- The way the cheese and the chicken... ?
+- What I meant was we haven't seen you for a while.
+- You okay? I'm fine. Let's hook up later.
+- We'll get facials and chat.
+- Where are you going? We're shipping out in a few hours. Don't you need to get ready?
+- Actually, Beckman has me working on a mission of my own.
+- What mission would that be exactly?
+- Can't really talk about it. Sorry.
+- But I hear you guys are hitting the First Bank of Macau.
+- Be careful.
+- (man clears throat)
+- I'm here to heed your call for a roommate!
+- I know, it's intimidating to be in the presence of a king.
+- You'll get used to it. Oh, also, I do dishes.
+- Is there anything else left you'd like to tell me about yourself?
+- (Irish accent): Well, my parents died in the plague.
+- Okay. Um, do you have any pets?
+- No, no pets.
+- I'm not a big pet guy.
+- Good to know.
+- I like to work in leather.
+- You are gonna go down on the top of the...
+- You may kiss the ring.
+- Okay.
+- Okay.
+- How... ?
+- Look, I think there's been some sort of misunderstanding.
+- I don't believe you're here for the same ad that I put out.
+- I don't know what the hell ad you're talking about, but the Buy More is a delicate cover.
+- You need to shut down this now!
+- Casey, I have no idea what happened, okay?
+- Look, I put out a simple ad to find a roommate, and all these weirdoes start showing up.
+- Chug, chug, chug...
+- Go, go! Go, weirdo, go!
+- (all cheer)
+- Got it.
+- Those idiots messed with my post.
+- I'll have good luck getting a roommate now. Perfect.
+- Wait a minute. I got it.
+- Casey, you have an extra room.
+- No, not even worth saying.
+- Yeah, but think about the possi... Think about the...
+- Sarah: Okay, Vivian, remember, this place is highly dangerous.
+- You need to act like-- well, your father.
+- Chuck will pose as your bodyguard.
+- I'll be like your very own Kevin Costner.
+- You'll present your account card to the bank manager, Guillermo Chan.
+- He will lead you both up to the vaults.
+- Remember, the vault is highly restricted.
+- Once we're in the vault, you're gonna have to pass a pretty rigid verification process.
+- I'm not good with tests.
+- What happens if I don't pass it?
+- Just, you know... pass.
+- You'll be fine.
+- If you're ever at a loss, just look to me and I'll be right there.
+- Stay close.
+- Can I help you?
+- I'm sorry, we aren't accepting any new accounts.
+- Miss Volkoff is already an account holder.
+- Miss Volkoff?
+- I wasn't aware this account had changed hands.
+- (device beeps)
+- Please come with me.
+- Account holders only.
+- I am her Kevin Cost... bodyguard!
+- I am her bodyguard!
+- It's okay.
+- We'll find another way to freeze the account.
+- I'm getting you out of here.
+- Chuck, you said this might be my only way to learn about my dad.
+- Yeah. Then I'm doing it.
+- Security stopped me from following Vivian.
+- Okay, which way did they take her?
+- Main staircase.
+- Okay, there are emergency stairs across the lobby, east wall. That should take you up to the vault level.
+- I'm gonna need a key card.
+- Time to be a spy.
+- Hey, big fella.
+- Sorry about that earlier.
+- Little security faux-pas.
+- I know because we're both in the biz.
+- You know, the "security biz. "
+- (weak chuckle)
+- My real concern is just for Miss Volkoff's safety.
+- I mean, how do we know she's gonna be properly protected up there in that vault? She's safe.
+- So you say. And I want to believe you, I really do.
+- But what if someone were to break in?
+- Perhaps, oh, I don't know, a Kung Fu master?
+- A little of this or one of these?
+- How about swooping it and pushing it?
+- (grunts)
+- Okay!
+- I believe ya!
+- I get it... (groans) Point taken. Point taken.
+- Chuck, what are you doing?
+- I'm a believer.
+- (grunts) Sarah, I'm in.
+- Oh, good. Okay.
+- Where are we?
+- The vault level, Miss Volkoff.
+- Follow me.
+- (keypads beep)
+- What's going on?
+- Standard security procedure.
+- Place your hand there, on the table.
+- (device trills)
+- Ow!
+- Sorry. Please step back.
+- We needed a DNA sample to make sure you are who you say you are.
+- There should be no problem as long as you're telling us the truth and no one has removed you from your father's account.
+- (keypad beeps)
+- Sarah, I'm on the vault level.
+- No sign of Vivian.
+- Copy.
+- There should be a junction in the hallway to your east.
+- Copy. Moving east.
+- Oh, no!
+- What? Stepping back. What?
+- No, no, no, no, it's not you. You're fine.
+- I just got a text from your sister. She wants to go cake-tasting.
+- Cake-tasting. How awful.
+- Okay, you should see two doors up ahead of you.
+- Yep. Heading toward them now, but don't change the subject.
+- Look, I know that this wedding stuff is supposed to be really fun, but I-I just find it a little overwhelming: you know, the cake and the flowers, the venue and...
+- Well, maybe it would be a little less overwhelming if you would, you know, just pick one thing to get excited about; ease your way in.
+- (gasps)
+- Sarah, hey, I just flashed.
+- They have servers down here, stolen from the Chinese Army a year ago.
+- What do you think they're using them for?
+- I have no idea.
+- But a bank wouldn't use military-grade tech unless they were up to something serious...
+- Please state your name.
+- Computer Voice: Vivian McArthur Volkoff.
+- What business would you like to transact?
+- I would like to access my father's account.
+- Are you working with a law enforcement agency?
+- No.
+- Vivian Volkoff...
+- You ... have... passed our test.
+- The account is yours.
+- Sorry for all of our extreme measures.
+- You'll find subsequent visits to be significantly less invasive.
+- Here.
+- Your father's safe-deposit box.
+- This was all he kept at this bank?
+- Your father once told me this contained his most prized possessions.
+- What are you doing down here?
+- You guys sure hide the ATMs around here, don't you?
+- Chuck, is everything okay?
+- Nothing I can't handle.
+- (yells) Okay, I spoke too soon!
+- I can't handle it! I need help!
+- I'm on my way.
+- I'm afraid there's been a small problem.
+- Your bodyguard was found in a secure area.
+- I am... so sorry, Miss Volkoff.
+- Were you trying to steal?
+- I trusted you.
+- This is what you do to me?
+- To my reputation?
+- Chan: Please, Miss Volkoff.
+- This isn't necessary.
+- This isn't your concern.
+- You haven't been lied to, like I have.
+- Chan: What I mean is... there is no need to do this on bank property. Yes?
+- I'll take it from here.
+- Thank you.
+- You can hand him over to my head of security.
+- Vivian's getting pretty good at this, isn't she?
+- Miss Volkoff.
+- I'll admit I didn't see the family resemblance at first.
+- But now...
+- I see your father in you.
+- So, there is no way this is a clue to where your father hid his funds? No.
+- I mean, these are just... pictures.
+- Of me.
+- So. Nothing on Volkoff's money.
+- Looks like we hit a dead end.
+- Unless Langley uncovers something about those servers that you saw.
+- (phone buzzing)
+- Excuse me.
+- It's crazy.
+- I mean... I barely ever knew my father, and now I discover that he's been watching me this whole time.
+- I feel like I deserve some answers.
+- You do.
+- At least you got to talk to your father.
+- I'm never going to be able to do that.
+- Maybe you will. What do you mean?
+- I thought the CIA had him locked up somewhere.
+- Yeah. But I am the CIA.
+- I can ask around, see if we can set up a meeting.
+- Are you serious?
+- Yeah. Look, I know what you're going through. I, I do.
+- And if you really want to talk to your father, I can do everything that I--
+- Thank you.
+- You're welcome.
+- Hey. So what's the "wedding epiphany"?
+- I just realized we have been going about this wedding planning all wrong.
+- We have?
+- Yes! You don't build a wedding around flowers or the cake or the food.
+- What do you build the wedding around?
+- Um...
+- The weather?
+- The dress, Sarah.
+- You build the wedding around the dress.
+- And I know you're not, like, the typical wedding-dress girl, but I just thought that... It seems like it could be fun.
+- Really?
+- Yeah. Yeah, I've been looking for a way to ease into this, and I think this might be it.
+- In fact, I'm going to go do some research right now.
+- Okay.
+- ♪ ♪
+- Oh, God.
+- No.
+- Maybe.
+- (sighs)
+- ♪ ♪
+♪ ♪
+- Oh, my God.
+- It's perfect.
+- (whispering): We're getting married.
+- Oh my God.
+- We're getting married?
+- (laughing)
+- (clears throat)
+- Pretty dress.
+- I know.
+- Uh... might want to get a new one, though.
+- Looks like this one's been on a mission.
+- Oh.
+- Hey, hey, hey, hey, whoa, whoa.
+- I know what you two did to my ad.
+- And guess what?
+- You owe me.
+- We owe you?
+- You owe us.
+- You would be nothing without us. You get that? Look.
+- Look, I just need a place to stay for tonight.
+- And you said you had the room.
+- Sorry, friend-o.
+- Vacancy's been filled.
+- Really?
+- Come! Let us adjourn to our castle!
+- Can you believe we get to live with a king?
+- This is going to score us some serious Ren-tang.
+- Beckman: We've just heard back from Langley.
+- Using the stolen servers, the bank is basically turning itself into a black market stock exchange, laundering money for criminals, t*rrorists, and rogue nations.
+- So if we could access those servers, that intelligence would be priceless.
+- Exactly, Agent Walker.
+- Which is why we still need Miss Volkoff.
+- As an account holder, she can enter the bank, and manually upload a digital tag to their network.
+- Bartowski--
+- Do you think you can get the asset to do that?
+- Uh, yes, yes, I think I can, but we might have to give her something in return.
+- She would like a meeting with her father.
+- A meeting?
+- With Alexei Volkoff?
+- After all she's been through, don't you think we owe her that much?
+- Fine.
+- I'll set it up.
+- Thank you, General.
+- Oh, and there is one more thing.
+- In order to keep the bank from realizing what Miss Volkoff is doing, we'll need a diversion.
+- What did you have in mind?
+- Gear up. You two are going to rob a bank.
+- (sighs)
+- So it comes down to this.
+- (sighs)
+- (power tools buzzing)
+- (banging)
+- MAN 1: Buy More?
+- Why would there be a facility at the Buy More?
+- MAN 2: They've got facilities like you wouldn't believe.
+- I've seen everything, and nothing surprises me.
+- MAN 1: The only other TR476 I'd installed before was in Langley.
+- So why here in Burbank?
+- If it's above my clearance, I don't ask questions.
+- Neither should you, Todd.
+- Just making conversation.
+- MAN 2: Don't.
+- (keypad beeps)
+- No, it's just, uh, maintenance, I believe, over here in Sector 7G.
+- (clears throat) Sir.
+- Hi.
+- Casey.
+- What are you doing here, Grimes?
+- Nothing. Nothing. I was, uh...
+- I needed a place to stay, as you know.
+- Uh, so I thought I could just crash here for tonight.
+- What did you see?
+- Are you k... I don't have very good eyesight.
+- You know? I thought they were installing some... maybe DirecTV or something.
+- Or 'cause they were... You know.
+- There was some... Nothing.
+- Hey, but I should go.
+- I'll-I'll go sleep under my desk at the Buy More.
+- You know, it's probably more comfortable.
+- If you could just kind of point me in the right direction, though, 'cause again, I don't, uh...
+- John! Yeah, okay, you're still there.
+- Okay, whoo. Okay.
+- We are delighted to see you again, Miss Volkoff.
+- Thank you so much.
+- I'm glad you were able to accommodate me at such a late hour.
+- Our clientele demands constant access.
+- Okay, she's in.
+- You ready to do this?
+- What are you doing? What?
+- We're robbing a bank, right? You packed them, so I thought...
+- Yeah, I packed them in case we had the chance to go out later.
+- Take them off. You'll wreck them.
+- Sorry.
+- That's better.
+- Now...
+- Let's go rob a bank.
+- Take as much time as you need.
+- (beeping)
+- Just let him know when you want to leave.
+- ♪ ♪
+- (silenced g*n)
+- Ma'am, wait here, please.
+- ♪ ♪
+- Drop it now!
+- This is a robbery!
+- Everybody stay down!
+- Miss Volkoff, may I come in?
+- The CIA is not on your side, you know.
+- You're simply an asset to them; they've been using you.
+- No, it's not true.
+- Did one of them seem to understand you, you know, what you're going through?
+- And did he use that connection to get you to help him?
+- And was it this one?
+- (chuckles)
+- Yeah, this is Charles Carmichael.
+- He's the agent responsible for putting your father in jail.
+- Keep filling those bags, people! Let's go, let's go, let's go!
+- Having fun?
+- A little. Kinda takes you mind off the whole wedding thing, doesn't it?
+- Actually, it hasn't been so bad.
+- You know, I took you up on your advice, and I found a dress.
+- Hey! Ellie was right. When I put it on, it felt like magic.
+- Get down on the ground before I blow your freakin' head off!
+- I'm so glad you found a dress.
+- That's awesome. And I bet you look gorgeous in it.
+- Don't be a hero, my friend! I will break your face!
+- Well, it's actually really pretty.
+- And you know, I never thought I would say this, but I felt like a princess.
+- Mr. Riley, my father is a criminal.
+- That's what they call him.
+- You saw what your father left for you here at the bank.
+- He loves you, you know?
+- The CIA has used you.
+- You know that, right?
+- Chuck promised me that I would get to meet my father.
+- No... you're not gonna get to see your father because they don't want you to.
+- And there's only one way that you can truly learn about your father.
+- When you're ready... you let me know.
+- Oh...
+- You left this in your father's office.
+- Thought you might like to have it.
+- Get down here!
+- Come on, come on! It's about that time, honey bunny.
+- Nobody follow! We have a hostage!
+- Keep walking.
+- No one sh**t! She's a Volkoff!
+- Thank you, Bank of Macau.
+- It's been a pleasure doing business with you.
+- Mission accomplished.
+- Chuck: Hey, you did great in there.
+- Thanks.
+- Everything all right?
+- Yeah.
+- Everything's fine.
+- Ok.
+- You successfully planted the tracer in the First Bank of Macau's servers and made the break-in look like a legitimate robbery.
+- The digital tag is already leading us to t*rror1st organizations all around the globe. Good work, team.
+- Uh, General, sorry.
+- About the deal that we made with Vivian.
+- When does she get to see Volkoff?
+- Ah, yes.
+- After some consideration, we have decided the security risks are too great.
+- Beckman: I'm sorry. No, no! No!
+- Uh, I promised her that she'd be able to see her father.
+- What am I supposed to tell her now?
+- Agent Bartowski, you told your asset what she needed to hear.
+- That's what a spy does.
+- Well done.
+- Do you need my help telling her?
+- No.
+- Thanks, though.
+- She trusted me.
+- I'll do it.
+- Vivian, I'm sorry, but they're not going to let you see your father.
+- What?
+- What do you mean?
+- They went back on their word.
+- They? The CIA?
+- But I thought you were the CIA.
+- I am.
+- It-It's just... It's...
+- It's complicated.
+- I'm-I'm... I'm not giving up.
+- I promise, I will find a way for you to see him.
+- It just might take a little while, that's all.
+- Look, I know this is a lot to handle right now.
+- Are you okay?
+- I'm fine.
+- Thank you for being honest with me.
+- Sarah: Okay, you told me that I had to choose between the roses and the orchids, but that was before you showed me the Casablanca Lilies!
+- I need a hundred dozen.
+- A hundred dozen? More?
+- I'm sorry. So what did you think about the cake?
+- Did you like the hazelnut cream, or... ? I really liked it.
+- It reminded me of this amazing patisserie in Paris, and I think that maybe we should fly the cake in.
+- In fact, definitely we should fly the cake in.
+- Oh, that sounds really expensive, especially after that dress that you picked out.
+- Well, you only get married once, right?
+- And this is meant to be really special, and plus, it'll make Chuck really happy.
+- I should look into booking a private island for the ceremony.
+- Yes.
+- Oh, my God.
+- Oh.
+- Ellie.
+- What the heck was that?
+- I think I created a monster.
+- Yeah. Well...
+- 'Cause I work... I work... I work at the Buy More, and that stuff sounds kind of pricey.
+- Maybe you could just pick up a few extra shifts.
+- Or rob a bank.
+- Ha. You...
+- Oh, what's going on there, Case Logic?
+- Huh?
+- Case Logic?
+- Mid-nineties, held your CDs?
+- All right, you're clearly not a nickname guy.
+- Oh, God.
+- And well, look, I just wanted to apologize about, uh, you know, snooping around, man.
+- I just... I want you to know I just needed a place to sleep.
+- But, uh, between you and I, what was exactly going down there in Castle? I mean... Nothing.
+- Not very nice.
+- Well...
+- Ugh. then that wasn't, uh, some weird, mysterious door that I saw you walking out of?
+- Look, you're right.
+- I have no idea what I'm even talking about.
+- There's obviously some rational reason you would have a TR-476 in some weird, strange room.
+- And I'm just overtired.
+- I haven't slept, I haven't eaten.
+- And I just really want a place to stay.
+- Grimes? Yeah.
+- Are you leveraging me to stay in my apartment?
+- I don't, uh...
+- Am I?
+- Let's say I was.
+- Is it working?
+- Okay.
+- You can stay at my place as long as you keep quiet, don't tell anyone-- especially Bartowski.
+- God, Casey, you have no idea how much this means to me.
+- Come here. Don't...
+- Don't get too excited.
+- Just keeping you close, make sure you keep your mouth shut.
+- 'Cause if you don't...
+- I know where you live.
+- (mutters): Right. 'Cause I'll...
+- Scram. Thank you, sir.
+- Thank you.
+- (phone ringing)
+- Vivian, it's, uh... it's Chuck and, um...
+- Look, I know that you must be feeling...
+- Just give me a call when you get a chance, uh... if you could, that'd be great.
+- Thanks. Bye.
+- I'm ready to learn the truth about my father.

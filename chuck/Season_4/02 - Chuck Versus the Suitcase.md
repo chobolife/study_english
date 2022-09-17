@@ -1,0 +1,692 @@
+# Chuck Versus the Suitcase
+
+- Chuck: Hi, I'm Chuck. Here are a few things you might need to know.
+- We spared no expense recreating the Buy More.
+- It's now a full-fledged CIA-NSA substation.
+- I'm pregnant. Ha, ha.
+- Oh, my God. Oh, my God.
+- Alex, I'm your father.
+- If Volkoff has any intel on my mom, we need to try and find it.
+- Marko: Someone's looking for you.
+- Who?
+- Your family.
+- Have you told Volkoff anything?
+- I told him nothing.
+- That's good.
+- Devon: Okay, we're a man down.
+- You step it up while Ellie's out of commission.
+- Devon, I'm 13 weeks pregnant.
+- Exactly. We've already lost 13 weeks.
+- A lot of decisions need to be made.
+- Natural or water birth? Ergo or Baby BjÃ♪rn?
+- Spanish or French as a second language?
+- Are we gonna blow it wide open and go Japanese?
+- Baby's not due for another six months.
+- You still have time.
+- Exactly. Thank you.
+- And besides, tomorrow is Chuck's first day back at Buy More.
+- Ahem.
+- Oh, and Morgan's.
+- Thank you. Little acknowledgement goes a long way.
+- Not that big a deal. Morgan and I have worked for the Buy More before.
+- Well, it's still exciting. And it's safe.
+- [YAWNING] It's safe and exciting.
+- You tired, babe, huh? I know you haven't been sleeping well.
+- Is the baby resting on your spleen?
+- Okay, you have to relax.
+- The baby is the size of a walnut.
+- Hey, hey. Watch your tone.
+- Eardrums develop in week 12.
+- Little walnut can hear everything you say.
+- What is happening?
+- I have no idea.
+- You should be taking some notes. You could be next.
+- Ho, ho! Whoa. Oh, I don't...
+- Oh, I...
+- I'm...
+- Morgan: I don't know.
+- Sarah would have to unpack first for them to think about starting a family.
+- Snow pea?
+- Do you think it's weird I haven't unpacked yet?
+- What? No. No, no, no. Of course not. I mean, it's only been eight months.
+- Right, and, uh, and I've been on missions practically the entire time... and I have to go away again soon.
+- Totally. I get it. You know I get it.
+- Don't listen to Morgan. He doesn't know what he's talking about.
+- Guy eats cereal with a fork.
+- So you're okay with it.
+- You're here. That's all that matters to me.
+- Okay?
+- It's not weird at all.
+- Chuck: It's totally weird, right?
+- Morgan: Of course it is.
+- I mean, she won't put one thing in her side of the closet. Not a thing.
+- It's like she'd rather be on a mission than back home with me.
+- Well, it's just when everything seems great, that's usually when you find it, man.
+- Find... Find... Find what?
+- The Achilles heel. Every relationship has one.
+- A singular problem that can't be overcome... even in the greatest romances.
+- Romeo and Juliet, Tristan and Isolde... Anakin and Padmé.
+- Are you saying, then, that Sarah not unpacking is our Achilles Heel?
+- Keep your feelings to yourself, okay? You don't wanna give her reason to bolt.
+- BECKMAN [ON PA]: Chuck Bartowski, please report to the manager's office.
+- Duty calls. Thanks for the talk, buddy.
+- Of course.
+- [MEN SPEAKING INDISTINCTLY]
+- Roger that. Gentlemen.
+- Customer: It is on sale?
+- How you guys doing?
+- So, uh, I'm Agent Grimes.
+- [WHISPERS] Special Ops.
+- [IN NORMAL VOICE] I know you're all undercover spies, but I'm familiar with the Buy More.
+- If you have any questions, feel free ask, take a break, we'll...
+- We're working. We don't take breaks.
+- You're a very tiny man, aren't you?
+- Uh, you looked in a mirror lately?
+- You're, um...
+- Just quite impressive, to be honest.
+- It's really just... A physical specimen.
+- I used to be like that... Oh. Gonna pick... ? Gonna one-arm that thing?
+- Okay, that's, uh...
+- I used to do that myself, but I forgot my weight belt.
+- One of our agents was k*ll in Milan last night... while he was tracking this woman.
+- Sofia Stefanova.
+- Hiyo.
+- Who do we have taking our surveillance pics? Because those are tremendous.
+- Can you see the way... ?
+- Uh. What? No. No, no, no.
+- I'm just saying, clearly... In a bathing suit? I didn't notice that.
+- We can all acknowledge that Miss Stefanova is quite fetching.
+- Mm.
+- But don't be fooled by her appearance.
+- We believe she's the executor... of Volkoff's most important w*apon deals.
+- Uses her cover as a runway model to travel the world... get access to the most powerful people... and deliver w*apon like this.
+- Stefanova stole an amm*nit*on clip containing smart b*ll*ts... from a w*apon development facility outside Paris.
+- Mr. Bartowski.
+- Uh, what are smart b*ll*ts?
+- [BUZZES]
+- Microchip-controlled. They have a built-in GPS.
+- The b*llet guides itself to the target.
+- Yeah. Something a good spy would never need.
+- You should get some.
+- Beckman: That's exactly what I need you to do.
+- Stefanova plans to sell the w*apon at a party during Milan Fashion Week.
+- I'm sending you two to intercept them.
+- Colonel Casey... after the Yves St. Laurent incident... you will have to sit this one out.
+- Stab one guy with a stiletto.
+- Beckman: Bartowski, Walker... you leave immediately.
+- Packed and ready to go, general.
+- [WHISPERS] Now, there's a woman in love.
+- Hmm.
+- No one loves a mission more than Walker.
+- [CLICKS]
+- Casey: You be on your guard out there.
+- Volkoff and his people... they're serious.
+- Yeah, yeah. No, I, uh, I got it.
+- But, uh, the closer I get to finding Volkoff, the closer I get to finding my mom.
+- Well, I won't be able to rescue your ass. I'll be stuck here.
+- Stuck here. Come on, Casey.
+- You know you like Burbank a little.
+- Okay, granted.
+- We'd rather be on the Amalfi Coast or Bora-Bora.
+- But don't you feel a bit at home here?
+- Yeah, I guess.
+- As much as Darfur... or that cave in Afghanistan.
+- Unh, okay, but then, supposing there was someone...
+- Could there be someone... who makes you feel even a little more at home?
+- Like Alex. You see her a lot, right?
+- No.
+- No? She's your daughter.
+- Spies don't put down roots.
+- That's the rule.
+- [SCOFFS]
+- Rule. That's not a rule. It's a notion or a suggestion or guideline.
+- It's about that Achilles heel thing.
+- Achilles... ? How do you know... ?
+- Grimes told me.
+- That pipsqueak will talk to anyone he thinks is listening.
+- [g*n CLICKS]
+- Chuck, beautiful women have a lot of baggage.
+- You should be happy Walker's is just a suitcase.
+- Any sign of Sofia?
+- No. Not yet. Strapless Versace, huh?
+- Very daring, Agent Walker.
+- How much Project Runway have you been watching?
+- There she is.
+- Gotta be in the purse.
+- Chuck: Smart b*ll*ts?
+- All right. I got this one.
+- Ah.
+- Excuse me?
+- Who do you think you are?
+- I'm nobody. This is nothing.
+- No, I wasn't trying to do that. Put my hand on your bottom.
+- Your hand is still touching my perfection.
+- So it is.
+- So sorry. That was an accident.
+- Happy accident. Kind of. Not really.
+- Uh, but I'm not a weirdo pervert by any stretch.
+- Then what are you doing here?
+- I'm here with, uh...
+- Oh, I see.
+- Oh.
+- No harm done.
+- [SIGHS]
+- You get it?
+- Not exactly.
+- I had a little awkward moment there.
+- What happened?
+- Went for the purse, she turned then my hand was very...
+- I mean, it was very lightly on her... Kind of...
+- Really not that important.
+- Ugh. She's still at the bar.
+- No. She's going.
+- He's taking her purse.
+- What? Who is?
+- The bartender.
+- She's already made the drop.
+- Hand it over.
+- [IN ITALIAN]
+- Okay.
+- Uh, Sarah.
+- She knew we were coming.
+- Let's go.
+- Okay, remain calm. Remain calm.
+- Should I throw it?
+- [b*mb CLICKS]
+- Why did it click? Clicks are bad.
+- A pressure sensor. If you let go, it'll explode.
+- [LAUGHS]
+- Go, quick, quick, quick. Quick.
+- Do what you do. Ahem.
+- [b*mb TICKING QUICKLY]
+- Sarah, listen.
+- I can't die without you knowing that I accept you for who you are.
+- Your unpacking, it doesn't matter to me.
+- Nothing matters. I still love you.
+- [SIGHS]
+- [CHUCKLES]
+- You still love me?
+- Sorry, what? What?
+- Did I... ?
+- Those weren't the best last words, were they?
+- Top three things you can do with a Roomba. Number three, go.
+- This new Buy More has changed a lot, and I don't think it's for the better.
+- Casey: Shut up, Grimes.
+- Ha, ha.
+- Dude, what is up with the Buy More? Everyone is, like, scary efficient.
+- Hadn't noticed.
+- Hadn't noticed, either.
+- Man: Bull's-eye.
+- Oh.
+- Twenty-five feet. I can do better.
+- Okay. Tell me not everyone in here is a spy.
+- Chuck promised Ellie he's not working for the CIA anymore.
+- I'm worried. She's not sleeping as it is. If she even thought Chuck was still a spy...
+- Bartowski is out.
+- Buy More is still my cover.
+- Sadly, that hasn't changed.
+- I don't know.
+- Something about this place still seems...
+- Off?
+- Thirty feet.
+- That's more like it.
+- Devon: So where is Chuck?
+- We make a great team, you and I.
+- You are such a day-saver. I am super proud of you. I really am.
+- Proud of us, really. How well we work together.
+- Sarah: Any sign of Sofia?
+- Uh, no. Are you mad at me?
+- If the w*apon wasn't in her purse, she didn't have it with her at the party... because that dress didn't conceal much.
+- I wasn't... I wasn't looking.
+- I wasn't looking, first of all. It's a very stressful situation... watching one's life flash before one's eyes like that.
+- And at the end of the day, you have to admit, I did say I love you.
+- That's what should matter.
+- Lf we hadn't have stopped that b*mb... your last words would've been about my weird unpacking thing.
+- Sorry. I should never have done that.
+- I don't even care. I don't. Spies pack light. I get it.
+- Yes. We do pack light.
+- We have to be prepared for the next mission.
+- And right now we really need to focus on this mission.
+- Let's go, Chuck.
+- [KNOCKING ON DOOR]
+- Can I help you, Mr. Grimes?
+- Yes. I'd like to talk to you... about how well things are going here at the Buy More.
+- Things do seem to be running quite smoothly.
+- Exactly. Yeah, uh, that seems to be the problem to me.
+- It's too right that it's wrong.
+- And tell me, Mr. Grimes... what do you know about running a CIA base?
+- Nothing.
+- But I do know how to run a Buy More.
+- And, with all due respect, general, this is no longer a Buy More.
+- You have five minutes.
+- Only need two. Walk with me.
+- One of the characteristics of old Buy More was inattention to detail.
+- For example: Take this generic yet tasty chocolate drink, right?
+- Now, a year ago, this would have sat...
+- Oh. For about a week until Jeff came and lapped it up off the floor.
+- Here, this one's fresher. Enjoy.
+- My people were trained to be observant and efficient. It's the CIA way.
+- Aah, but it's not the Buy More way. You see?
+- If customers don't have hazardous spills, mislabeled products... surly employees to distract them, they may start to enjoy their time.
+- Let's continue.
+- I don't wanna be an astronaut anymore, Mommy.
+- I wanna work at the Buy More.
+- First you gotta stay in school, little man.
+- No one should ever, ever want to work here.
+- You have to look at the big picture.
+- A pleased customer will wanna stay in the store longer... wanna bring his friends, his family, tying up valuable CIA resources.
+- Not to mention, encouraging them to look a little deeper.
+- What happens? What happens when they do look a little deeper?
+- Maybe just one customer discovers... what's really going on here.
+- [GRUNTS]
+- General, look... if even I can see through this cover... what's an enemy spy gonna think?
+- What do you propose?
+- You look really pretty right now.
+- Hmm, just saying, with the bl*od rushing to your head... it brings out the color in your cheeks.
+- Hey. Spider-Man kiss?
+- No.
+- Okay. Maybe later. Hmm.
+- Unh, if I could just... Here we go.
+- And down.
+- I see Sofia stays in the presidential suite.
+- And they say crime doesn't pay.
+- Hmm.
+- Sarah: Hmm?
+- Huh? What?
+- Uh, it's nothing. Nothing.
+- No, please. Say it, Chuck.
+- It's not a spy thing per se.
+- What's not a spy thing?
+- Unpacking. Not a spy thing.
+- I mean, not every spy has issue with it, like some spies do, you know.
+- Clearly, because Sofia felt comfortable enough to settle herself in... and it's only a hotel room. Just thinking out loud.
+- Hmm. Thank you for that.
+- There's a safe in the corner here.
+- Oh, nice. Good eye.
+- [DOOR OPENS]
+- Gerard: Everything looks secure here, ma'am.
+- Miss Sofia, can we have a moment to talk?
+- Just stand guard. That's what you're here for.
+- [BEEPING]
+- [WHISPERS] What do we do now?
+- [WHISPERS] We cant leave without the w*apon.
+- Can you see anything?
+- Are you serious?
+- No, I'm serious.
+- What, are you kidd... ? Who do you think I am?
+- If we can't see anything, then she cant see anything either, right?
+- Right. Okay. Well... l'll get the guard, you get the safe.
+- Break.
+- Miss Sofia.
+- Don't turn around.
+- I have something I need to tell you, Miss Sofia. I love you.
+- [g*n COCKS]
+- Sofia: Don't move.
+- [MUMBLES]
+- Look at me.
+- Okay, you should know that I have a girlfriend.
+- Gerard: For so many years, I've been your muscle.
+- But you know, the strongest muscle in my body... is my heart.
+- And now it belongs to you.
+- Sorry.
+- Ugh!
+- Who do you work for? How'd you find me?
+- I'd love to get into this. Is it possible to cover yourself with maybe a towel?
+- Ha... ! Hey.
+- Hmm.
+- Is she naked?
+- Who?
+- Yes. Yes, she is.
+- Sofia: Unh!
+- Sarah: Chuck, run!
+- Chuck: Move!
+- [CHUCK GRUNTS]
+- You get the w*apon?
+- You bet.
+- Stop!
+- Put some clothes on.
+- Chuck: Whoa.
+- Mm-hm. Mm-hm.
+- Right, understood. I will put a team on it tomorrow.
+- Yes. And thank you for shopping at the Buy More.
+- Everything going well upstairs?
+- Too well.
+- Unfortunately, I can't say the same for things down here.
+- Your work in Milan was excellent.
+- But we've analyzed the chips you brought back.
+- They're not functional.
+- What do you mean, not functional?
+- They're fakes.
+- Sofia was one step ahead of us.
+- Must've hidden the real chips somewhere else.
+- Interpol and FSB are looking for her now... so all we can do is sit tight until she pops back up on the radar.
+- [COMPUTER BEEPS]
+- Sorry to disturb you, but there's a man from the Better Business Bureau... here to bestow the Buy More with an Award for Excellence.
+- He needs the manager to accept it.
+- I'll be right there.
+- We need new bl*od upstairs.
+- Hopefully your woolly friend, Mr. Grimes, will come through.
+- Wha... ? Um, come... What? Come through with what?
+- Let's just say he's recruiting.
+- Day 184... still running from the po-po.
+- Oh, sweet Buy More... why and how did we ever burn you?
+- It's been, uh, dark days.
+- We've been taking gigs at the Whisper Lounge... in exchange for scraps of tapas which...
+- And we live here now... in the wild.
+- With my van.
+- Where no one can find us.
+- It's not all bad.
+- Expanding my understanding of Universal Mind.
+- Jeff has a new pet rock named Bruce.
+- I asked him, "Why Bruce? " He said when he hits it, doesn't bruise.
+- [CASEY GRUNTS]
+- Why do you bother with these idiots?
+- They may be idiots, but they're my idiots.
+- Buy More's my home for eight years. Without Jeff and Lester... it would just feel like another electronics store.
+- Do you ever miss Ace of Base?
+- Always.
+- [SQUEALS]
+- Lester: Jeffrey, we've been made.
+- The su1c1de pills. Go down like Thelma and Louise.
+- Like we practiced. Thelma and/or Louise.
+- Whoa, whoa, whoa.
+- They're everywhere.
+- Wait, wait. I got this.
+- We're not the boys you're looking for.
+- Not the boys...
+- Cut it out. Listen to me.
+- We just came here to give you your jobs back.
+- What job?
+- Your old jobs. Buy More's been rebuilt.
+- Nobody thinks that you b*rned it down.
+- What? Cars have been following us for months.
+- How do you know they weren't just driving behind you?
+- Wait. Wait, wait, wait.
+- You came all this way... just to offer us our jobs back?
+- You're seven minutes from Burbank.
+- No, no, no. No, no, no. I see what's happening here, Jeffrey.
+- For some unknown reason, they need us.
+- We have leverage.
+- Lester: It's time to negotiate.
+- All right, if we take our jobs back... we want a raise... and perks.
+- The company car and three kilos...
+- Ha-ha-ha! Free biscotti.
+- I think my water just broke.
+- [MOANS]
+- Truly one of the most degrading things I've ever done.
+- You'd rather be on a mission, but your life doesn't have to be missions.
+- I was talking to Alex. She hadn't heard from you in a while.
+- Why are you talking to my daughter?
+- More importantly, why aren't you talking to her?
+- Well, she has her mom, friends.
+- A whole life, I just don't fit in.
+- You're not gonna if you don't try.
+- [GROANS]
+- Hey, Devon. Need some help?
+- No. No, no, no. I'm good.
+- Just shopping. But I was in the Buy More.
+- Everyone there was super attractive and highly k*ll.
+- It was like I work there.
+- But why would I work in the Buy More?
+- Hmm?
+- Unless I was a spy.
+- Um, you know Casey and I are still spies and the Buy More is still a cover.
+- Chuck has nothing to do with it.
+- Exactly.
+- I'm out, bro.
+- I know. I know, man. I'm sorry I questioned you.
+- And I know I've been going a little overboard lately.
+- But it's just really important for Ellie, you know... to know that everyone who is here is really here for her now.
+- That everything is normal.
+- Yeah, to...
+- Totally normal.
+- [IN SPANISH ACCENT] "Normal. "
+- [IN NORMAL VOICE] As the Spanish would say. Ha.
+- [IN SPANISH ACCENT] Not irregular.
+- Thank you. All right.
+- Oh, let me help.
+- No, babe, I got it. You don't lift a finger.
+- What is all this?
+- Oh, just, uh, a few sleep machines.
+- You know, rainforest sounds, white noise, dolphin chatter. The ushe.
+- Uh, that's very sweet of you, but you've done so much already.
+- Look at the apartment. You have two bassinets.
+- We have a kitchen full of baby vegan food.
+- Sweetheart, we are not vegan.
+- But we could be.
+- I just wanna know what's really going on here.
+- We both know that you're not good at letting people help you.
+- You've practically raised Chuck on your own since your mom...
+- This is about my mom?
+- No. What?
+- No.
+- Devon... you are the worst liar in the world.
+- Just tell me. Is this about my mom?
+- Yes.
+- I don't want you to feel anyone or anything missing.
+- Well, I don't want you to be worried. I don't feel like anything is missing.
+- I didn't need my mom when I was a teenager.
+- I didn't need her in med school and I don't need her now, okay?
+- You and Chuck are the only family that I need.
+- Okay.
+- Okay. So let's make a deal.
+- I will let you help me, but you have to let me pitch in too.
+- We're better as a team.
+- Don't do that.
+- What?
+- Don't unpack, please.
+- If you do it now it's only because we were talking about it.
+- I don't want it because of that. Do it when you feel comfortable here.
+- I do feel comfortable here. It just...
+- It doesn't come naturally to me, putting roots down.
+- I know.
+- You were always on the run and being a spy doesn't make it easy... to make a home anywhere. I understand.
+- It's just what you're used to.
+- But I love you... because we're different.
+- And one dress... is not going to make or break us.
+- One dress.
+- What?
+- Sofia unpacked everything except for that one sequin dress.
+- Right. She put it in a suitcase. Haven't we seen that dress before?
+- Security cam footage.
+- Why wear the same dress twice when she has a closet full of options?
+- Because maybe it's not just a dress.
+- The technology's in the microchip, not the b*llet.
+- The chips...
+- Hidden in the dress.
+- The sequins.
+- Fashion Week ends... slip the dress through Customs.
+- The collections. She's still in Milan.
+- Closing night is tomorrow night. We need to get back there now.
+- It's a good thing we're already packed.
+- [STATIC REVENGER'S "I LIKE THAT" PLAYING]
+- Sofia is hiding the dress in one of those collections.
+- It should be in one of the backstage areas.
+- I'm gonna guess it's that one.
+- Those look like our men.
+- Sarah: Think this will work?
+- Absolutely. Watch me.
+- [CHUCKLES]
+- [SPEAKING IN ITALIAN]
+- It's a pleasure to meet you. It's a pleasure, pleasure.
+- My name is Charles Carmichael... and I know that's gotta be confusing right now. Let me explain.
+- I'm actually the guy that you're looking for.
+- I'm gonna need the dress behind that door.
+- And good night.
+- Went better than I thought it would.
+- What? You don't have any faith in my tranq gloves? Come on.
+- I'm pretty proud of them.
+- Okay, you take that side.
+- The right... Okay. Then you go... Okay.
+- Excuse, me.
+- We need to be quick, remember.
+- Going as fast as I can. A lot of dresses here.
+- None of those.
+- Oh, bingo. Bingo. Hey, check it out.
+- Found it.
+- Good.
+- Okay.
+- Whoa. Hiyo.
+- I just gotta say, this was a great idea.
+- I mean, as far as missions, best ever. Ha, ha.
+- Zip.
+- Ahem. Of course, yes. You hold... and I zip: Slip back into this and Bob's your uncle.
+- Bra.
+- Of course, strapless.
+- What was I thinking?
+- Okay.
+- Let's go home.
+- Shall we?
+- Guard: Try here!
+- [BANGING ON DOOR]
+- Okay. Slight problem.
+- Sarah: Uh, there. Go.
+- [MAN SHOUTS IN ITALIAN]
+- Stop! Stop!
+- Chuck: Unh.
+- I love you, Sarah.
+- Chuck!
+- [g*n]
+- [g*n COCKS]
+- I think you've got something of mine.
+- [GRUNTING]
+- Drop it.
+- Unh!
+- Whoa.
+- Five on one, five on one. Yeah, not the greatest odds.
+- I get it. I get it.
+- [ALL GRUNTING]
+- You messed things up with Miss Sofia.
+- No... I didn't mess up anything. You really didn't stand a chance.
+- She's cold and distant and ris...
+- Here we go.
+- That's no... Here, could you hold that just for a second?
+- Thanks.
+- What I'm looking for.
+- You slapped me.
+- Well... Agh!
+- [GRUNTING]
+- [PANTING]
+- Sofia: Red is a good look for you.
+- It distracts from your face.
+- [BOTH GRUNTING]
+- [PEOPLE SCREAMING]
+- [CROWD GASPS]
+- [SHOUTS IN ITALIAN]
+- I assure you, general, my cover is still intact.
+- I know. The two of you acted quickly and intelligently.
+- Because of your efforts, we recovered the guidance chips... and put one of Volkoff's key sellers behind bars.
+- Feels good to be back at work.
+- Feels good to be home.
+- Hey. I made you a protein shake with a baby boost, babe.
+- Thanks, honey. I'm actually headed out, though.
+- My husband bought sleep machines in excess the other day.
+- I'm headed to Buy More to return them.
+- No.
+- I mean, it was my fault. I should return them.
+- I think I can handle it.
+- Hey... we're a team, remember?
+- Oh, ha, ha. Mm, right, absolutely.
+- Yeah. Okay.
+- Well, don't feel like you gotta spend a ton of time there, huh? Ha, ha. Hurry home.
+- All right.
+- [PHONE RINGS]
+- Hey, Devon.
+- Dude, the hen has left the nest.
+- The hen... What?
+- Ellie is en route to the Buy More.
+- Okay.
+- Bro, I know you're not a spy... but is Ellie gonna believe that when she sees the new Buy More?
+- Electronics, roll left. Entertainment, right.
+- Okay.
+- I'll get this for you. Mm-hm.
+- Oh, thank you.
+- Woman: Absolutely.
+- Is this what you're looking for?
+- Oh, this is perfect.
+- [SPEAKING INDISTINCTLY]
+- EI, hey.
+- Hi.
+- Welcome to the new Buy More.
+- Yeah, what... ? What's going on? This place seems so strange.
+- You know, it could be the, uh... the current corporate restructuring going on. Everybody is just...
+- Yeah, well, the... Excuse me. Sorry.
+- Uh, the restructuring has actually been restructured.
+- So although it may appear a bit off... I can assure you that Buy More is, well, the Buy More.
+- [GRUNTING]
+- Hi. Can one of you help me?
+- No.
+- We're on break.
+- Rumor has it you're pregnant.
+- Is there room in that womb for two?
+- Chuck: Run along, Jeff.
+- Let me know.
+- Some things will never change.
+- Well, I'm still here to help.
+- Told you. Just like normal.
+- [SIGHS]
+- Mr. Grimes.
+- Diane.
+- Ahem. General.
+- My superiors have been monitoring the Buy More.
+- And they believe your additions have made for an airtight cover.
+- I think you have earned this.
+- Thank you so much. Yeah.
+- What have I earned exactly?
+- The keys to the Buy More.
+- Aah.
+- I'm making you store manager, Mr. Grimes.
+- I'm sorry. I think what you meant to say was Assistant Store Manager.
+- Don't make me regret this.
+- I'm manager?
+- I'm manager?
+- Beckman: Congratulations, Grimes.
+- Guys.
+- What, Morgan? I'm trying to relax here.
+- Drinks on me tonight.
+- [CHEERING]
+- Thank you, buddy. Thank you.
+- Well drinks. And happy hour.
+- Same old Morgan.
+- Wanna come get a drink with us, big guy?
+- No, I have some mission prep I have to take care of.
+- Uh, Casey.
+- How's Burbank ever gonna feel like home if you don't give it a chance?
+- Yeah. The Buy More may be your home, but it's not mine.
+- Alex. Hi, it's me.
+- Dad.
+- Good to hear your voice too.
+- I'm mixing it up a bit tonight and we're going sparkling.
+- It's official.
+- What's official?
+- Oh, you didn't have...
+- I wanted to.
+- I've never had a real home and I wanted this to feel like one.
+- Let me help you.
+- [GASPS]
+- What's this?
+- Uh, that's just something that I like to keep in my suitcase... at all times.
+- Whether I'm in Portugal... or Russia... or Burbank.
+- This, uh, makes me feel comfortable.
+- Safe.
+- Look, I know that it's probably taken me longer than a normal girl.
+- But you should know that you're my home, Chuck.
+- You always have been.
+- Ooh!
+- Ha-ha-ha.
+- What?
+- Nothing.
+- Nothing. It's just some...
+- Some stupid thing that Morgan said, that's all. Ahem.
+- What did he say?
+- You can tell me.
+- He said just when you think your relationship is perfect... then you find your Achilles heel, the thing that's going to destroy it.
+- You thought ours was the suitcase?
+- It's a stupid theory. It's nonsense. It's Morgan, who are we kidding?
+- We don't have an Achilles heel.
+- We have a real future... ahead of us.
+- Mm.
+- [SIGHS]
+- Maybe Awesome is right.
+- You know, marriage, a baby.
+- Who knows, maybe we're next?

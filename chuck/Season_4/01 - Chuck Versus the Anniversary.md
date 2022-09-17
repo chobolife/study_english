@@ -1,0 +1,813 @@
+# Chuck Versus the Anniversary
+
+- Mary: "And the king was freed, and the castle was restored... and the Frost Queen returned home once more.
+- This time, she was a hero.
+- And the Frost Queen promised her children... that she would never, ever leave them again. "
+- Good story?
+- I liked it.
+- The prince was cool.
+- Mary: Yes, he was, just like my little Chuck.
+- Mom.
+- Yeah?
+- Are you going away again?
+- Just for a few days, then right back to you and Ellie.
+- Good night, honey.
+- Love you.
+- Not nearly as much as I love you.
+- Chuck: My mom was a spy.
+- After she disappeared, my father spent the rest of his life trying to find her.
+- Ellie and I thought she left us, that she just walked away.
+- But what if we were wrong?
+- I need your help.
+- I need you to help me find my mom.
+- Holy cow. I cannot believe this was beneath your house.
+- This is nuts.
+- A secret spy base, and it's got lasers and gadgets and neatly organized files.
+- Why don't you just tell Casey and Sarah?
+- I know they're gonna try and stop me. They cannot.
+- I have to find the truth, Morgan: Why my mom left, why she never came back.
+- This is my search.
+- No, it's our search.
+- I'm in.
+- Thanks, man.
+- Yeah.
+- Are you flexing?
+- What? No.
+- I'm just kind of excited.
+- Okay, good, good.
+- I can't even tell you how much I appreciate your help.
+- But one very, very, very important thing: We cannot tell anyone, not a soul.
+- Not Sarah, not Casey, not Awesome, not Ellie. Not Ellie.
+- I know. You promised her you weren't gonna be a spy.
+- So she clearly cannot know about our little rogue spy team here.
+- Outside of the government, secret to the spy world.
+- Team of two, army of one, highway to the danger zone, live free or die...
+- Buddy.
+- Yeah?
+- This is not the opening of a TV show. This is real life.
+- Is this the g*n you were looking for?
+- Yes.
+- Got everything, dude. You ready to go?
+- [WHISPERS] She's still here?
+- Hurry up.
+- Yeah?
+- You're the best. Thank you so much.
+- Chuck: Mm.
+- Spy mission without me.
+- Couples do this all the time, right?
+- It's just a business trip.
+- You okay with this?
+- Yeah. Yeah, I'm fine.
+- Um, I got job interviews, and Morgan and I will spend quality time.
+- He signed us up for a go-kart racing league, so...
+- Come home soon.
+- Sarah: Mm.
+- [DOOR OPENS]
+- Ugh, I'm gonna be sick.
+- Walker, we got real work to do, like save the free world.
+- Enjoy retirement, Bartowski.
+- What am I, uh... ? What do I say?
+- "I love you. "
+- That's good, "I love you. " I like that. I love you too.
+- [SIGHS]
+- Be safe, okay?
+- Nothing is gonna keep me from coming back to you.
+- Better not.
+- Sarah: Bye.
+- Morgan: Mr. Carmichael, we're all set.
+- I have our tickets, cloned passports, money belts.
+- Let's do this. Back in the game. Me and you, real spies.
+- Sunblock. We need sunblock.
+- Man: Excuse me.
+- Very sorry.
+- Pardon me.
+- Aah!
+- [SIREN WAILING]
+- [GRUNTS]
+- Agh.
+- I knew it. I was right.
+- My mom's safe house. This is where she got all her missions when I was a kid.
+- Speaking as the bookkeeper for our joint account... it might've been more affordable if we started here and then traveled the world.
+- Yeah, well, we didn't really know about here, now, did we?
+- You got the code, buddy?
+- Yeah. Yeah, code, code, code.
+- Here you go.
+- Thanks.
+- Oh, uh, if we get a second, we need to have a budget conversation...
+- Hey, Morgan, not now.
+- This is it.
+- My dad never made it this far.
+- Okay, Mom, where are you?
+- And it's not empty, right?
+- Please tell me that it's not empty.
+- I don't get it. I don't get it. All the intel led right back here.
+- No, no, no. There's gotta be something.
+- There's gotta be a... A... A secret compartment, you know?
+- Or a passageway, or some clue that finally leads us to my mom.
+- [BANGING]
+- Yeah.
+- Come on. Come on. Come on.
+- There's nothing.
+- Okay, so we didn't find your mom... but, uh, maybe we found a new dumpling house, huh?
+- All right, well, I don't know.
+- Let's pack it up, uh, head home... fuel up on some dumplings, and we start again from scratch, okay?
+- Now, we can do this, you and I...
+- [SIGHS]
+- All right.
+- We got close this time.
+- I know we're gonna find her.
+- Oh, Chuck.
+- Talk to me, buddy, you know? Let it out.
+- You wanna cry, go for it. I got two good shoulders.
+- What are we doing? Why are we even bothering looking for my mom?
+- My dad ruined his life trying to find her.
+- She could've come back anytime she wanted to.
+- We're easy to find. Her, not so much.
+- I'm done, man. I think I'm done.
+- Uh, listen, we have to try, right?
+- [g*n COCKS]
+- Don't move, Chuck.
+- Harry: Get over here.
+- Morgan, Morgan, Morgan.
+- Coming, coming.
+- Harry: Give me them keys.
+- Yeah, here you go, sir. Here they are. Here are your keys.
+- Just please don't sh**t me or Chuck.
+- Look, if this has anything to do with my mom or Albania or Tangiers... or that café in Budapest...
+- That was not his fault.
+- Anyway, we have explanations for them.
+- What are you talking about? I'm here for the car. I'm a repo man.
+- Repo man. Morgan?
+- Right. We haven't made a payment in four months.
+- The car cost $900.
+- Yeah, but we're $43, 000 in debt.
+- I was gonna...
+- Wait. What? What? 43 what?
+- Thousand dollars' debt, and that's above the CIA money you had saved up.
+- Being a spy is really expensive.
+- [STAMMERS] Why didn't you tell me?
+- You were so busy looking for your mom...
+- All right, enough chitchat. Get away from that car.
+- Uh, Chuck, give him a little... You know what I mean? Intersect style.
+- I don't do kung fu anymore.
+- You got some chop-socky, boy?
+- No. No chop-socky here, sir. Fresh out of chop-socky.
+- Take the car.
+- That's what I thought.
+- My advice, get a job.
+- Working on it.
+- Morgan: You know, Chuck, this does not happen to real spies.
+- I'm cornered. What do I do?
+- MAN [OVER PHONE]: Use the device.
+- [g*n COCKS]
+- Sarah: Make a move and you're dead, Marco.
+- Please, make a move.
+- I thought you said the EMP was a fake.
+- I was wrong.
+- Marco: Beautiful, isn't it?
+- Volkoff Industries' handheld EMP generator.
+- Will fry every electric circuit in a three-klick radius.
+- Volkoff's upping the ante.
+- The building elevators are knocked out.
+- Mr. Volkoff's agents will be here in minutes.
+- You're trapped.
+- Put down your g*n.
+- [GRUNTS]
+- He really should be here. Chuck's the Intersect.
+- Could use him on a mission like this. I hate cracking into computer systems.
+- Well, he made a promise to his sister.
+- Chuck doesn't wanna be a spy and have to lie about it.
+- Your boyfriend needs some big-boy pants. He's a spy, he's good at it.
+- I know, Casey, you miss him too.
+- What? I don't miss him.
+- [DOOR OPENS]
+- Don't move. Stay where you are.
+- Oh, by the way, good idea to bring the chutes.
+- Thank you.
+- [CAMERA CLICKING]
+- Morgan: Yes, nice. I like this.
+- But less back. Maybe just kind of, uh...
+- Hold that. Right there, this whole sleepy confusion thing.
+- That's digital sex right there.
+- What are you doing?
+- Putting the spark back in your relationship. Sarah's gonna love these.
+- Good. Yeah. Actually, if you don't mind, hit the peck deck a little bit.
+- Oh, and, uh, a little baby oil, please.
+- Lube it up.
+- What? Ba... ? Ba... ?
+- What? No, no, no.
+- Lube it up.
+- Whatever you're doing, please stop.
+- Okay.
+- Okay. I know you're down about your mom, Chuck.
+- Let's you and I have a little talk right now, man to man.
+- Okay. Okay. Man-to-man talk. What are you doing in my room with baby oil?
+- More importantly, you and Sarah.
+- Every morning, you wake up missing her, acting like a sad sack. I understand.
+- You're stuck in this long-distance relationship that's short on intimacy.
+- That's okay. It's all right.
+- But what you need to do is open your mind to what sex truly is.
+- It's sexting.
+- Yeah, short for "sext writing. "
+- It's intimacy for people in your situation. Sexting.
+- Sexting.
+- Sexting.
+- Sexting.
+- Sexting. Buddy.
+- The terrible ideas are out of the way.
+- I told Ellie about the job hunt. She's lined up five interviews for today.
+- Okay. I'll grab our bus passes.
+- But, uh, remember, um, sexting.
+- Oh, yeah, sex talk. No, not gonna happen.
+- Morgan: Good luck on the job hunt.
+- Fine, I'll do it myself.
+- I am so glad you could come in. You know, with a résumé like this... and a degree from Stanford, it's astounding you haven't been snatched up.
+- Snatch me up. I'm 100 percent snatchable.
+- I don't use the word "snatch" often, for a myriad of reasons.
+- Relax. Why are you so nervous?
+- Ah...
+- You know, I'm not normally. I'm normally a smooth operator.
+- Like Sade. But today has been a strange, uh, day of interviews.
+- Really? Well, how?
+- Well, for starters, um, have you ever had anyone fall asleep in an interview?
+- [SNORES]
+- Um, just after that, the person sitting in your position got a little ill.
+- [VOMITS]
+- Just after that, the interviewer started going into convulsions.
+- The last interview I just came from... they told me they were going for a cup of coffee, and then they never came back.
+- I mean, how long does it take to get coffee?
+- That's really crazy.
+- Yeah.
+- Well, um, I think, Chuck, that I have some good news for you.
+- Good.
+- Yeah. How would you like to join... ?
+- [PHONE RINGING]
+- Oh. I thought I told them to hold my calls.
+- I... I... Uh, I don't think it's a good idea to answer...
+- Hello? Yes.
+- [WHISPERS] It's about you.
+- [IN NORMAL VOICE] What?
+- Is everything okay?
+- [INAUDIBLE DIALOGUE]
+- What's happening? Who is that?
+- Uh...
+- Unfortunately, Mr. Bartowski, the position has been filled.
+- What's happening? Who was that?
+- And I'm going to have Security escort you from the building.
+- Wait. I'm... Wait, wait, wait. Hang on a second. What did I do?
+- Who was that? Perhaps I could explain whatever the situation is.
+- This is completely uncalled for.
+- Morgan: Look on the bright side, Chuck.
+- Bus has much more legroom than the hatchback.
+- There's a conspiracy against me.
+- I feel that way after a bad interview.
+- Except with me, the conspiracy has been going on a lot longer. Like kindergarten.
+- What am I supposed to do now?
+- These were Ellie's best leads. Where am I gonna find a job?
+- Well, there's always one place.
+- Where?
+- Morgan: I can't believe it's back, Chuck.
+- It's beautiful.
+- I can't believe how fast they rebuilt it.
+- Oh, my...
+- Lord.
+- Welcome to the Buy More.
+- We're not open yet.
+- But we are currently accepting résumés.
+- Are you interested?
+- For what?
+- A job.
+- Maybe.
+- What, uh, types of positions are available?
+- I'm sure the store manager can help you with that.
+- Have at it.
+- Good luck.
+- So nervous.
+- Do you want me to show you around?
+- Yes, that would be delightful. Should I hold your hand?
+- No, you should not.
+- Okay, lead on.
+- Um...
+- Hello.
+- My name is Chuck Bartowski, and, uh, it's funny, I used to work here.
+- Woman: You still do work here.
+- Hello, Chuck. Welcome back.
+- Huh.
+- Beckman had kittens when I told her about the EMP.
+- She wants us to find Volkoff's building so we can blow the place up.
+- Another mission? We've been at it for months.
+- And I haven't seen Chuck in forever.
+- There's something else.
+- Beckman wants Chuck to come here, take a look at the EMP, see if he flashes.
+- Well, Chuck is a civilian now. We can't force him to be a spy, can we?
+- You might wanna tell Beckman that yourself.
+- Oh, Chuck.
+- As you can see, we spared no expense re-creating the Buy More.
+- Um, yeah, uh, general, I appreciate the tour and all...
+- It's no longer simply a retail store.
+- It's now a full-fledged CIA-NSA substation.
+- We can patch into security cameras all over the world.
+- Satellite relay, NORAD, NASA, the Joint Chiefs.
+- Hit that red button, we go to DEFCON 1.
+- [CHUCKLES]
+- Is that, uh, really the safest place to put that, out in the open?
+- There's a laser-based security system.
+- This is crazy.
+- You realize this is crazy.
+- No, it's not.
+- After the success of Operation Bartowski... the president made you a priority.
+- I beg your pardon? The "president" president? Like the actual?
+- You... You're... You're being totally ser...
+- I am out of the spy game.
+- You're out when I say you're out.
+- If memory serves, you actually said, "Chuck, you are out of the spy game. "
+- I changed my mind. You're back, discussion over.
+- And don't think you're going to find another job.
+- Why?
+- You, you, you.
+- That was you on the phone, wasn't it? You t*nk my interviews, didn't you?
+- [PHONE RINGING]
+- Oh.
+- Hi, Sarah. Back in town?
+- Listen, you do not have to be a spy.
+- Oh, no, no. I know, yeah.
+- Beckman just offered me a position and I turned her down.
+- How did she react?
+- Well, she...
+- Whoa!
+- Chuck, hello?
+- Chuck: Aah!
+- [SCREAMING]
+- [GRUNTS]
+- [CHUCK PANTING]
+- Hey. Hey.
+- Hey.
+- That went well, I think.
+- I'm sorry.
+- I should have called, but we just got in.
+- No, it's fine.
+- Because you're here and I'm here.
+- And I miss you a lot.
+- Mm.
+- [SPEAKS IN YIDDISH]
+- I miss you too.
+- This is the mission that just won't end.
+- It's important work.
+- But you're here now. At least for a little while, right?
+- Few weeks? Days? Hours?
+- Okay, enough sap.
+- Hey. Sarah, what... ?
+- Take a look at the mission at hand. Flash.
+- Ah. Ah.
+- Well?
+- [CLEARS THROAT]
+- Thanks, Casey.
+- EMP, uh, manufactured in Venezuela, the Corta Verona facility... which is a subsidiary of Volkoff Industries.
+- Who's Volkoff? Don't tell me.
+- Alexei Volkoff. Arms dealer, recluse.
+- He's like the Russian Howard Hughes. We've been chasing after him for months.
+- And with that single flash, we might just be able to take him down.
+- Good to have you back.
+- Oh, I'm not staying.
+- I think he misses you. Misses the flash.
+- Oh, I know.
+- [GRUMBLES]
+- This is nuts, man. The Buy More is being run by the CIA. Amazing.
+- Which would make you a spy, huh?
+- You are very perceptive, Mr. Grimes.
+- Yeah, guilty.
+- I gotta say, the new Castle is pretty freaking sweet.
+- And it's nice to be back down in here with you.
+- Can we talk?
+- Of course, anytime. About what?
+- Well, I know this is awkward, but, um, I just have to ask about the picture.
+- [CHUCKLES]
+- What, uh... ? What picture?
+- Hi-oh.
+- Chuck, do you wanna sext with me?
+- Ah. No, I don't...
+- I mean...
+- [CHUCKLES]
+- No. No, no.
+- Uh, this... This isn't my idea.
+- It's clearly not my idea.
+- This was Morgan's doing.
+- Don't worry. I thought it was cute.
+- Here's the thing. I don't know if you know this.
+- Uh, I was an agent a little while last year.
+- [CLEARS THROAT]
+- What if we got together, maybe showed each other a few moves?
+- You know, I have a trip to Thailand in the morning.
+- Mm. Sure, sure.
+- It's a new mission.
+- Oh, of course, it's the life of a...
+- I could show you something right now.
+- Really? Yeah.
+- You know?
+- Ahem. So six/nine-month anniversary. What do you think?
+- Well, I have to go away again.
+- But when I come back, we will celebrate in style.
+- Fantastic. No phones necessary.
+- Unless you want.
+- No.
+- I don't even know what that means. Forget I ever said that.
+- Hey, hey, hey, what is this?
+- The emblem? That's Volkoff's.
+- He is not afraid to advertise.
+- I have to go debrief with Beckman and Casey.
+- But we'll talk later?
+- Yeah, great.
+- Mm.
+- Mm.
+- [ALARM RINGS]
+- [MORGAN SCREAMS]
+- [GRUNTS]
+- Whoa. Whoa.
+- New Buy More rules.
+- Slides and trapdoors and the new super spy/Nerd Herder Greta.
+- Be still, my b*at heart. She digs me, I can tell.
+- Morgan.
+- Mm-hm.
+- We need to get the car back.
+- With the creepy guy?
+- [POLICE SIREN WAILING]
+- MORGAN [WHISPERS]: Okay.
+- I'm sorry. Again, tell me why we're here. This menu is linked to an arms dealer?
+- Look, I thought the last mission was a bust, okay?
+- But the menu could be the link that brings us to my mom.
+- Maybe she was after Volkoff like Sarah.
+- Okay, I'll get the menu, we get out of here quietly.
+- Yes, yes, quick and quiet.
+- There it is.
+- Aah! Whoa. Uh...
+- You young, oversexed, underworked kids.
+- You don't mess with a repo man. Not ever.
+- Yes, sir. Yes, sir, Mr. Repo-Man, sir. We are not here to mess with you.
+- Morgan, get the...
+- Get the menu. Get the...
+- Whoa, repo man.
+- Excuse me just for one second.
+- I'm gonna just very slowly...
+- There we go.
+- Perfect.
+- This is all we want, then we're leaving.
+- You want a menu? For what?
+- Chinese.
+- Dumplings.
+- Yeah? Good place?
+- No. No. It's...
+- No. I wouldn't say...
+- I like good Chinese. Hard to find, though. Hand it over.
+- You remember how we got out of that jam in Tangiers?
+- Think it'll work?
+- "Tangiers. " What does that mean?
+- It means that we need to run! Run, run, run!
+- Damn you!
+- I love dumplings.
+- Morgan: It's really weird.
+- Most of these are just your run-of-the-mill dishes.
+- But a few of these I haven't even heard of before.
+- Which ones? Which dishes?
+- For example, this Shimira Chicken.
+- Ah. Shimira.
+- Okay, Shimira is actually a nav system for spy subs.
+- This is not a menu for ordering food. This is a menu for ordering w*apon.
+- Wh... ? Why would your mom have that?
+- Let's call and find out.
+- Use your dad's encrypted phone.
+- [CHUCK MUMBLES]
+- [PHONE RINGS]
+- Ahem.
+- Ahem. Whew.
+- [CLEARS THROAT]
+- MAN [OVER PHONE]: Who is this? Identify.
+- This is Carmichael. I work for The Ring.
+- Man: The Ring was eliminated.
+- We are an sh**t of The Ring.
+- The New Ring.
+- I'm the head of security.
+- I'll need to see your organization firsthand if we agree to work.
+- Then you have to come to Volkoff Industries in Moscow.
+- Moscow, Russia. Not a problem.
+- The New Ring has very deep pockets.
+- We're going to Russia.
+- Okay.
+- I'm gonna have to sell my Millennium Falcon.
+- Then God bless you.
+- Man: Are you still there?
+- Yes, I'm here.
+- Just tell me when and where. We have a jet on standby.
+- Casey: Okay, so we ID Volkoff's facility... and we can take it out with a single drone strike.
+- Have you ever been in a long-distance relationship?
+- No. Ahem.
+- I either leave or they die.
+- I'm going to the head.
+- [DOOR CLOSES]
+- [CLEARS THROAT]
+- [CAMERA CLICKING]
+- [TOILET FLUSHES]
+- [CLEARS THROAT]
+- [DOOR OPENS]
+- [CLEARS THROAT]
+- [CASEY CLEARS THROAT]
+- [CHIME RINGS]
+- Woman: Please fasten your seatbelts.
+- We're heading into a bit of turbulence.
+- Release the gas... and I'll reroute the flight to Moscow.
+- [GRUNTS]
+- Where are we?
+- Well, desolation, frostbite.
+- Must be Russia.
+- [DOOR OPENS]
+- Marco: Welcome to Volkoff Industries.
+- Glad you could finally make it.
+- Take a load off, relax... and think about all the terrible things that we'll do to you.
+- We're pros, Marco. Your methods won't work on us.
+- Remember, I work for Volkoff.
+- I must break you.
+- [SHIVERING]
+- Chuck: Remember the plan.
+- Access the Volkoff computer system and see what they have on my mom.
+- Does that make sense?
+- Completely.
+- Although, I think my face is still frozen.
+- Chuck: Okay.
+- Hello. We're with The Ring.
+- The New Ring.
+- This is Charles Carmichael.
+- I'm Michael Carmichael.
+- So if you wouldn't mind...
+- Frigid in here as well. Wow.
+- The plan was for me to be Carmichael and you to be Sven, my mute assistant.
+- Here's the thing. These people respect a beard.
+- And the whole assistant thing, I see us more as brothers.
+- Is that so? Okay, okay, fine.
+- What parents in their right mind... would name their child Michael if their last name was Carmichael?
+- What were your parents thinking?
+- What were our parents thinking?
+- You know, it's what people in the movie business call improv.
+- Man: Nice photo.
+- [GRUNTS]
+- Good work, Walker. Get the phone.
+- [CLEARS THROAT]
+- I know where the server is. It's not far.
+- If my father's codes still work, we should get in.
+- What do you think? Um, maybe drop a little Intersect style on these fools.
+- Karate chop your way in. I will hide behind the receptionist desk.
+- Yeah, that, or we could just run really fast.
+- Tangiers? Here?
+- Tangiers, exactly.
+- Ah, could work.
+- Pick up the case.
+- One, two, three. Here we go.
+- Hurry up.
+- Sarah: Come on.
+- Come on.
+- Almost got it.
+- [DOOR LOCKS]
+- Oh.
+- I've never run so fast in so many layers before.
+- Game time.
+- Yep.
+- This place is nuts.
+- Yeah, it's a Cold w*r relic, buddy.
+- Oh, dude.
+- What is this?
+- Morgan, that's an EMP.
+- So I wouldn't touch that.
+- This is an EMP?
+- Yes, it is.
+- No touching, Morgan. Gotcha, gotcha.
+- Casey: Good work, Walker. Call Beckman.
+- No, I can't call. It's gonna be too loud. I'll text Chuck. I was texting before.
+- [PHONE BEEPS]
+- Your phone.
+- Yeah, I'm kind of busy right now.
+- I'll get it for you.
+- Sarah. She's sexting you.
+- Not now, Morgan.
+- Gotcha.
+- Go on, milady.
+- [BEEPS]
+- What does he say?
+- He thinks we're sexting.
+- What?
+- What does that even mean?
+- [PHONE BEEPS]
+- "SOS. " SOS.
+- Skin on skin.
+- Yes, please.
+- Oh, come on.
+- Filthy.
+- He still thinks we're sexting.
+- You kiss your mom with those thumbs?
+- Oh, my God.
+- Oh, my God.
+- Daddy likes. Oh, you're in trouble.
+- Daddy likes.
+- [CLANGING]
+- [WHISPERS] Hey, someone's coming.
+- [WHISPERS] We're inside Volkoff, Subbasement 4. Tell him.
+- Got it. Bypassed their security. I'm in.
+- Awesome, awesome.
+- Anything?
+- Nothing coming up with her name.
+- I'm checking aliases, missions Dad thought she went on, w*apon she was after.
+- [COMPUTER BEEPING]
+- Hang on. Hang on. Wait a minute. "Frost. "
+- Frost.
+- The Frost Queen.
+- My mom used to tell me stories about the Frost Queen.
+- That can't be it.
+- Either way, let's download and get out.
+- It's encrypted. It's encrypted.
+- But I have a program that can hack it.
+- And then we can download it.
+- Right.
+- Quickly.
+- [PHONE BEEPS]
+- Wait a minute. Oh, crap.
+- What?
+- It's Sarah.
+- But it's... I thought she was sexting, dude.
+- She's here with Casey, and they're in trouble.
+- What do we do? Call Beckman.
+- Beckman or CIA or the Marines, because someone's gotta save them.
+- Who's gonna save them?
+- We are.
+- Marco: Enough with the toes.
+- No one's coming.
+- I would love nothing more than to put b*ll*ts in both your heads.
+- Yeah, go ahead and do it. Don't jabber, just do it.
+- The problem is you're not the two agents I'm looking for.
+- In the past six months, two CIA agents... have gotten closer to Volkoff Industries than any other spy.
+- They're ghosts.
+- They expertly use public transportation to avoid being tracked.
+- So tell me... who are these master spies?
+- No idea.
+- Never seen them.
+- Chuck: Morgan, this way.
+- [g*n COCK]
+- Back, back, back.
+- [g*n COCK]
+- MAN [OVER RADIO]: Got them. They're in the building.
+- They're here. They must have come for you.
+- Well, that's their first mistake.
+- This entire building is a trap.
+- So, buddy, how rusty is your kung fu?
+- I haven't used it in months.
+- Great.
+- So you want to speak to your friend?
+- Sarah: Chuck, what's going on? What are you doing here?
+- I know you must have a lot of questions, and I promise I will explain later.
+- You've gotta flash. You've gotta get out.
+- I've heard enough.
+- This is a mistake. He's not a spy.
+- k*ll them.
+- No, please, no.
+- [g*n OVER RADIO]
+- Chuck?
+- [SCREAMS OVER RADIO]
+- Well, it all seemed a bit anticlimactic.
+- I'm gonna tear you limb from limb from limb.
+- Okay, I got it. Somebody please sh**t this guy.
+- CHUCK [OVER RADIO]: Hello?
+- Yes, who is it?
+- Chuck: Look, you clearly have no idea who I am.
+- You only sent 10 of your men to take care of me.
+- So let me break it down: If you touch one hair on Sarah's head... I will do to you what I've just done to your men. Understand?
+- I'm coming down there right now.
+- Scary enough?
+- I'm scared.
+- I was scared when you... Rusty? You're not rusty at all. You are limber.
+- I suggest you start running, right about now.
+- Follow me.
+- [GRUNTS]
+- [GROANS]
+- That hurts. I'm so out of spy shape.
+- What the hell are you doing here?
+- Saving your lives, okay? Let's just go with that for now.
+- Ahem, I'm good.
+- Cut me free.
+- I got some Russians to k*ll.
+- Chuck: Not yet.
+- There's one more thing I have to do.
+- I'm waiting for you, and I don't like to wait.
+- MAN [OVER RADIO]: Boss, the Americans have escaped.
+- Casey: Chuck, why are we here?
+- The computer? This is what you came here for?
+- Look, Sarah, I have to tell you the truth.
+- I took over my father's search for my mom. She's a spy.
+- I thought I could find her, save her, bring her home.
+- You should've told me.
+- You would've tried to stop me.
+- Of course. I don't want you to get hurt.
+- Sarah, I have to do this. This is my mom, okay?
+- I need to know the truth.
+- No lying. That was our rule.
+- In all fairness, I was just, you know, keeping a secret. I wasn't lying.
+- New rule: No secrets, no lies.
+- Starting now.
+- Starting now.
+- Great, you've made up. How do we get out of here?
+- MARCO [OVER RADIO]: You can't get out.
+- This is a living building, totally automated.
+- The security system is activated.
+- If you die, you die.
+- That sounds ominous.
+- Hope the file was worth it, Chuck. We're sitting ducks in here.
+- Sorry, Mom.
+- Chuck, what are you doing?
+- I set off the EMP.
+- It disables the building. We walk out of here.
+- But the computer, you'll lose the file. You might never find your mom.
+- Yeah, well, it's not worth losing you.
+- Any of you.
+- Yeah, we get it. Pull the trigger.
+- Okay, great. Great plan. Now what?
+- Now we deploy the best commie r*fle ever invented, comrade AK-47.
+- Move it, move it.
+- Let's go, let's go.
+- Everybody alive?
+- I'm okay, I'm okay. A little cold, but...
+- Anyone that matters?
+- Where's the getaway car?
+- Happy anniversary?
+- Happy anniversary.
+- [GASPS]
+- Chuck: So that's it.
+- That's the whole story.
+- Well, I'm just peeved you didn't ask us for help.
+- I'm sorry.
+- Will you help me find my mom?
+- Yes.
+- Yes, of course. Chuck, you know what this means.
+- You're gonna have to rejoin the agency and be a spy.
+- I know.
+- The question is, do we tell Beckman about my mom?
+- No, not yet.
+- Chuck, what about your sister? What are you gonna tell Ellie?
+- I have to tell her the truth.
+- I have to tell her that I am a spy.
+- [GASPS]
+- Chuck.
+- Sorry, I didn't mean to scare you.
+- That's okay.
+- How are you?
+- The interview didn't go well?
+- No, none of them, really.
+- There's something that I have to do, Ellie.
+- It's okay, Chuck.
+- I know.
+- What?
+- I saw the new Buy More.
+- Uh, right, yeah. I did get a job there.
+- Ellie, I'm not... That's not...
+- It's okay, Chuck. It's a job.
+- Those are really hard to come by these days, so...
+- My turn. Sit down.
+- Okay.
+- What's up?
+- I'm pregnant.
+- What?
+- Are you... ? What? Seriously?
+- I was gonna wait until Devon got home, but I saw you and I had to tell you.
+- Oh, my God. Ha, ha.
+- Ha, ha.
+- Oh, my God, I'm so happy for you.
+- Oh, my God, I'm hugging you.
+- Did I hurt the baby?
+- Stop.
+- Have I hurt the child?
+- Chuck.
+- Oh, my God, that's amazing.
+- I'm really happy right now, Chuck.
+- I mean, I'm starting a family... a new family, and you have Sarah, and you're safe, and just...
+- I'm really so happy right now.
+- Chuck: I couldn't tell her, not now.
+- She doesn't want me to be a spy... but our dad gave me this mission to find our mom, to know the truth.
+- I can't not do this. I have to do this.
+- That's not being a spy, that's being a brother.
+- I cracked into the deep database for your mom... and this is all I could find.
+- Look at the top of the page.
+- She was captured?
+- Yeah.
+- And there's nothing else after that.
+- This whole time, Ellie and I thought that our mom left us... because she didn't care about us. But she was taken.
+- Are you gonna tell Ellie?
+- No.
+- No, not yet.
+- If my mom is still alive, I'm gonna find her and bring her home.
+- Why did you bring me here?
+- Found out some interesting information about you.
+- Someone's looking for you.
+- Who?
+- Your family.
+- Have you told Volkoff anything?
+- No, I told him nothing.
+- That's good.
+- That is very, very good.
+- [GRUNTING]
+- Wait.
+- Please, I have a family.
+- So do I.

@@ -1,0 +1,737 @@
+# Chuck Versus the b*llet Train
+
+- Hi, I'm Chuck. Here are a few things that that you might need to know. I've had a suspicion that something's happening behind the scenes here.
+- I knew it! We were right.
+- Casey: X-13 gas-- short-term memory eraser.
+- They'll forget the last 24 hours.
+- Lester, something really weird is up.
+- Last thing I remember is that there's something going on underneath the Buy More.
+- Nice to meet you. I'm Nicholas Quinn.
+- And I'm about to become the Intersect.  have your husband. Bring the Intersect to the San Pedro docks, pier 23
+- It was a trap!
+- We got to get out of here!
+- Walker, no! Don't do it!
+- So, we're taking the b*llet train, huh?
+- You nailed it, genius.
+- WOMAN (over P. A. ): The Tokaido Shinkansen will be departing in ten minutes.
+- So, Nagoya, Osaka or Kyoto, Quinn?
+- What's the lucky city... ?
+- The location's a secret.
+- Naturally.
+- I still don't know what you expect from me.
+- I told you... You didn't know how to fix the Intersect.
+- Yes, you mentioned that.
+- Maybe you failed in the past because you didn't have my servers or my technicians, or maybe you weren't properly incentivized.
+- What's that supposed to mean?
+- You didn't have a g*n to your head.
+- But you will this time.
+- But without the Intersect in front of me, I have nothing to fix.
+- I got word that your friends, Walker and Casey, just delivered the Intersect glasses to my men.
+- They're en route to my base.
+- You've had your time, Bartowski.
+- Now it's my time.
+- And don't think that you're going to get rescued.
+- Your friends are dead.
+- (door beeps, opens)
+- (coffins beep)
+- Train rolls out in seven minutes.
+- We are right on time.
+- Everything goes pretty smooth when you put on the Intersect, huh?
+- To a point.
+- Come on, we took out Quinn's henchman in a snap, and in five minutes, I had flashed on the computer and sent out those phony communiques.
+- It is useful.
+- You're awfully good at it.
+- You thought how Chuck's gonna take the news?
+- I will find the right time to tell him.
+- And besides, when we get off this train, the Intersect in my head is going to be suppressed, so he'll be fine.
+- Uh-huh. One last thing, just for grins.
+- Name, rank and serial number.
+- Oh, come on, I've had this in my head for three days.
+- It took Morgan a month to start losing his memory.
+- I think I have some time.
+- Now, let's move, Frank.
+- Relax, Casey.
+- I'm kidding.
+- Also took Morgan a month to be a jerk.
+- Guys, I don't mean to be a jerk, but I should be in Tokyo with Sarah and Casey, not stuck here like some lab rat.
+- Well, tough.
+- Sarah has the same version of the Intersect that made you lose memory and deteriorate socially.
+- As in, breaking up with me via text message.
+- Which made us stronger.
+- Ellie: So, we're trying to be proactive, determine the cause.
+- We got to poke around in your prefrontal and temporal lobes, dude.
+- Mm, I should be out there in the action.
+- I got to go out on this mission, man! Just...
+- By helping me, you are helping the mission, okay?
+- If we can figure this out, then we can help save Sarah from the deleterious side effects.
+- That's a good point.
+- Okay, you're right.
+- What does "deleterious" mean?
+- Could be worse than we thought.
+- Don't worry, honey, Morgan's vocabulary never really expanded beyond cereal boxes and comic books.
+- I'll have you know there are puzzles on them that can be quite challenging.
+- It's okay, Morgan. You're gonna get through this.
+- I know, it's just, you know, I'm a trained spy now.
+- I should be out there, you know, with my team, making the moves.
+- Hold still, Morgan. I'm a w*apon, I got to-- Hey, now!
+- Oh, that hurts!
+- That's hurty.
+- My hero.
+- (electronic bell chimes)
+- Woman: The train will be departing in two minutes.
+- Hmm.
+- (chuckles)
+- (window beeps, opens)
+- Hey!
+- Hey.
+- Hey, guys.
+- It was stuffy in here, you know, so I thought I'd open the window, and then thought maybe I'd escape.
+- Your tricky little ring-- say good-bye to it.
+- Sarah: You don't want to do that.
+- Sarah, thank God.
+- I knew you weren't dead. How'd you get here?
+- Have to tell you about it as soon as we're safe.
+- ♪
+- Hey-o!
+- (grunts)
+- That was some major ass whupping, honey.
+- What, have you been taking Strip Kick?
+- I did upgrade my fighting technique.
+- We'll talk about that later.
+- Woman: The train is now departing.
+- First stop: Yamashiro Station.
+- We got to get out of here.
+- Okay, let's go.
+- Casey, how you doing with the cargo door?
+- It's sealed.
+- I'm working on an override.
+- We may have missed our window though.
+- Don't worry, when I get there, I'll just have to f-- uh, figure something out.
+- Yeah, we'll figure it out. We always do.
+- We're out of luck on the door.
+- It won't let me override.
+- We're going too fast.
+- Chuck: Let me take a stab at it.
+- Well, it looks like somebody sent me false messages.
+- I don't know how you did it, but, uh, I'll applaud later.
+- Meanwhile, nobody moves.
+- You don't want to do that! I know more than you think!
+- (coffin beeps)
+- Well, you got out of that coffin; can he?
+- No, we put digital locks in there.
+- He'll never figure out the combo.
+- There's a coupling under the train that connects to an exhaust intake.
+- I remember that from a schematic that I flashed on.
+- If we can get down there, maybe we can jump off.
+- Casey: Easy for you to say, Walker.
+- (chuckles) I think Bartowski and I are stuck on this bucket till Yamashiro Station.
+- I'm sorry, did you just say "flashed"?
+- As in... ?
+- Shh.
+- Oh, Chuck, honey, I, um, I have the Intersect.
+- Surprise.
+- (whooshing)
+- ♪ Chuck 5x11 ♪
+Chuck Versus the b*llet Train
+Original Air Date on January 20, 2012
+- Okay.
+- So Sarah, explain to me please, uh, when, how and why you downloaded the you-know-what?
+- Okay, we'll talk about it in a minute, I promise.
+- Train lands at Yamashiro in about an hour and a half.
+- Until then, we're stuck.
+- Well, I'll have Beckman meet us with CIA and Japanese Intelligence to take control of Quinn.
+- I'll ask her to bring the suppression device.
+- Chuck, does Quinn have any other men with him on this train?
+- Wait, you-you wouldn't have downloaded the same version of the (mumbles) that Morgan had, would you?
+- Okay, I did, yes, but we will talk about it in two seconds, okay?
+- We'll need to lay low, keep guard on him.
+- I'll take first watch, you two pretend to be gaijin tourists or something.
+- Let's go.
+- All right, well, now that we have that covered, there's a few more b*llet points I'd like to go over regarding what the hell is going on, Sarah.
+- That computer erased Morgan's memory.
+- (sighs)
+- Morgan, you're helping the mission.
+- Just keep telling yourself that.
+- Yeah, I know.
+- I just, I don't know, man.
+- I-I just feel like, no matter how much they poke around in my skull and look around in there, they're just, they're not going to find anything.
+- You know? (chuckles)
+- Okay, ha-ha.
+- Come on. Yeah, I know.
+- Well, looks pretty normal.
+- There's no evident long-term effects from having the Intersect. I still don't know what caused the memory loss and why it triggered after a month?
+- All right, in the month between him getting the Intersect and his amnesia, what happened?
+- Castle was renovated, retooled.
+- Carmichael Industries was formed.
+- And then they started going on missions.
+- Anything different happen on missions?
+- Uh, I started wearing tight slacks.
+- Any-any head trauma, concussions?
+- What? No, no.
+- Nobody would even close to me, okay?
+- I would just flash and then bam, I dropped those baddies like they were hot.
+- You would flash.
+- Were you flashing before missions?
+- Didn't have to. But out in the field, I was busting out the Intersect all the time.
+- That's when you became a douche.
+- Would you say "douche"? It seems like...
+- Maybe there's a correlation between the number of flashes...
+- And brain deterioration.
+- Guys, that's brilliant.
+- Can I go to Japan now?
+- No, no. This is just a hypothesis.
+- We have more work to do.
+- Of course you do.
+- Morgan, what's gonna make you feel better?
+- Pizza?
+- Eh, I don't know.
+- Combos?
+- You know me so well.
+- Pizza Combos!
+- That... was my favorite growing up.
+- Pizza Combos.
+- Sarah: We were surrounded.
+- And so there really was no choice.
+- No, no, of course.
+- I-I get it.
+- It's just, with what Morgan went through...
+- Ellie's working with him to head off any possible complications.
+- And this will be gone in an hour and a half.
+- I promise.
+- Okay, so I guess we just chill, then.
+- It's the coolest thing in the world, isn't it?
+- The coolest ever.
+- Did you do any parkour? Off a bridge, onto a moving truck, and then onto a car going the opposite direction.
+- Ohh, awesome!
+- You know, I've been a spy for so long, and I've never felt this powerful in my entire life.
+- It's incredible.
+- Are you ready to say good-bye to all of it?
+- The g*n, the b*ll*ts, the parkour?
+- I don't want to live my life in danger anymore.
+- I'm ready to retire and start a family.
+- Our future is exciting enough.
+- Hm.
+- You know, uh, we still have a good bit of time before we get to Yamashiro.
+- And starting a family's not something you can just, you know, jump right into.
+- Yeah, no, uh... we need some practice.
+- Lots and lots of... practice...
+- Allow me to set the mood, my lady.
+- Yeah, we... (sighs)
+- Ooh.
+- I have no idea what any of this means.
+- Is that a chicken button?
+- Does a chicken come out when you hit the button?
+- (gasps and sighs)
+- (hydraulics hissing)
+- Hey... well done.
+- (unzips)
+- Domo arigato, Mr. Roboto.
+- Bring it in here.
+- Let's go make us some sexy...
+- ♪
+- Who the hell are you?
+- Hey, great. We're with the Flu Bus.
+- Did you get your flu sh*t?
+- I do not believe in shots or inoculations.
+- Who authorized this? Morgan Grimes.
+- Nobody tells nobody nothing.
+- Oh, hell no.
+- This place will not fall to seed on my watch.
+- We have a lot of expensive new inventory here; you will not destroy it!
+- It's for selling microwaves.
+- Not for exploding eggs, avocados, Christmas tree ornaments, fluorescent light tubes, bars of oatmeal soap, or a football.
+- Fine. Be lame. Son, have you considered that maybe it's time for you to grow up?
+- Like your friend Jeffrey?
+- Thank you. You're the best.
+- Is it really your destiny to be a complete moron?
+- (gasps): Oh, Lord.
+- I overheard what Big Mike said, and I hope it sank in.
+- It did not. Leave me be.
+- Jeffrey, stop it. I know what you're thinking, and I do not want to discuss this topic again.
+- What are you so afraid of, Lester?
+- Maybe this is our destiny.
+- Look, they're just dreams, man.
+- How can they be dreams if we're both having the same dream?
+- The fallen snow, a different Buy More?
+- It's like someone tried to wipe our memories clean.
+- I know, it's true. It's just...
+- It scares me. We can't be scared.
+- We have to figure out who would want to scour our minds, and why.
+- I think better when I'm blowing up avocados.
+- There are mysterious happenings around here, and we can't ignore them anymore.
+- Lester: Hey.
+- Had your flu sh*t? Uh, yeah. Thanks.
+- How about you get another, or I will k*ll you right here?
+- Don't make a sound.
+- Did you see that?
+- In my previous state of impairment, I wouldn't have cared or noticed that Grimes's woman-- forgive me, not PC--
+- Grimes's significant other was just taken at g*n.
+- The newly unimpaired you is a master... of the obvious.
+- This is the call.
+- We'll find the truth, even if we have to face mortal danger.
+- Okay.
+- (horn blowing)
+- (sighs)
+- Cherry blossoms.
+- Quinn: Colonel, would you mind opening the lid for a moment?
+- I'd like to discuss something with you.
+- Not interested.
+- Oh, you can keep your g*n on me.
+- I won't try to escape. In fact, there won't be any need to.
+- Your daughter's name is Alex McHugh, correct?
+- If you want her to live, do exactly as I say.
+- Dad?
+- I'm okay, but they have g*n.
+- And now the picket fence.
+- See?
+- I haven't forgotten anything.
+- Mm-hmm.
+- And perhaps... this little man.
+- Or wo-man... (giggles)
+- ... someday.
+- Someday.
+- (phone buzzing)
+- It's a text from Casey.
+- He needs a break.
+- This is gonna be so good.
+- Oh, oh, ooh.
+- Hey, Casey, what is going on? Where's Quinn?
+- His men have Alex.
+- Casey: I'm gonna need you to follow me.
+- Sorry. I have no choice.
+- I'm gonna need you two to follow me now. Come on.
+- Do what I say, and no one gets hurt.
+- Casey: Do what I say, and nobody gets hurt.
+- If you fight, Quinn (over comm): or try to run, my sweet little daughter gets her head blown off.
+- And really sell that one, Colonel.
+- (sighs)
+- If you fight, or try to run, Alex gets her head blown off.
+- Now, move to the control panel and shut down the dining car.
+- I want some privacy.
+- Go to the control panel, Chuck. Open it.
+- Move. Okay...
+- Shut down the dining car.
+- Upper left.
+- Hit it. (chimes)
+- WOMAN (over PA): The dining car is closed until further notice.
+- Innquay say onway ommscay.
+- Enough of the kabuki!
+- Quinn: Move it out.
+- Let's go.
+- (barely audible): Chuck.
+- Text Morgan.
+- Tell him to get Alex to safety.
+- Do it.
+- "Alex in danger.
+- Get her to Castle ASAP. "
+- What is... ? No.
+- She's all good, guys. She's with us.
+- No, she's not.
+- She went up to the Buy More for Pizza Combos.
+- She should be back by now.
+- Wait a minute. Hold on a second. What do you... ?
+- (typing)
+- Well, she's not in the Buy More.
+- Someone's taken her.
+- Okay, we got a situation here.
+- (starter grinds, engine stalls)
+- (starter grinding)
+- I don't know what you want from me.
+- I want you to shut up.
+- Ron, what the hell's the holdup?
+- I don't know, it just won't start.
+- Well, we can't exactly call for a tow.
+- So we'll wait for instructions.
+- If the order comes to k*ll her, we do it here.
+- I'm not walking across this parking lot with a g*n in her ribs.
+- Exactly what did you do?
+- Sugared their gas t*nk.
+- It's an oldie, but a goodie.
+- Man, I haven't shugged a t*nk in... ds.
+- Anyway, now that they are incapacitated, in a mobile sense, we need a plan.
+- It should be keen and clever, Mm-hmm. utilizing our unique talents.
+- Do we have any of those?
+- I think you are uniquely wasteful and destructive.
+- Let's build on that.
+- (whooshing)
+- Think Casey has a plan?
+- I don't know; he's not letting on.
+- We don't really know what's around that corner.
+- But we can handle it, right?
+- Of course. It's just...
+- The end is so near, you can taste it?
+- I want that house and dog and baby, Sarah.
+- Me, too.
+- Okay, let's wrap this up, take out Quinn and save Alex.
+- Save the day.
+- Quinn said, stop whispering like fourth-graders.
+- Ah.
+- Uh... tea?
+- No?
+- I'll get to the point.
+- I want my Intersect technology, and someone has stolen it.
+- Release Casey's daughter, and we'll give you the glasses.
+- You mean these?
+- I had the Colonel fetch them.
+- Worthless.
+- But then again, you know that, because one of you... has the Intersect.
+- Sarah: Then you know you're outmanned.
+- Casey's not gonna fire at us.
+- He may.
+- If I don't call my men on the half-hour, his little girl gets sprayed with b*ll*ts.
+- That half-hour's up in two minutes, Quinn.
+- I brought them here.
+- Make the call.
+- Uh-uh-uh.
+- I have something I want to say, first.
+- You're gonna help me.
+- A pristine version of the Intersect is available.
+- It's in a government facility.
+- You're going to find it and download it onto these glasses.
+- Time's up, Quinn.
+- Call your men off my daughter.
+- Do it.
+- Hey, it's Quinn.
+- Uh, yeah, the little lady gets another half-hour.
+- You happy? That's all I need.
+- Half hour's an eternity.
+- I'll come up with some way to save her.
+- Ooh...
+- Walker, pull up!
+- Sarah, we might need to trade him for Alex!
+- No!
+- Maybe he hit that station, the one you were talking about. Maybe...
+- I don't know what happened. I just couldn't stop.
+- (yells) God!
+- (screaming)
+- Sarah!
+- I don't know what happened.
+- I wanted it to stop, and I couldn't; I just kept flashing.
+- God, I screwed up so bad.
+- No, no. No-no-no-no-no.
+- Hey, this is not your fault, okay?
+- Look, Casey is working on a plan with Morgan as we speak, and Ellie's working on the Intersect.
+- I'm sure she'll think of something.
+- I didn't want to flash a second time, Chuck.
+- I don't have control of it anymore.
+- (cell phone buzzes)
+- Sis, talk to me.
+- The amount that Sarah's been flashing is directly compromising her motor control, causing the migraine, which could be cranial pressure, so we don't want it exacerbated at all.
+- Is that what caused Morgan's memory loss?
+- I'm pretty certain.
+- He barely flashed for a month, and then when he started going on missions, the numbers jumped.
+- How many times before he started feeling the effects?
+- Well, he didn't have a specific amount, but it was a few times a day. What about Sarah?
+- Baby, how many times have you flashed?
+- 40 times.
+- In two days?
+- That intensity level in such a short period has to be the cause.
+- Okay, okay, the fix for now until she can stop flashing: She has to get to me or General Beckman so we can suppress the Intersect, get her an MRI.
+- Listen, Ellie, Sarah said that she can't control when she flashes.
+- Okay, that's a problem.
+- We have to, we have to think.
+- Think, Morgan!
+- Can you sneak up on the Flu Bus without being seen?
+- Casey, listen to me. We're coming at this blind.
+- We don't exactly know what they got in there w*apon. You sure you don't want to just call in the CIA? There's no time!
+- I have an idea.
+- Devon's gonna be the magnet.
+- You, Morgan, you're gonna pick a fight.
+- A firefight.
+- A f... a firefight?
+- First thing that you have to do is, you have to blindfold Sarah.
+- She can't react to what she can't see.
+- Then, Chuck, I think that there might be a way for you to build a suppression device.
+- It's a real long sh*t.
+- I'm in the mood for a long sh*t.
+- General Beckman delivered me the program for the suppressor.
+- Maybe I can download it, e-mail it to you.
+- If I did, could you build something and deliver it to Sarah?
+- Not exactly.
+- What if, one last time, we just flashed... ?
+- No way! Absolutely not!
+- Baby, what if that's the one that does the real damage or k*ll you?
+- Look, all I need is a laptop, a PSP and some virtual reality glasses.
+- If I was in a Buy More, I'd have it all in ten seconds...
+- Wait. We have got something better than the Buy More.
+- We have a train full of Japanese people.
+- Quinn's thugs are expecting a call in 19 minutes.
+- When it doesn't come, they're gonna k*ll Alex.
+- And you are not gonna let that happen. Clear? !
+- Crystal. I will not let my last words to Alex be a demand for Pizza Combos.
+- Go to my Crown Vic.
+- Devon! Dev...
+- (women laughing)
+- Captain: Wow. Casey rolls strong.
+- Like, raring-for-the- Apocalypse strong.
+- Casey: The case in front of you, open it.
+- Put in the comm device, sync it to my phone. Do it.
+- Okay, we're hot, boss.
+- I'm gonna talk you through this.
+- Grab a r*fle, the Sig and a survival kn*fe.
+- Leave the heavy stuff.
+- You'll just blow yourself up.
+- Yah!
+- Just a few more minutes more, and everything's gonna be good.
+- Hang in there.
+- Ellie: All right, Chuck, I'm gonna start sending you the file.
+- And as soon as it's complete, put the glasses on Sarah.
+- It should run right away.
+- Chuck: It's coming in strong, El.
+- You're gonna be all right, Sarah.
+- Chuck, I didn't want to say anything before, but... but this whole time you've been talking about Alex and how she's in danger?
+- Yeah? Why?
+- I don't, um...
+- I don't remember anybody named Alex.
+- Do you remember this?
+- Yeah. I wouldn't forget that.
+- Everything's gonna be fine, okay?
+- Casey: Of course it is.
+- It's gonna be fine, Sarah.
+- You're gonna be fine.
+- (cell phone buzzes)
+- Casey, we are ready to roll.
+- Okay, Morgan, listen up.
+- You find an some cover 20 meters from the target. Got it?
+- Okay, I see a Civic that might serve our purpose.
+- Which is what, exactly?
+- Devon's gonna call them out.
+- And you, Morgan, you're gonna do some sn*per work.
+- Some wet work. Got it?
+- Just so you know, I've never sniped in my life, wet or dry.
+- Just remember, you're sniping for Alex.
+- For Alex. I'll snipe for Alex.
+- Yeah, you got it.
+- You ready? Hell, yeah! All right.
+- There's some wind kicking up here.
+- I'll probably have to overcompensate.
+- Probably about 30 degrees.
+- Don't nudge a guy when he's sniping!
+- Oh, man!
+- I can't believe we're this terrible. Yeah, you are.
+- Ron: Hand over the r*fle, little man. Morgan?
+- Let's go! (grunts)
+- Easy! I'm not your little sister!
+- Morgan!
+- Casey: Morgan, what the hell's happening?
+- Casey: Morgan!
+- Hello?
+- Who the hell is this?
+- I might ask you the same question, little earling.
+- Lester? Lester Patel? !
+- Maybe...
+- Hey, Morgan was taken.
+- Jeff and Lester are my only option.
+- Look, I know this sounds crazy, but I've worked with those guys for years.
+- They may seem like botulism v*ctim, but they're loyal.
+- They can do it.
+- (grunts)
+- Lester, now I'm gonna tell you something I never dreamed I'd tell you, never dreamed I'd have to tell you, but the situation is extreme.
+- This is Colonel John Casey of the National Security Agency.
+- That is so funny. There's a John Casey who works at the Buy More.
+- That's me, you idiot!
+- I'm NSA.
+- Sarah Walker, Chuck Bartowski, they're CIA.
+- They are so not.
+- They are so so, you colossal dope!
+- Now...
+- I need you, my daughter needs you, and your country needs you.
+- Canada?
+- Patel, listen up.
+- You do what I tell you, I'll make you a hero.
+- It's the call.
+- Go to my Crown Vic.
+- Casey: Each of you grab a p*stol.
+- Leave the big stuff.
+- (passengers clamoring)
+- (women screaming)
+- (grunting)
+- The call never came from Quinn.
+- We'll k*ll them all and leave the bus.
+- Her first.
+- Don't you touch her!
+- Or what?
+- JEFF (over P. A. ): Attention, Flu Bus.
+- We have tapped into your internal public address.
+- We are armed and dangerous and suggest you surrender immediately. Over!
+- Who the hell is that?
+- I have no idea.
+- But somebody's getting ready to lose a limb.
+- We appreciate that you, too, are armed.
+- But we have heat vision, infrared scopes, laser guidance system and armor- piercing b*ll*ts. Over!
+- I think this is where we should get down.
+- Nobody has all that. It's a bluff.
+- You're g*n, outmanned, out... side.
+- And it's a lovely day.
+- So throw down your g*n and nobody gets hurt.
+- You're the one who should be worried about getting hurt.
+- Uh!
+- Behold the flame of destiny! Ha-ha!
+- (laughing)
+- What he said.
+- Boys, we cannot thank you enough.
+- How do we begin to even repay you?
+- There is a way.
+- Honesty.
+- We know that there is something going on.
+- Something spy... ish.
+- We need the truth at this point.
+- Come on.
+- Yeah, you do.
+- Gentlemen, follow me.
+- Dad, don't worry.
+- I'm fine. I promise.
+- Morgan and Devon were great, but...
+- This is so cool! My m*ssile Command.
+- ... those guys that you talk about, the ones that give you nightmares--
+- Jeff and Lester-- (groaning) yeah, they were the real heroes.
+- It's a miracle.
+- Morgan: Jeffrey, Jeffrey, Jeffrey, Jeffrey, Jeffrey, Jeffrey, yeah, no, no, no.
+- I got the whole thing on. Dangerous!
+- When are you coming back?
+- We're on our way.
+- (electronic trilling)
+- Whoa, whoa, whoa. Problemo.
+- Alex, I'm going to call you back.
+- So glad you're safe.
+- Internet went down. Well, maybe it's nothing, but if there's one thing I know, it's how to fix an Internet connection.
+- The control panel is between the last passenger car and the dining car.
+- I remember that from my prep flash.
+- Easy peasy.
+- Keep your guard up.
+- (beeping)
+- It's been tampered with.
+- This is not good.
+- (speaking Japanese)
+- No. Hey, uh... hey.
+- I'm... I'm Burbank Buy More, so I...
+- (grunting)
+- (riders screaming, murmuring)
+- A little warning.
+- The only thing I can't b*at down is the Intersect itself, but I've studied the program obsessively.
+- You know, I've done a little training myself, Quinn, so let's rumble.
+- I can hear you pacing.
+- Bartowski's really taking his time.
+- What are you thinking?
+- Nothing. He's probably just goofing off.
+- You check on him, or I will.
+- I'm going.
+- (grunting and groaning)
+- Casey: Freeze! Now!
+- Put it down, Quinn.
+- Down.
+- Two on one-- that's not fair.
+- How do I even things out?
+- You move, he dies.
+- Just let him go, Quinn, okay?
+- It's over. You're on a train.
+- Where are you going to run to?
+- I'll figure something out.
+- It was never meant to be like this, Bartowski.
+- You weren't meant to get involved.
+- And until that Intersect is mine, this is never going to end... ever!
+- (g*n fires)
+- Sarah: Chuck, what's happening? Chuck, come on.
+- Chuck: We're searching the train for Quinn.
+- Chuck, he's heading towards the baggage car.
+- Sarah, stay put.
+- Step away from the console, Quinn.
+- (grunting)
+- Chuck: Sarah!
+- Focus on your... on your fighting abilities, okay?
+- Keep your emotions even.
+- Do not flash! I'll try, Chuck.
+- You won't survive this one, Quinn.
+- This is over.
+- For good. (g*n fires)
+- (thud)
+- Sarah!
+- Is it?
+- (groaning)
+- Chuck: No!
+- No! (grunts)
+- Maybe not over... quite yet.
+- (rapid beeping)
+- Chuck: Open the door, baby!
+- See if you can open the door.
+- Chuck: No!
+- Sarah!
+- Sarah!
+- (alarm whooping)
+- (clunking)
+- Chuck: No!
+- No! Sarah! No!
+- No! Sarah!
+- Sarah!
+- You're up.
+- Good.
+- Let's get started.
+- Quinn, this isn't just going to end here.
+- Shh. Don't.
+- This is going my way from now on.
+- No more screwups, no more left turns.
+- The Intersect in your head is rotten.
+- We're going to remove it with a suppression device.
+- And then I'm sending you on a new mission to retrieve a pristine version of the program.
+- I'm not working for you.
+- You are.
+- Until I get what I want, you're my soldier.
+- Now...
+- I know you lose memories when you flash.
+- These, for want of a better term, are flash cards.
+- They may look like random images to someone who doesn't have the Intersect, but to you, they're... stimulants.
+- What are you saying?
+- (screams)
+- Until I get what I want... you're mine.
+- (screaming, groaning)
+- (Sarah screaming)
+- ♪
+- (screaming)
+- (electronic trilling)
+- Hey, bro.
+- Please... please try to eat something, okay?
+- I'll eat when I know Sarah's all right.
+- Quinn said he needed Sarah to steal Intersect technology from a government facility.
+- I need to figure out which one.
+- I get it. I know.
+- Hey, it's going to happen, Chuck.
+- All of it. I promise.
+- So close I can taste it.
+- Casey: Hey.
+- She set off her emergency beacon.
+- She's close.
+- Morgan: What did I tell you? See?
+- ♪
+- We'll get Sarah, Chuck.
+- I know.
+- Morgan: Okay, guys.
+- We got a lock on Sarah.
+- The signal is strong.
+- (paper crumpling)
+- We'll find her.
+- We'll find her.
+- (knock at door)
+- QUINN (chuckling): Whoa, Sarah.
+- Sarah, Sarah, easy, girl.
+- Who are you?
+- Nicholas Quinn, your handler.
+- We've only known each other for the past five years.
+- I guess you're not all back yet, huh?
+- What do you mean?
+- Well, you took a nasty blow to the head.
+- A week in the hospital.
+- Any of that ring a bell?
+- Japan?
+- The b*llet train?
+- No?
+- Well, doesn't matter.
+- I'll fill you in on the details.
+- If you're fit for duty.
+- I am.
+- Good.
+- Orders are in.
+- Recognize this face?
+- Never seen him before.
+- He's the reason your last mission went south.
+- What are my orders?
+- Your orders are to k*ll Chuck Bartowski.

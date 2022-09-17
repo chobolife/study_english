@@ -1,0 +1,756 @@
+# Chuck Versus Bo
+
+- Hi, I'm Chuck. Here are a few things that you might need to know.
+- The Intersect made me a total jerk.
+- Not that it was completely the Intersect's fault.
+- I mean, it just kind of brought out my inner jerk.
+- Don't scuff it, all right, Cabbage Patch?
+- I am really sorry for what I did to Alex.
+- Chuck: This whole thing has gotten me thinking about our... our lives, our future.
+- Is the spy lifestyle really where we want to be raising our kids?
+- This is what I think our coworkers are really up to.
+- You think they're spies?
+- I knew it! Lester...
+- ♪
+- Okay.
+- For the record, I love this.
+- This is the most fun you and I have had together in quite some time.
+- Yeah. We should make more time for us.
+- (sighs) Anyway, I still don't get it-- I don't see how this is going to make them forget that they found Castle.
+- X-13 gas.
+- Short-term memory eraser.
+- They'll forget the last 24 hours.
+- Oh, right. Gotcha.
+- They come to, think they tied one on in Vegas, boom, they're back to normal.
+- Or whatever normal was for these guys.
+- Yeah. Right. (grunts)
+- Pop this right here. (laughing): Watch this.
+- Ah, that's not professional.
+- Of course. Yeah, yeah, yeah. That's good.
+- Good?
+- (banging)
+- (footsteps)
+- ♪
+- (sighs)
+- Wow. Wow.
+- Okay.
+- Okay, let's, uh... let's talk about that.
+- Look, I-I... I've been up all night, and I... I've been thinking about our futures and, you know, maybe babies.
+- Oof. Yeah.
+- And I want all of that, but the more I think about it, I just don't know if that future goes with the life that we're living right now.
+- I mean, both of us have been captured more than once.
+- Every day, we make a new dangerous enemy.
+- And I just ran to the front door with a g*n because I heard the newspaper being delivered.
+- Yeah, parents can't be sh**ting the paperboy.
+- Look, I'm a spy, and that's all I ever thought that I could be, but I realized that we don't have to give up what we've already built.
+- We can just shift what Carmichael Industries does.
+- Okay, shift it to what?
+- Countering cyberterrorism.
+- It's your tech firm idea, but more spied up-- so we keep your computer know-how and mix it with my experience in international bad guy-ery.
+- So we go after bad guys who use keyboards instead of b*ll*ts.
+- Which means we don't have to use b*ll*ts, either.
+- I mean, the timing of it does kind of feel right.
+- We've got nothing left hanging.
+- No new missions.
+- No wrongs to right.
+- Let's do it.
+- Now, how do we pitch the idea to Casey?
+- Morgan: Well, I love it.
+- Okay? You know how I feel about b*ll*ts, which is to say negatively, okay?
+- This is fantastic.
+- Where do I fit in? What am I, chief Googler?
+- Well, actually, you'd be doing a lot of the same stuff that you already do.
+- Yeah, I mean, we're still going to need field ops to recover stolen systems and breaching companies' security to find their weak spots.
+- (groans)
+- Morgan: Plus, wouldn't it be lovely not to get sh*t at?
+- Chuck: Exactly.
+- Aren't you sick of being sh*t at?
+- Or getting sh*t?
+- I mean, you get sh*t a lot.
+- Not considering how much I get sh*t at.
+- Mm. Mm.
+- Okay. Think about Alex.
+- Do you know how happy she will be, knowing that you're not out there doing scary stuff?
+- (sighs)
+- All right, I'll think about it.
+- But one thing's for sure-- we go through with this, no more Buy More. We don't need a cover.
+- Let's kick the creepy cousin out of the family.
+- Wow.
+- No more Buy More.
+- ♪
+- Son, this came for you.
+- Boy, get your fingers out of there!
+- Hey.
+- How you doing, Big Mike?
+- Always a beautiful day at the Buy More.
+- You really love it here, don't you?
+- Like a turkey loves Thanksgiving.
+- You might want to rethink that one, actually, you know.
+- My old iPhone.
+- Doesn't really seem to be your style.
+- No, no, yeah, this was from a few months ago.
+- I was kind of going through a thing.
+- Ah.
+- The frosted tips phase. Yeah.
+- Made it real hard not to smack you.
+- Yeah.
+- Yeah, I can imagine.
+- Oh.
+- Lord.
+- Chuck... Chuck, if you're getting this, something has gone terribly wrong.
+- I was... I was getting my party on, having a great time.
+- Okay, this dude comes up to me with this pair of Intersect glasses, and he grabs me.
+- I kick his ass.
+- No prob, as per yooszh.
+- I grab the glasses, and I stash them.
+- Dude, I stash them in a vault.
+- But, like I was saying, I have been partying my freaking face off, so I'm a little discombobulated.
+- Which is an amazing word.
+- So, if this guy catches up to me, want you to know something.
+- I know that you know that you love me.
+- Tell the world of my glory.
+- But above... above all, you find those glasses.
+- You find them. Aah!
+- Huh.
+- Morgan, what is this, and where were you?
+- I don't know, Chuck. I don't know.
+- Between the Intersect mind-melting and, clearly, copious amounts of booze, it's all a blank.
+- Thank God I bought that label maker you all made fun of, because at least I got the phone back.
+- So there's a stolen Intersect out there somewhere.
+- Guess we're not retired after all, huh?
+- Well, it doesn't change the plan.
+- It just means we have one last mission.
+- Why would she...
+- No! - Come on, Walker.
+- What?
+- Things never turn out well when you say "one last mission. "
+- Is this just because of some stupid movie?
+- Yes. Yes.
+- You never say "one last mission. "
+- Come on. Never.
+- ♪ Chuck 5x10 ♪
+Chuck Versus Bo
+Original Air Date on January 13, 2012
+- ♪
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Yeah, I was... I was so cool back then.
+- Chuck: Uh, counterpoint.
+- Are you wearing a fake dreadlock ski hat?
+- Morgan: Really? Is that...
+- Oh, yeah. Yeah, I was.
+- Look at the dates on these phone calls.
+- It's when you were working for Verbanski.
+- And look at these text messages.
+- There's a name-- "BD. "
+- Does that jog your memory?
+- Negative.
+- No, what does BD say?
+- "Where'd you go? "
+- Chuck: All right, well, maybe send BD a message.
+- If they were with you the night you found the glasses, then maybe we can get a clue.
+- Okay.
+- Uh...
+- "Sorry, disappeared.
+- What's up? "
+- No, I was a little more douchey than that.
+- Uh, "Wassup? " You know, with a bunch of S's?
+- Sure.
+- And in the meantime, let's try and find a way to help you remember something.
+- What is it exactly that you two think I do for a living?
+- Brain science.
+- I mean, didn't you learn how to hypnotize people at school to get at lost memories?
+- Yeah, in psychotherapy class, but that was years ago.
+- (sighs)
+- Fine. Okay.
+- Thank you. Thank you.
+- Okay, I really hope this works.
+- I'm a little skeptical, 'cause...
+- I don't think this brain can be hypnotized.
+- It's like a fortress.
+- So, focus.
+- Look at the pen.
+- Deep breaths.
+- Mm-hmm.
+- Breathe.
+- Morgan.
+- (bird screeching)
+- ♪
+- Ow.
+- Sweet mother of all that is holy.
+- Ow.
+- Ow.
+- Dude, what happened?
+- Where are we?
+- I don't... I don't know.
+- You're wearing a Vegas hat.
+- We must have gone to Vegas... and stole a car.
+- Yeah, we must have just partied too hard, and now...
+- Ow.
+- A woman gave us her underpants?
+- Breathe on me.
+- (exhales)
+- There's no alcohol on your breath.
+- Just gefilte fish curry, like always.
+- Really?
+- Lester, something really weird is up.
+- Yeah, last... last thing I remember is that there's something going on underneath the Buy More.
+- Yeah, that's right-- with Bartowski and Grimes and Casey and that whorey blonde.
+- We've got to get to the bottom of this.
+- You're right.
+- And we're going to do that by sticking to those fools like the stink on my breath.
+- Now, to the Buy More.
+- Careful.
+- Careful.
+- Light traffic day.
+- Yeah.
+- I think Morgan might really be hypnotized in there.
+- Great. Hey, hey, look, I've been looking at, uh, some new possible office spaces.
+- Above ground. We could have windows.
+- (sighs)
+- If we ever get there.
+- What do you mean?
+- It just seems like no matter what, the Intersect keeps finding me.
+- I keep trying to break free, and the very thing that started this keeps hooking us back in.
+- Chuck, we're going to finish this.
+- And we're going to move on, I promise you.
+- (sighs)
+- Hey, Casey, you want to see your new office space?
+- No, 'cause we ain't out yet.
+- Even if it belonged to a little someone named Ronald Wilson Reagan?
+- Seriously?
+- The Gipper?
+- Hey, guys, I got something.
+- Morgan keeps repeating the phrases "emerald and gold" and the number "ten. "
+- "Emerald and gold, " what does that mean?
+- I don't know. I tried to push him a little further, but I think I got a little too aggressive.
+- You are so hot.
+- You're so hot.
+- And if you went to prom with me, I would be the stokedest guy in high school.
+- I think I took him back too far.
+- It's possible.
+- Okay, Morgan, let's undo this.
+- Look at the pen.
+- I don't know how to look at anything but you.
+- You're so beautiful.
+- Wow. Hey, I didn't say anything stupid while I was under, did I?
+- (chuckles) No. No-no-no.
+- You get a return text yet?
+- (chuckles) No. No-no-no.
+- Uh, are you the manager?
+- I want to return this blender. Yeah, sure, I'll take care of that for you.
+- Do you have a receipt? Let me check.
+- Are you in a serious relationship?
+- Excuse me?
+- I just want to know if you're in a serious relationship right now.
+- I'll call you back.
+- Uh, I actually am, yeah. Anyway, back to the blender...
+- Do you love her?
+- That's a really personal question for a blender return.
+- Dale, I told you to stop bothering me.
+- Morgan, I am so, so sorry.
+- Yeah, no, sure.
+- Um, who's Dale?
+- He's just a guy I went out with a few times when we broke up. He's nobody.
+- Really.
+- Nobody?
+- Oh, so I guess it was nobody that-- wait, how did you put it? Filled your body with rainbows?
+- Oh... (coughs)
+- Please tell me he's talking about finger painting, all right?
+- Because I don't even understand how that even works.
+- Morgan, please, there's nothing between us, okay?
+- I was just hurt, and I was missing you, and so I acted out a little physically.
+- You acted out physically?
+- Oh, I think I'm going to be sick.
+- There were rainbows.
+- (phone ringing)
+- I love him, Dale. So just stop coming here.
+- I... I got my text.
+- Thank God.
+- Morgan: Let's talk later, you and I, okay?
+- There he is.
+- Dale. Hey, John.
+- What?
+- You're the one that pulled the text message breakup.
+- Alex, always great to see you.
+- Dale, store credit only.
+- Oh.
+- We never hugged. Are you kidding me?
+- Sorry.
+- Where are they? We lost them, we lost them!
+- She acted out physically? !
+- Morgan, I know this is hard, but you did dump her via text.
+- I know, the whole text thing.
+- I know I shouldn't be mad, but I am.
+- You want to know why?
+- Because I was true blue, baby, that's right.
+- While she was out there gallivanting all over town, spreading her filthy rainbows to every Tom, Dick and Harry, I stayed strong, dude. I did.
+- You know what, I need to know every detail.
+- Every little morsel I got to find out.
+- Buddy, buddy, I know you're upset, but I don't think knowing all the gory rainbowed details is going to make you feel any better about it.
+- Right, boss.
+- Sarah: Guys, look.
+- There's a Golden Peak Resort in Vail, Colorado, and...
+- Look, here. It's a Michael Carmichael registered the night in question.
+- Hey, looks like that's our ski town.
+- All right, kids, let's pack up.
+- Morgan, sadly you're going to need to look the way you did that weekend, so do you still have any more of that hair bleach and your Affliction T-shirt?
+- Who would know?
+- Why... ? Yes.
+- Great, let's go.
+- ♪
+- Looks like all of Vail is here.
+- Hope BD is, too.
+- Any of this triggering a memory, Grimes?
+- Nope, nothing yet.
+- You two better love each other.
+- It's sickening the amount of meaningless physical encounters that happen nowadays.
+- Woman: Morgan?
+- Bo Derek!
+- BD?
+- BD is Bo Derek?
+- Wow.
+- Thought I'd never see you again, lover.
+- Hello, Bo Derek's tongue.
+- Wow. Wow.
+- Wow. Morgan, you need to stay with it.
+- We need to find out everything she knows, okay?
+- I thought for sure I'd hear from you sooner. Bad boy.
+- You're the guy who made out with Bo Derek, so act like it.
+- Yeah, I know. That's just bad boy stuff.
+- That's just how I roll.
+- Hi, Bo Derek. I'm Chuck.
+- My name is Chuck.
+- Really big, big fan.
+- Just loved just so, so much. We really do.
+- Yeah, I know what you did with that poster.
+- Oh, no, no, no. I-- I wouldn't... Ew.
+- Not that I didn't love the poster as a boy.
+- How do you know my friend here? I don't like to kiss and tell, but your friend rocked my world one magical night in November.
+- Seriously? Seriously?
+- Seriously? Seriously?
+- No, I'll never forget that... that evening.
+- But, um, How did I got about that-- the rocking?
+- Words would ruin it, but, uh, there were definitely rainbows involved.
+- There's that... Check that out, there were rainbows.
+- I guess Alex wasn't the only one with secrets, huh?
+- Bo, what exactly happened that evening?
+- Because I'm a little fuzzy, you know, with all the gluggity, gluggity, gluggity. You were a bit out of hand.
+- Come on, I'll show you.
+- I'm always out of hand.
+- Chuck: Oh, seems like a lot of people might know what you did that night.
+- Bo: He was telling everyone who would listen, how he'd saved the world that day.
+- You're such a funny bunny.
+- (chuckles) I am.
+- What else did I mention?
+- You know, because I lost something and I'm trying to retrace my steps.
+- Yeah, what did Funny Bunny do when he left the bar? He came to my room.
+- Sarah: Morgan, maybe the vault that the glasses are in is a safe in Bo Derek's room.
+- You need to get up there now.
+- I have a girlfriend.
+- Casey: Yeah? Well, you should have remembered that two months ago.
+- Now get to work.
+- They're looking for a vault. Write that down.
+- We are not forgetting anything this time.
+- Morgan: Man, this brings back some memories.
+- Speaking of which, you're not still staying in that room are you?
+- Because if you are-- oh, boy, ding, ding, ding, round two.
+- Come on. Yeah.
+- Oh, have fun, tiger. You know I will.
+- Mmm.
+- You remember this?
+- Yes, yes, I do. Who could forget this?
+- Hey, now.
+- Okay. Incidentally, Bo Derek, is this where the rainbows happened?
+- I'm curious only because they've been coming up a lot lately, and I would love to know specifically what makes them happen? What is the trigger, you know.
+- I'll show you.
+- Yeah, cool. Can't wait.
+- Taking off my pants now, Chuck.
+- Oh, dude, Bo Derek is taking your pants off.
+- Just go with it, okay? Ask her to tell you more about that night.
+- Mm-hmm. Mm-hmm.
+- Hey, so, um, you know what I would lov-love, love? !
+- Totally love, Bo Derek, is, um...
+- Tell me the story about our night together.
+- Oh, okay. Mm-hmm.
+- But only if you tell me exactly what you've done since I was with you last.
+- Deal, lover. So I first noticed you when you were getting a lap dance from that dirty whore Jaclyn Smith.
+- And that was when he got the whole bar singing "Wake Me Up Before You Go-Go, " unironically.
+- Right, so he didn't tell you anything else about his night?
+- He got me pretty wasted.
+- I woke up the next morning behind the bar in a puddle of Rumplemintz.
+- And then we played the funniest game, where you hid and I found you, and then I hid and you found me.
+- (chuckling): Oh, man, so fun.
+- Well, all I've been able to dig up is what we already know.
+- Grimes was an ass.
+- Yeah, I'm getting the same thing.
+- Hey, Chuck, how's it going with Bo?
+- Have you had any sneak peeks of your childhood crush's boobies?
+- What? No.
+- Shut up.
+- (clearing throat) We have a situation.
+- Oh, you are kidding me.
+- How did they track us here?
+- This is what you get when you fly commercial.
+- I'll take care of it. Copy.
+- Hey, were you just asking about Morgan Grimes?
+- Uh, yes. Ha, ha, ha. That dude's hilarious.
+- I gave him the most wacked tattoo ever.
+- You gave him a tattoo?
+- (phone buzzing)
+- Tattoo.
+- Morgan, I need you out here ASAP.
+- Be careful.
+- You know what I'm going to do?
+- I'm going to get us a little fresh ice.
+- What do you think about that? Okay.
+- Yeah. Hurry back.
+- No problem, okay.
+- And bring back a couple extra cubes for play time.
+- (chuckles)
+- You two.
+- Do whatever you want. We know what's going on here.
+- We're not, we're not going to forget.
+- I disagree.
+- What is that? That smells nice.
+- Doesn't it?
+- That woman is into me.
+- And I'm really scared that whatever is going to take place in there is going to be way worse than whatever acting out Alex did.
+- Plus we were broken up, so technically...
+- Buddy, buddy, you have a tattoo.
+- No, I do not.
+- What? Aw!
+- What are you... ?
+- Don't trust Bo Derek.
+- That's what your tattoo says.
+- Come on, she must be involved with the Intersect theft.
+- (g*n cocking)
+- Not the strangest place a man has tattooed my name.
+- Now take me to the glasses.
+- I'm just going to go out and say it-- you're no longer a perfect 10.
+- I know you remember something.
+- My backup is on the way And you do not want to know what they will do...
+- Sorry, I had to do that to your girlfriend.
+- Oh... You didn't hit her in the face, did you?
+- I'm kidding. But it is Bo Derek.
+- Okay.
+- (birds screeching)
+- Lester: Ow. Sweet mother of all that is holy.
+- Ow.
+- Ow!
+- Dude, what happened? Where are we?
+- I don't... I don't know.
+- You're wearing a Vegas hat.
+- We must've gone to Vegas.
+- Yeah, stole a car.
+- Must have just partied too hard, and now... Ow!
+- A woman gave us her underpants?
+- Breathe on me.
+- (exhales)
+- There's no alcohol on your breath.
+- Just gefilte fish curry like always.
+- Last thing I remember was that there was something going on underneath the Buy More.
+- Wait. We left ourselves a clue.
+- "Bo Derek"?
+- So...
+- Bo...
+- Bo Derek... tell me about your night with Morgan, and this time for real.
+- Yes, please.
+- And how Bo Derek got involved with the Intersect.
+- Listen, acting isn't the only gig I got because of my looks and my capacity to make believe.
+- Are you trying to say that Bo Derek is a spy?
+- My boss had gotten word someone was running around the intelligence community, bragging that he was the Intersect.
+- So we were already on the lookout for him when he surfaced so publicly one night in Vail.
+- Publicly? Ah, I doubt that.
+- Pretty sure I was keeping a low profile.
+- Who wants to party with the freaking Intersect? !
+- (all cheer)
+- Whoo!
+- I am the most powerful w*apon in the world!
+- Whoo!
+- Whoo!
+- ♪
+- (door opens)
+- ♪
+- (speaking Portuguese)
+- (chuckles) You, maybe.
+- You, uh...
+- Ooh...
+- Hello...
+- Hey, baby, you're gonna hate him!
+- Oh, man...
+- That was real?
+- And a follow-up question: If that was real, were the rainbows real?
+- (laughs)
+- It meant nothing.
+- It was only physical.
+- What is it with women and this "only phys... "?
+- Morgan!
+- Uh, if you don't mind, what happened next?
+- Then I drugged you and called my boss.
+- Quinn: So this is what they put the Intersect into these days.
+- What are you, an intern?
+- Morgan: Hmm? You take that back.
+- You take that back 'cause this Intersect... this Intersect can almost focus on your stupid face, and when I do...
+- Shut up. Morgan Grimes-- aka Morgan Carmichael-- which is ridiculous.
+- You're not the only one with the Intersect, honey bunny.
+- Quinn: I spent a lot of time and money getting these glasses.
+- I haven't used them yet because I hear there are side effects.
+- Well, you seem fine.
+- Oh, I'm fine. I'm fine. It's you.
+- You made an enormous mistake telling me all this.
+- See your men here? Done, finished.
+- I'm gonna take them out.
+- And then I'm gonna hunt you down, and I'm gonna arrest you for treason.
+- I don't think so, 'cause you're not gonna remember any of this.
+- X-13.
+- As soon as you fall asleep, the last 24 hours of your little life will (snaps fingers) just disappear.
+- And here's how confident I am of that.
+- Nice to meet you.
+- I'm Nicholas Quinn.
+- And I'm about to become the Intersect.
+- (device whirs)
+- Give me the glasses!
+- Sorry, Bo Derek!
+- Chuck: Okay, so we're looking for Nicholas Quinn.
+- Bo Derek's been working for him.
+- Bo Derek's a spy?
+- I know, right?
+- And a talky one to boot.
+- Quinn's got an independent spy agency, but not like ours.
+- Morgan: Ooh, nothing like ours.
+- This guy's list of clients is gnarly. You're talking about Libyan Islamic fighting group, Kim Jong-il.
+- And a couple of favorites as well, like FULCRUM, the Ring and Volkoff Industries.
+- What? We've put some of his biggest clients behind bars.
+- Did we get Kim Jong-il? He's been getting screwed by the Intersect for years. No wonder he wants it.
+- Sarah: Okay, so the fat lip we can blame on the tattoo.
+- The ski jacket and the boxers we can blame on Bo Derek, but where are the glasses?
+- And where is this vault?
+- I don't know. Guys, I don't know.
+- Bo Derek said that was the last she saw of me.
+- I wouldn't have just stashed the Intersect anywhere.
+- I would have put it somewhere safe.
+- Someplace that I knew. And that's, that's my guess, anyway.
+- Alex.
+- Oh, boy.
+- Okay, let me, let me deal with this.
+- I'll be back, uh...
+- I gotta come clean on a few things.
+- Buddy, buddy, are you sure you want to do that? Because I think maybe we should just, you know let the past be the past.
+- I agree. It doesn't seem like telling her the Bo Derek story is gonna do anything except upset her.
+- Yeah.
+- You slept with Bo Derek?
+- Yeah. Maybe more than once.
+- I acted out physically, too.
+- And I, uh, I rocked Bo Derek's world.
+- (snorts)
+- Sorry. Um, Morgan... Yeah?
+- ... Dale, he doesn't matter, okay?
+- You don't have to make up these stories.
+- No, I'm not, I'm not lying. Are you kidding me?
+- No. I made rainbows sh**t out of this woman.
+- There's Grimes. Let's just confront him.
+- I know he's a part of this.
+- Wait. We are being sabotaged. Mm-hmm.
+- We gotta fly under the radar, quietly keep an eye on them and record on our person anything we learn.
+- Great idea.
+- I gotta pee.
+- It's 3:14 p. m. Write that down.
+- I think, though, it's better if neither of us knows the details of each other's rainbow-related activities.
+- Look, you were with Dale, I was with Bo Derek, we're even. Let's move past it now.
+- Okay. Okay, baby.
+- We are even.
+- That's my girl. Okay.
+- (clears throat)
+- Son, do you have the master key?
+- I checked the vault, it wasn't there.
+- What'd you just say?
+- The key.
+- I checked the manager's vault.
+- Any ideas?
+- (men shouting, g*n)
+- Sweet lady Buy More.
+- Emerald and gold.
+- (snaps fingers)
+- Big Mike, is there a Buy More in Vail?
+- Yep, there's a Buy More in Vail, and they had a break-in that night. Look.
+- Of course, I knew it, I knew I put it somewhere familiar.
+- It's in a manager's vault in Vail!
+- Looks like all roads lead to the Buy More.
+- I'm never getting out of this place.
+- Wow, the Vail Buy More.
+- Lot of broken limbs on these morons.
+- I think you can only work here if you've broken something skiing.
+- Grimes! Remember me, buddy?
+- Yeah...
+- Ha-ha, sweet! I just tweeted you were back in town.
+- Beers tonight to celebrate, brah!
+- Oh, yeah, sweet!
+- He tweeted you're back in town?
+- If Quinn has been waiting for us to come back and search, then...
+- We gotta hurry.
+- I fricking hate Twitter.
+- Hello. Excuse me, Miss... ter.
+- Uh, we're security specialists with Carmichael Industries. Corporate sent us to check out the recent break-in.
+- Bored of you. Talk to Big Michelle.
+- Right.
+- Our security is rock-solid.
+- I don't understand why Corporate felt we needed to be checked up on.
+- This isn't any sort of criticism on your store.
+- We just want to do a proper check for your safety.
+- Now, if you could first take us to the manager's vault for a look-see.
+- (sighs) Oh, man...
+- How's a nice security check feel, Casey?
+- This is about as extreme as it will get in our new job.
+- Nice, easy-peasy last mission.
+- Well, it ain't over. Keep your guard up.
+- I just don't understand why no one told me you were coming.
+- I'm gonna have to call and get the go-ahead before I open the vault, obviously.
+- Well, so much for her helping us open the vault.
+- Looks like we're gonna do some safecracking today.
+- Yeah, well, hold on a second.
+- Maybe not.
+- Let me try something real quick here.
+- One, two, three, four... boom.
+- (blipping)
+- Seriously.
+- I was too lazy to change the code in Burbank, too.
+- One thing you can always count on: Buy More laziness.
+- Oh, no.
+- Morgan: Where else could they be?
+- Maybe somebody moved them.
+- Like, maybe the person who is currently knocked out cold.
+- Chuck: The place is hopping right now.
+- This is the new expansion pack for g*n 'n Gold.
+- The vault...
+- Could it be?
+- A display copy.
+- (laughs)
+- Okay, well, nice work, Morgan.
+- Let's go. Let's get out of here.
+- Let's go.
+- J'accuse!
+- You people are spies!
+- And we are not going to forget it, because it is right here on my arm.
+- Yeah! What he said!
+- (a*t*matic g*n, people screaming)
+- Quinn: Everybody out!
+- Charles Carmichael.
+- First guy who got it instead of me.
+- What are you talking about?
+- I'm former CIA, too.
+- The Intersect was supposed to be mine.
+- But then Larkin stole it for you, so I went back out in the field, and I got captured. (laughs)
+- Oh, and tortured... in a hole the ground, for 378 days.
+- In a hole!
+- That was the best.
+- And then I was broken.
+- Dismissed.
+- And all because the Intersect wasn't mine.
+- You don't want it, Quinn.
+- You do not want it. Trust me.
+- It doesn't work right, okay?
+- I lost memories, important movies, a bunch of stuff.
+- Chuck: He's right. He's right.
+- Listen, you don't want to trust me.
+- Nothing good can come from it.
+- (laughing)
+- Take a good look at your wife.
+- You think you'd get that without the Intersect?
+- I tried to win without it.
+- I... I tried.
+- Now give it to me!
+- Jeffrey... run!
+- Nice sh*t!
+- (gasps)
+- Thank you.
+- No, no, Casey-- Casey, wait.
+- Quinn didn't get the Intersect. We did it!
+- We took down his team.
+- Okay, let's call Beckman.
+- Call the authorities.
+- Tell them where he is.
+- But... let's be done.
+- Can't we just be done?
+- We survived our last mission.
+- Let's leave behind the Intersect and everyone involved with it, and be done.
+- Okay.
+- We're done.
+- Okay. I'll call Beckman. Whoa!
+- I'm not done. No, I am not done.
+- I would like very much to forget everything-- everything that I saw here today.
+- Here we go again.
+- I'm scarred.
+- Aw, buddy. So scarred.
+- Chuck: Sorry, Casey.
+- Looks like we can't kick the creepy cousin out of the family just yet.
+- (exhaling)
+- I knew it-- there's no alcohol on your breath.
+- It's just gefilte fish curry, like always.
+- I believe we've been set up.
+- And what's all this?
+- Huh.
+- We must've gotten to the bottom of it, then.
+- Guess we were wrong.
+- That's kind of disappointing.
+- So now what do we do?
+- (car approaching)
+- Hey, boys.
+- Morgan told me you might've gotten stranded.
+- Yeah, apparently, we did.
+- Cheer up!
+- I brought turkey BLT Subway footlongs.
+- From the Fresh Fit menu?
+- Yep. Watching my weight.
+- How many you have?
+- Only two.
+- Also, I had a thought. Mm-hmm.
+- We're already halfway to Vegas... Mm-hmm. and Bologna's doing some Native American feelings workshop about her period all weekend.
+- Ew. But are you saying... ?
+- All: Vegas, baby!
+- ♪
+- (phone ringing)
+- Sarah?
+- Hey. Did I wake you?
+- No, it's... I mean, yeah, but it's okay.
+- Where are you so early?
+- I'm sorry, I-I couldn't sleep.
+- I'm just, uh, I'm so excited about starting everything.
+- I made an appointment at noon to check out some of these new office spaces, and I thought that we could get Casey and Morgan together and, um... have a little ceremony.
+- You know, pop some champagne and toast to our futures, and, uh... destroy the Intersect glasses.
+- I, um, I-I think that's the right end to this.
+- Yeah. That sounds perfect.
+- Turns out saying "last mission" wasn't a jinx after all, huh?
+- I love you, Chuck.
+- I love you, too, babe. Good-bye.
+- Bye.
+- Never let the bad guy get away.
+- (phone ringing)
+- Hey.
+- Quinn: I have your husband.
+- Bring the Intersect to the San Pedro docks, Pier 23, 2100 hours, or he dies. (click)
+- Casey, where is everyone?
+- You got anything?
+- Casey, hold your fire. They've got Chuck.
+- Sarah Walker, put the glasses down.
+- You show me Chuck first.
+- Situation's changed.
+- He'll be needed. Now put the glasses down on the ground in front of you.
+- It was a trap! Where is he?
+- I don't know! We gotta get out of here!
+- Casey, you got an exit?
+- Casey: No!
+- No, not from here.
+- (grunts)
+- What's our next move?
+- Casey: I've got one clip left.
+- (panting)
+- Walker, no!
+- Don't do it!
+- Okay, I got this.

@@ -1,0 +1,787 @@
+# Chuck Versus the Goodbye
+
+- Mr. Quinn, I understand you are interested in purchasing The Key.
+- Ted Roark gave this to me.
+- I worked at FULCRUM for ten years and this is all I have to show for it.
+- Of course, the only person who can use it is someone with an Intersect.
+- I have one of my very own, but the damn thing's glitchy; either it cooks your brain or it steals your memories.
+- And I need The Key to fix it.
+- Interesting.
+- Edgar, keep that to yourself.
+- I have a few enemies.
+- You do realize that's only one part of The Key?
+- There are two other pieces.
+- Quinn: I do.
+- My sources tell me a former member of The Ring acquired one from Volkoff a few years back.
+- The Ring.
+- What amateurs.
+- Edgar... do you still carry that Walther under your jacket?
+- Of course. Why do you ask?
+- Sarah...
+- You're upset... I can tell.
+- You stole my memories and you ruined my life.
+- (alarm beeping)
+- (g*n cock)
+- Sarah...
+- I'm still alive.
+- (laughs)
+- Come on.
+- Go for the g*n.
+- You're so close.
+- Go for the g*n.
+- (air whooshing, alarm beeping)
+- (thud)
+- (alarm beeping)
+- Morgan... I know you're feeling down and I know you miss Sarah, but it's time to get out of bed.
+- She's gone, man.
+- Sarah's gone.
+- Ellie: Out of bed, Chuck.
+- You are getting Sarah back today.
+- What? What?
+- She doesn't remember me, okay?
+- Or you or us or any of it.
+- How many people are in my room right now?
+- Dude... you can do this.
+- You can get Sarah back.
+- Even Clara agrees.
+- Hi, Clara.
+- Think about it.
+- Every impossible mission starts with what?
+- James Bond taking that giant step and getting out of bed.
+- First of all, you're mixing your spy metaphors.
+- Second, if you haven't noticed, I'm not exactly James Bond.
+- I'm actually no longer a spy and I lost my wife.
+- I'm back where I was before: alone in Burbank.
+- You are not alone.
+- You have us.
+- And you are not the person you were five years ago.
+- You are so much more. Yeah, there you go, big guy.
+- One sit-up closer to getting the girl back.
+- Guys, this is crazy, okay?
+- I tried to get her to remember me and it didn't work.
+- I can't get her to fall in love with me again.
+- Chuck, it's clear that we can't force Sarah to remember-- but emotions, feelings, those are powerful things.
+- And if you can find Sarah, maybe you can spark some of these memories.
+- Really?
+- She fell in love with you before, Chuck.
+- You can do it again.
+- She'll remember.
+- Do you really think it could work?
+- That she could just... snap out of it?
+- Yeah, you know what?
+- You're right.
+- I-I... I-I can do this.
+- I took down The Ring, FULCRUM, I'm a very impressive spy for hire.
+- We fell in love once, we can do it again.
+- She'll remember.
+- That's what I'm talking about.
+- That's the spirit.
+- Wow, I just said that.
+- I mean, she may be the best spy in the world, but I'm Chuck Bartowski.
+- It's not like she's out of my league.
+- I can do it.
+- I can get Sarah Walker back.
+- ♪ Chuck 5x13 ♪
+Chuck Versus the Goodbye
+Original Air Date on January 27, 2012
+- Your target is Nicholas Quinn.
+- I take it you don't want him alive.
+- No, I want him very dead.
+- Done.
+- I'm ready to go.
+- Are you?
+- Carmichael Industries dropped the ball on this already.
+- Five years in Burbank could turn a man into butter.
+- But for this job, I need you ruthless.
+- Anything less and you'll get k*ll.
+- I need Old Casey, my best agent.
+- I need the Colonel.
+- (quiet grunt)
+- (phone buzzes)
+- I can do it.
+- Yeah, but look, it's not just about finding Sarah, it's about finding her and having a plan for what to do next.
+- Chuck, this is your mission, okay?
+- Find Sarah, be yourself.
+- Be myself? Be myself?
+- Okay, well... what version of myself?
+- Lord of the Nerd Herd or charming Charles Carmichael?
+- No, the guy that she fell for.
+- Morgan: Yeah, I agree with that.
+- Also, I have another notion.
+- I think that you should kiss her.
+- Did you...
+- I'm sorry, what?
+- Kiss her.
+- Grab this woman and kiss her.
+- Just kiss her.
+- That's the whole plan?
+- Yeah, pretty much. And, yes, I've been watching a ton of Disney princess movies with baby Clara, but...
+- I firmly believe, with all my heart, that one magical kiss from you could unlock all of Sarah's memories. I do.
+- Enough with the crazy.
+- Captain: Exactly. We're wagging the dog here.
+- Okay, we got to find Sarah first.
+- But how do you find a woman who doesn't want to be found?
+- (laughing maniacally)
+- Can we find women?
+- (laughing): Can we find women?
+- Are you kidding me?
+- We can find a woman off the discarded remnants of an Outback Bloomin' Onion.
+- Unleash the perverts.
+- Stalk, it's Gawk, I got your specs.
+- Gawker, it's Stalker.
+- We need a bead on a big, blonde bird, please.
+- Gawker: Sounds like a job for the DirtDog.
+- Up and hot, Gawk; I'll get a bead on your bird.
+- Go Twinkie. Go Twinkie.
+- My Twitter feed shows multiple reports...
+- (all talking at once)
+- Use the breadcrumbs, nab that Gretel.
+- Sniff it out. Sniff it out. You got it.
+- Lester: You heard him, use your sniffers.
+- Tall blonde with amazing... falsely I.D. 'd as Uma Thurman... gorgeous profile...
+- Follow that bird in flight.
+- Thank you, Jeffery.
+- Okay, Lester. Jeffery.
+- Lester. Jeffery.
+- What's happening here?
+- She landed at LAX at 9:34 last night.
+- She's en route to Burbank.
+- In tight blue jeans and a cleavage-enhancing top.
+- Meow.
+- H-How do you know that?
+- Man: Target spotted at an Internet cafe. Sh, sh, sh!
+- Web history shows search for a Carmichael industries.
+- Positive I.D. on one Sarah Walker in this Buy More, at the Nerd Herd Desk.
+- I'm sorry... no nipslips nor pokey peaks.
+- I'm sorry, wait, what?
+- She's here now?
+- Mm-hmm. No nipslips.
+- (sighs)
+- (exhales)
+- Hi, Sarah.
+- Hi.
+- I didn't know whether I should ring the bell.
+- What are you, what are you, what are you doing here?
+- I'm sorry, let me try that one again.
+- It is really great to see you.
+- It really, really, really is.
+- You look fantastic.
+- Of course, you always look fantastic.
+- That's-that's-that's kind of your thing.
+- So, with that, what are you doing here?
+- Your spy base.
+- Castle? Yeah?
+- I need it.
+- I lost track of Quinn, but I know what he wants.
+- A device called The Key.
+- An ex-FULCRUM agent had the first piece.
+- And a former Ring operative, Renny Deutch, has the second.
+- I, uh, read your profile, and you're good with computers?
+- Yeah, I can... I can hack with the best of them.
+- In fact, back in the day, they used to call me the...
+- Doesn't-doesn't really matter, not important.
+- You need me to find Renny? Done.
+- Great. Thank you.
+- Hey, there, stranger, aren't you...
+- (groans, gasps)
+- Hi, Sarah.
+- (Morgan groans)
+- Morgan. Hi.
+- I'm-I'm sorry about that.
+- No, no, it's-it's actually... it's... it's my fault.
+- We've actually danced that dance before, and I should know...
+- I should know better than to sneak up on you.
+- (sighs)
+- Can I help you?
+- No, no, I just wanted to tell you that, um...
+- There was a time I was Chuck's number one go-to best friend.
+- And then you came along, and things changed.
+- I just... if I was to hand the title off to anyone, I was always really happy it was you.
+- I just wanted you to know that.
+- Chuck: Found him.
+- Renny Deutch.
+- German arms dealer, sets up shop in Berlin.
+- He's there now, so we find him, we find Quinn.
+- All right, looks like I need a ticket to Berlin.
+- Mm-hmm.
+- (quietly): Go! You gotta be on this mission.
+- Uh...
+- Sarah-- hey-- quick, quick, uh, quick question before you go.
+- Uh, what's your plan once you find Quinn?
+- I k*ll him.
+- And then I...
+- I disappear forever.
+- Really? Really? Wow.
+- Okay, well, then, my second question...
+- I-I-I can't be here.
+- I don't know how to be the woman that you remember me as.
+- All I remember is being a spy-- a good one.
+- It's all I know how to do.
+- I understand that.
+- I-I-I get that, but... I can help.
+- If you go to Berlin alone, you're just going to get yourself k*ll, but me and my team, we-we can...
+- Yes, I'm small, but I'm worth three spies on a mission and I'm a very good listener.
+- With us, you stand a chance.
+- Look, you don't have the Intersect anymore, and you haven't been trained.
+- am trained. I have been trained.
+- You trained me. You were my handler.
+- Okay.
+- Do you know how to use this?
+- Uh... (chuckles)
+- Yeah, I can handle a Desert Eagle, 'cause I'm a stone-cold spy.
+- That's me. I'm lethal.
+- You'll need to be.
+- Let's go.
+- What if I have to use this thing?
+- Morgan: Don't do that.
+- Sarah fell in love with you-- in part-- for not sh**ting people.
+- Please remember that.
+- Sarah: Okay, Renny just arrived.
+- We need to follow him until he makes contact with Quinn, then we take them both out.
+- Great. Cool. Sounds like a plan.
+- Okay, let's go.
+- Was that okay?
+- Yeah. Do me a favor.
+- Don't worry about anything. Be yourself, okay?
+- Under no circumstances do you sh**t anybody, no matter how dangerous it gets.
+- (playing mariachi music)
+- El Compadre. What?
+- This place looks just like El Compadre.
+- It's a... a Mexican restaurant in L.A.
+- We went there when we first met.
+- Buenas noches.
+- (speaks German)
+- Danke. Danke.
+- MORGAN (over radio): Perfect, Chuck. This is fate.
+- See? Maybe Sarah will remember something.
+- Just use the old Chuck charm.
+- So we're just going to follow these schmucks around?
+- That's how we're going to find Quinn?
+- Don't you sell Chuck and Sarah short.
+- They're damn fine operatives.
+- Yes, sir.
+- (cell phone ringing)
+- Sarah, this has got to be some kind of sign.
+- I mean, think about it-- El Compadre was... sort of our first date.
+- Not for you so much.
+- You were still just, you know, being a spy back then, but for me, yeah, totally.
+- I mean, I... somehow thought I stumbled on a date with the most beautiful woman in the world.
+- I was so nervous.
+- And you were so amazing.
+- We talked and laughed and had such a great time.
+- We went dancing afterwards, and you were doing these crazy, sexy dance moves.
+- Chuck, stop.
+- But it's our story.
+- Don't you want to hear it?
+- Chuck, we're on a mission, okay?
+- The focus is Renny.
+- Morgan: That's okay, buddy.
+- If Sarah doesn't want to hear the story, then... then you just focus on tonight.
+- You make this mish as romantic as you can.
+- You make that girl fall in love with you all over again.
+- You're right.
+- No more stories.
+- Let's focus on the op.
+- Renny: The buyer's changing location.
+- Cancel my enchiladas rancheros.
+- We're leaving.
+- The target's on the move.
+- Chuck: Morgan, track where he's going.
+- We may need a wardrobe change.
+- ♪
+- You look beautiful, by the way.
+- Thank you.
+- Your tie just needs a little fixing.
+- You look great.
+- Thanks.
+- Morgan: Oh, Chuck, this is great.
+- Russian Consulate mission, right?
+- There'll be music and dancing and sexy outfits.
+- Listen to me.
+- You grab her, and you look in each other's eyes, and you kiss.
+- And she'll remember the last five years, okay?
+- I promise you. Now, you can do this!
+- Sarah: Okay, I need to find somebody to dance with.
+- I'm gonna get close to Renny...
+- Sarah. Please.
+- You taught me how to dance.
+- ♪
+- Get me close.
+- To Renny.
+- Close to Renny.
+- Renny. Right.
+- Our buyer's paranoid.
+- He's changing the location again.
+- We have to go.
+- New location.
+- Morgan, we're on the move again.
+- (speaking German)
+- Danke.
+- (thudding)
+- (sighs)
+- This place is disgusting.
+- (sighs)
+- What? What is it?
+- Nothing.
+- Nothing at all.
+- Attaboy, Chuck. Play it cool.
+- Quinn must be running late.
+- Looks like we have to do some waiting around.
+- Sarah, what are you doing?
+- They're in the wrong order.
+- What?
+- Well, that's not how it should be.
+- You know this place?
+- Uh...
+- No. No, I don't.
+- No, no, Sarah, it's-it's... it's okay.
+- It's, actually, it's-it's important.
+- You used to work here.
+- I mean, not-not here in Berlin, but the Wienerlicious in Burbank.
+- It was your first cover job.
+- Come on, you can remember.
+- Please. Please try.
+- Quinn: Touching.
+- (g*n cocking)
+- Quinn: Excuse me.
+- Mr. Deutch, did you bring The Key?
+- I did.
+- It's going to cost you.
+- Oh.
+- The Ring spent a lot of money acquiring this.
+- Danke schoen.
+- Hey!
+- I never liked The Ring.
+- One more to go.
+- Casey: I got more targets inside the Wienerlicious.
+- Quinn's made his move.
+- Let's get down there.
+- This one was in a spy van across the street.
+- Spy van?
+- Really? It's that obvious?
+- Drop your g*n.
+- (panting)
+- It's Morgan.
+- Oh, Sarah, you really don't remember, do you?
+- Relax, boys; these two are mine.
+- Your husband is one of the world's greatest...
+- What's the word?
+- Pussies.
+- Aah!
+- Chuck, stop him!
+- (horns honking)
+- (horns wailing, tires screech)
+- Stop!
+- Stop, Quinn!
+- Stop!
+- Don't! I will sh**t you!
+- Chuck!
+- sh**t him!
+- I don't have a clean sh*t.
+- Sarah: Chuck, sh**t him!
+- Stop!
+- (g*n, panting)
+- (helicopter whirring erratically)
+- (alarm beeping)
+- Hey, we're hit.
+- Get us down!
+- (car horn honking, tires squealing)
+- Brace! Brace!
+- (tires screeching)
+- (panting)
+- Hey.
+- Is that my Desert Eagle?
+- You sh*t down my helicopter with my own damn g*n!
+- It was more of a warning sh*t than anything else.
+- Sorry, Casey.
+- (emergency siren wailing)
+- Dude, uncuff me!
+- I want you to tell Alex something for me.
+- Tell her I'm going away for a while.
+- What the hell is going on here?
+- Bartowski and Walker screwed up.
+- So you arrest your own team?
+- Old team.
+- Sarah: You had him in your sights.
+- All you had to do was pull the trigger.
+- What do you want me to say?
+- Your mistake cost us this mission.
+- You let Quinn get one step closer to assembling The Key.
+- Fine, I'll take the hit, but in my defense, k*ll was never thing.
+- You're a spy, aren't you?
+- It was actually one of the things you liked about me-- the fact that I wouldn't pull the trigger.
+- Tell me why you're not returning Alex's phone calls, okay?
+- She is worried sick about you.
+- All she knows is you're gone, running covert missions.
+- They call 'em covert, numb nuts, because you don't tell anyone about them.
+- She's your daughter!
+- She's a liability.
+- Wow.
+- I don't mean that.
+- Just, I have to be ruthless.
+- Chuck: Well, at first, you thought I was weak or scared, and maybe I was.
+- But you taught me how to be a spy, Sarah.
+- And after we... you know...
+- After we fell in love, you stood up for me.
+- You didn't want me to be any other spy.
+- You didn't want me to change.
+- Morgan: What about Chuck and Sarah?
+- Liability, too, right?
+- Good. By all means, lock 'em up, throw away the key, lock away your feelings, too; forget everything that we've been through, and you be ruthless.
+- You just don't understand, do you?
+- I got soft.
+- I lost my edge.
+- Your team was your edge, you giant jackass!
+- What is wrong with you, man?
+- You want to find Quinn?
+- You know who to call, but don't you dare try to blame this on us because you're afraid.
+- That's right, you're afraid that, with us, that's when you're the best, and that's the truth, man.
+- (low grunt)
+- That's it?
+- No response or anything?
+- Screw it.
+- Screw what, John?
+- The court-martial.
+- I'm in.
+- What are you... ?
+- I'm free?
+- You, your wife, and my little roommate are going to help me track down Quinn.
+- Walker.
+- You're escaping without me?
+- Look, I heard your pep talk.
+- I think I'm better off hunting Quinn on my own.
+- No, we're doing this together.
+- I'm leaving.
+- No, no, you're not.
+- Why?
+- Because of my mother.
+- What?
+- She's a spy.
+- So?
+- And she's standing right behind you with a g*n.
+- (g*n cocks)
+- Sarah.
+- Relax.
+- Chuck, I asked Mom to come...
+- Mom, why is there a g*n out?
+- (sighs) Sorry, dear, old habits.
+- It's good to see you again, Sarah.
+- My name is Mary.
+- Captain: Grandma, what did we say about Baby Clara seeing firearms?
+- It's a no-no.
+- I am sorry.
+- Your Mimi loves you.
+- Chuck, I have intel on The Key.
+- Are you staying, Sarah?
+- Your father originally developed the Intersect as a teaching tool.
+- The Key was the matrix for programming the system.
+- So it could do anything.
+- Roark, Hartley, and Stephen split the pieces so that no one could alter the Intersect without their agreement.
+- Your father gave his piece to someone in the government.
+- If Quinn puts all three pieces together, he could fix the bug that blitzed Sarah and Morgan's memories and then upload it into himself.
+- He could also add new k*ll, new information.
+- Chuck, we need to talk.
+- What Mom is talking about down there is an Intersect that can create a new identity or restore an old one.
+- Oh, my God, you're right.
+- We could load Sarah's memories onto The Key.
+- This could work.
+- We create a file on Sarah, okay?
+- Your wedding album, her dossier, everything.
+- All you have to do is get the Intersect glasses back from Quinn.
+- Okay? It's gonna take a few days, but I can reprogram them for Sarah.
+- You just have to convince her it's the right thing to do.
+- Sis, you're amazing. This is fantastic news.
+- (phone rings)
+- Ooh.
+- Hey.
+- Casey: Chuck.
+- Quinn was spotted entering the Pacific Concert Hall.
+- Beckman's there to meet with her Chinese counterpart.
+- Your mother says Stephen gave The Key to someone in government.
+- She's the target.
+- Beckman has The Key.
+- We found Quinn.
+- He's at the Pacific Concert Hall.
+- We gotta go.
+- Pacific Concert Hall.
+- They need us.
+- Let's go.
+- ♪
+- Please sit still, General.
+- The b*mb is pressure sensitive.
+- And if you don't mind, Diane... the badge of the person in charge of the Intersect Project.
+- The designers gave it to you.
+- What an honor.
+- And all these years, you never knew it was the third part of The Key.
+- (phone buzzes quietly)
+- Hey, General, it's Chuck.
+- We think you might be in danger.
+- She's in more danger than you know, Chuck.
+- It's over.
+- I win.
+- General, what have we got here?
+- There is a b*mb under my chair.
+- I can't stand up.
+- Morgan, get the Chinese delegation out of here.
+- Yeah, yeah.
+- Chuck: Mom, pull up the blueprints to the hall; we need to evacuate.
+- Wait, guys, it looks like a sonic trigger, probably tied to the performance.
+- When the music stops, it goes. Exactly.
+- Get everybody out of here.
+- Casey: No, no, no, no.
+- We disrupt the performance, it'll blow up.
+- That is an order.
+- General, with all due respect, shut up.
+- We're saving you.
+- I've got something.
+- Ooh.
+- Well, if that's the b*mb, these are the brains, and it's locked.
+- Any ideas?
+- No, not yet.
+- Mary: Chuck, I just picked up Quinn on the internal security feed.
+- He's heading to the roof.
+- I'll get Quinn.
+- Chuck, he has the Intersect glasses.
+- Sarah.
+- No, let her go.
+- We don't have time.
+- Well, get me more time, Casey, okay?
+- I need Quinn to stop this b*mb and I need those glasses for Sarah.
+- Go, go.
+- I'm ready for extraction.
+- Pilot: We're on our way, sir. Three minutes.
+- Morgan. Yeah.
+- We gotta keep the music going.
+- We can't let it stop.
+- What are we going to do?
+- Jeff: Casey, Morgan.
+- Okay, we're here.
+- Who do we sh**t first?
+- What are they doing here?
+- Okay, hold on a second, hold on a second, Casey.
+- I got a plan.
+- You're not going to like it, but I got a plan.
+- (g*n cocks)
+- Quinn!
+- Chuck: Sarah!
+- W-W-W-Wait, wait.
+- Don't k*ll him.
+- We need him to disarm the b*mb.
+- The b*mb?
+- (laughs)
+- It can't be stopped.
+- And it's wired to explode when the music ends.
+- Which is right about... now.
+- (final note playing)
+- ("Take on Me" by A-ha playing)
+- What's happening?
+- (chuckles)
+- One word: Jeffster!
+- ♪
+♪ We're talking away ♪
+♪ I don't know ♪
+♪ What I'm to say We're doomed. ♪
+♪ I'll say it anyway ♪
+♪ Today is not my day to find you... ♪
+- I've been doing this for too long now.
+- But not tonight, not again.
+- ♪ Take on me Take on me ♪
+♪ Take me on Take on me ♪
+♪ I'll be gone... ♪
+- Chuck: You're done, Quinn.
+- Then we die together.
+- (gasps)
+- Oh, God.
+- What are you doing?
+- I had a plan, Sarah, a really... a really good plan.
+- There's one upload left.
+- Ellie and I were going to use these glasses to help save your memories.
+- Will it work?
+- Yeah.
+- I don't know how to disarm the b*mb without the Intersect.
+- There's only one upload left.
+- Sarah, I'm sorry.
+- I can't help you get your memories back.
+- I can't get you back.
+- I have to save them.
+- (gasping)
+- Let's go.
+- ♪ Take on me Take on me ♪
+♪ Take me on Take on me ♪
+♪ I'll be gone ♪
+♪ In a day... ♪
+- Let me in.
+- Oh, it's been a while since I've done that.
+- (gasps)
+- What's the matter?
+- This, this laptop is an old Prism Express.
+- Configuration could be tricky.
+- Okay, what about Irene Demova?
+- Sarah, that's brilliant.
+- That's brilliant.
+- The, the virus could circumvent the system and disarm the b*mb.
+- That was five years ago; you remembered.
+- Chuck, Chuck, find the p*rn virus, find it now.
+- Right, right, right, okay, okay.
+- ♪ I'll be gone...
+- Five-year-old p*rn virus, mere seconds until certain death.
+- Can I do it?
+- Woman: Am I sexy?
+- Yeah.
+- Run that again.
+- Who is sexy?
+- Am I sexy?
+- Am I sexy? Sexy? Sexy? Sexy?
+- (voice slows, distorts)
+- (whimpers)
+- (song ends)
+- (applause)
+- (applause continues)
+- Good work team.
+- On behalf of the United States government and the great people we serve, thank you.
+- Just happy to be doing good works, ma'am.
+- I understand this is the end.
+- Yes, it is, General.
+- I think we... It's me.
+- I, um...
+- I need to go find myself.
+- We all do.
+- If you ever want to save the world again, you know where I am.
+- So, here we are.
+- The original band.
+- (low grunt) Gotta go.
+- What? Wait, really?
+- Really?
+- I can smell it coming.
+- You're gonna get weepy and emotional.
+- I'll just skip that part.
+- I'll see you when I see you, Bartowski, huh?
+- Good-bye, Casey.
+- (grunts)
+- There's one thing Russians do well-- it's give good hugs.
+- Walker.
+- Colonel.
+- So, Irene Demova...
+- I, um...
+- (sighs) I'm not really sure what it meant.
+- Or maybe it's a fresh start, a new beginning.
+- I need some time to think.
+- To be alone.
+- I'm sorry.
+- You know, Morgan had this idea.
+- It's nutty, really.
+- That if we...
+- You have to go; I understand.
+- So the moment the music stopped, the b*mb would blow up.
+- So, Chuck calls us.
+- So we could save the day.
+- So Jeffster! could rock again!
+- So what you're saying is Chuck Bartowski is a spy who runs a spy company underneath the store.
+- The exciting part of the story is that we saved the day.
+- You didn't get that? We'll go again.
+- I got it.
+- But do I believe it?
+- Not a word, boys.
+- Not a word.
+- Things, though, are a-changin'.
+- (sighs)
+- New owners moving in.
+- Yep. Looking fresh.
+- I'm gonna be eating fresh.
+- We gotta get back to work.
+- German Man: Excuse me.
+- Are you Scheffester!?
+- I saw your performance last night at the Pacific Concert Hall.
+- I'm a very important record executive from Germany.
+- You're gonna be stars there.
+- Women and men will adore you.
+- Women and men?
+- Wait... wait a minute.
+- You want us to leave this store?
+- Yes. Right now.
+- Come with me.
+- (quietly): Jeffrey...
+- Are you ready?
+- Let's rock.
+- Wunderbar. Come on.
+- What's the big surprise?
+- You two moving in together?
+- Both: We're moving in together!
+- It's not fun with you.
+- It was supposed to be a surprise.
+- How did you know?
+- Hello? Spy.
+- And you're...
+- Happy that we're finally taking this nice, giant step and... ?
+- Or you're going to sh**t me?
+- Heads up.
+- The place all is yours.
+- We're all going to live together?
+- No, just the two of you.
+- I have, uh... someplace I need to be.
+- You're going after Gertrude.
+- I was going to ask you.
+- Dad, you don't have to ask.
+- You deserve to be happy.
+- Go.
+- Run to her. Run to her.
+- I'm a Casey; I don't run.
+- I stalk my prey.
+- Oh, my precious Clara.
+- You are going to love Chicago.
+- And Mimi is gonna come and see you all the time.
+- (sighs)
+- I don't know how I'm supposed to leave you like this.
+- Ellie, you have to.
+- You've taken care of me for far too long.
+- You have Clara and Devon.
+- I'm fine.
+- I'm all grown up now.
+- My little brother.
+- Aces, Charles.
+- You're aces.
+- What about Sarah, Chuck?
+- (sighs)
+- I don't know.
+- Morgan, she could be anywhere.
+- Okay, you know where she is.
+- You told me to listen to our hearts, because our brains only screw us up.
+- I was in love then.
+- You're still in love.
+- I want you to imagine something for me, okay?
+- Where is she right now?
+- Don't think.
+- Use your heart.
+- Where is she?
+- I was hoping you'd be here.
+- This place is important, isn't it?
+- Yeah, yeah, very much.
+- This is actually where you told me I was going to be okay.
+- That I could trust you.
+- And that's exactly what I'm doing now.
+- I'm asking you to trust me.
+- Sarah, I don't... I don't want anything from you.
+- I-I just need you to know that wherever you go, I'll always be there to help you.
+- Someone you can call.
+- Whenever.
+- Trust me, Sarah.
+- I'm here for you always.
+- Chuck?
+- Tell me our story.
+- Yeah, yeah, uh...
+- Where to begin?
+- Well, uh, it started with a guy who worked at Buy More.
+- And then, one day, an old college friend of his sent him an e-mail that was filled with secrets.
+- And then, the next day, his life really changed when he met a spy named Sarah, and he fell in love.
+- ♪
+♪
+- You know, Morgan... has this crazy idea.
+- What is it?
+- He thinks that, with one kiss, you'll remember everything.
+- One magical kiss?
+- Yeah.
+- I know it's...
+- Chuck?
+- Yeah?
+- Kiss me.
+- ♪

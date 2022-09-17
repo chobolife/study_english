@@ -1,0 +1,675 @@
+# Chuck Versus the Baby
+
+- Hi, I'm Chuck. Here are a few things that you might need to know.
+- I'll be locked in solitary the rest of my life, but one thing's going to keep me warm at night.
+- Do you remember Hungary?
+- Does Chuck know about the baby?
+- (thunder rumbling)
+- WOMAN (over voice mail): Hey, honey, I haven't heard from you for a while.
+- I miss you.
+- Wherever you are, I hope you're okay, safe.
+- I want you to know, if you ever feel like you need a place to come home to, well, you have one.
+- Who was that?
+- Nobody.
+- Are we a go?
+- Affirmative.
+- (men speaking Hungarian)
+- (all laughing)
+- Ryker, I'm in.
+- How many?
+- I count 11.
+- Copy that.
+- On my word, take them out, all of them.
+- The men in that room just slaughtered the couple that lived in this house.
+- Give them the opportunity, they'll k*ll you, too.
+- (men laughing)
+- Now move.
+- ♪
+- Next?
+- Ryker: Double doors, three o'clock.
+- The package is inside.
+- Ryker, th-the package...
+- The baby is the package.
+- Grab it and get out of there.
+- But what am, what am I supposed... ?
+- Move, Walker.
+- I'm your handler and that's an order.
+- Chuck: Hey, honey.
+- You ready for my big surprise?
+- Absolutely.
+- You know how much I love surprises.
+- Chuck, where are we?
+- Okay, here we go, up farther.
+- Straight, straight, straight, straight, and ta-dah!
+- Oh, my God, this is the house.
+- It's our house.
+- How, how did you do th... ?
+- The real estate agent gave me the keys so we could try it out for the weekend.
+- Um, full disclosure--
+- I think she might have a little crush on me, so...
+- Chuck, this is, this is beautiful, but we still can't afford it.
+- Actually, we can.
+- I was talking to Beckman, and apparently her offer to rejoin the CIA comes with a signing bonus, which is enough for a down payment on the house and that dresser I've been eyeing at Anthropologie.
+- Uh, I don't know what to say.
+- Don't say anything.
+- Just visualize.
+- Think to yourself, "What would my life be like in such an amazing home with the most dashing man I've ever met? "
+- (chuckling): Okay.
+- All right, all right, so after a hard day's work, we come home to the sweet, sweet sounds of Nina Simone emanating from our record player, which would fit perfectly-- I don't know-- say, in this corner right behind me.
+- Huh?
+- Open floor plan-- great for relaxing and watching your husband cook.
+- Cooking and talking, talking and cooking.
+- This area right here-- perfect for my game chairs.
+- Or not.
+- (clears throat) Maybe we'll talk about that, but this, this is perfect.
+- The door frame?
+- When Ellie and I were kids, our dad would measure us every year to see how tall we were getting.
+- I remember being so excited when I was finally taller than Ellie.
+- It took a while, but tenth grade was a good year for me.
+- What's the matter, what's the matter, what have I done?
+- Something-Something's missing, something's wrong?
+- Is it the game chairs? 'Cause those are negotiable.
+- No, Chuck, it's not that.
+- Um, look, I want this house and I want the life that you have envisioned for us.
+- I want every single part of it.
+- It's just that something urgent has come up.
+- What is it?
+- You know you can tell me anything.
+- Well, that's just it.
+- This time, Chuck, I can't tell you.
+- (baby crying)
+- There are more men coming.
+- Get the package and get out of there.
+- (men speaking Hungarian)
+- (baby crying)
+- It's going to be okay.
+- ♪ Chuck 5x08 ♪
+Chuck Versus the Baby
+Original Air Date on December 30, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Sarah. Sarah, please? just, just tell me where you're going, tell me what happened.
+- I thought we decided no more secrets, no more doing things on our own.
+- Your words, not mine.
+- Look, I know, I know that.
+- It's just, I need you to trust me on this.
+- It's not that I don't trust you, this is not about trust.
+- Casey: What's so urgent, Bartowski?
+- Morgan: Yeah, why'd you make Casey come all the way down here?
+- You know I'm gonna follow him everywhere he goes, and I was doing something really important.
+- (mouthing)
+- Where you going, Walker?
+- It's nothing; I'll be back soon.
+- J-Just wait, just wait one second.
+- Hear me out.
+- Yes, I love you, so, of course, I'm going to want to know what's going on, why this mission needs to be so secretive, why you need so many g*n, but I'm willing to put all that aside.
+- Really?
+- Really? Really?
+- (mouthing)
+- Sure, husbands ask a lot of questions.
+- You know who doesn't?
+- Carmichael Industries, and as CEO of Carmichael Industries, I would like to offer you our services-- pro bono, of course.
+- Well, it wouldn't change anything.
+- There are still things I can't tell you.
+- You're the client, you're the boss.
+- Casey: Whatever this is, Walker, backup couldn't hurt.
+- Okay, here's what I can tell you.
+- The man that we're going after-- his name is Kieran Ryker-- ex-CIA, very dangerous.
+- Before we took down Shaw, he sent a communiqué to Ryker, and I'm gonna send one back posing as Shaw so that I can set up a meet.
+- Morgan, you're gonna stay in Castle in case anything goes wrong.
+- Chuck and Casey, pack your bags.
+- We're going to Budapest tonight.
+- All right, great, I'll bring a sweater.
+- Good.
+- You sure you can keep your mouth shut this time?
+- Of course.
+- Geez, Casey, you act like I haven't learned anything in the last four years.
+- (scoffs)
+- Morgan, I need to know what's going on with Sarah, so I've done some research-- research on Hungarian culture cross-referenced with general horrible things that Sarah might want to keep a secret.
+- But didn't you tell Sarah that you wouldn't... ?
+- Wikipedia-ing facts about Hungary is harmless.
+- I, for one, had no idea the Rubik's Cube was invented there.
+- Sure, I just think maybe you should give Sarah the benefit of the doubt. I mean, any time the two of you have ever disagreed about anything, she's been right. I can name four or five different times...
+- No, no, no, I-I know, I know, it's just, I'm worried that we won't be prepared if something goes wrong, but if you're here in Castle, I guess we'll be okay.
+- Yeah.
+- Kind of a bummer about the timing, though.
+- I was supposed to have game night with Ellie and Awesome.
+- Alex said she was gonna come by, too, and...
+- I still don't know where her and I stand.
+- Wait, wait, why do you have to cancel? You don't have to cancel game night.
+- Have game night in Castle.
+- Ellie and Awesome have wanted to check it out more anyway.
+- Ever since that last mission, they keep asking me tactical questions and using the term "ghost op" as if they know what it means.
+- (groans) Plus, this way, if anything does go wrong, we'll be ready.
+- I'm on it. Thank you.
+- Hey, listen, I know you can't talk to Bartowski about what's really going on.
+- That blabbermouth can't keep a secret to save his life.
+- But you can tell me, hmm?
+- I appreciate that, John, but the less you know the better.
+- Really.
+- Sure, no problem.
+- Walker.
+- (baby cooing)
+- Uh... look, before I hand over... the package, I need to know what's going to happen to her.
+- I'm afraid that's above your pay grade.
+- This mission wasn't sanctioned by the CIA, was it?
+- Look, we did a good thing.
+- The men you took out k*ll that girl's entire family.
+- She's the only heir to a massive fortune, so whoever has her has access to it.
+- She's the key.
+- And you want the money.
+- Listen, I know this job is the only thing in your life, but someday you're gonna realize it's not enough, that keeping your whole life a secret from everyone who loves you is too much.
+- But you don't have a family.
+- That money's just for you.
+- And what's going to happen to her when you take it?
+- She has a legitimate claim to that fortune, then she can come back at any time and take it from you.
+- And you expect me to believe that you're gonna let her live?
+- (baby crying)
+- You're a rotten handler, Ryker.
+- (crying continues)
+- (passersby screaming)
+- (horn honking)
+- (crying)
+- Okay.
+- (baby crying loudly)
+- It's okay. It's okay. Shh.
+- Stay. Stay.
+- (crying continues)
+- Chuck: So, uh, honey, this Ryker fellow-- is there anything about him you'd care to elaborate on?
+- Any personal details we should know about?
+- How he takes his coffee, for example?
+- No. You know everything that you need to know.
+- Okay, I'm gonna be at that cafe waiting for him to arrive.
+- I need the two of you to stay up here away from Ryker, surveilling the street to see if anybody else is watching me.
+- Okay?
+- O-kay.
+- No. Wait.
+- No. You know what, Sarah? Sarah, no, not okay.
+- Can't we just set aside the whole CEO of Carmichael Industries thing just for a second?
+- No, Chuck, that wasn't part of the deal.
+- Yeah, except that I'm your husband who would do anything in the world for you, and I'm worried. Okay, look, this isn't about me.
+- There are lives in danger because of something that...
+- Look, if I tell you, I'm not only compromising their safety, but your safety, as well.
+- Okay, so, when you see Ryker, what then?
+- What are you gonna do?
+- I'm gonna k*ll him, Chuck.
+- Chuck: Still nothing.
+- Look, I know I typically overreact to stuff like this, but there's something about this entire situation that I do not like.
+- This time, you might be right, Bartowski.
+- Did some digging.
+- Turns out, Ryker's whole file has been redacted.
+- Which means whatever happened between him and Sarah ended pretty damn badly.
+- (speaking Hungarian): Sarah, what's going on?
+- Um, it's nothing.
+- I need you two to follow the waiter.
+- I think he might be working with Ryker.
+- Don't move.
+- We'll be right down.
+- Where... Where is Sarah?
+- Got him.
+- Sarah, wait, wait! Wait. Where are you going? !
+- Ryker figured out it was me. I'm sorry.
+- I've got to go do this alone.
+- The waiter! Come on, come on!
+- Still no word from Chuck.
+- Everything must be going well on the mish.
+- Your turn, bro.
+- Oh, right.
+- Okay.
+- You know what? I feel so lucky to have a lady to share my little plastic car with, and, uh, not afraid to put a couple of kids in the backseat.
+- Not now, obviously. That'd be crazy.
+- But you know, someday. You know, commitment is not something that I fear.
+- Well, I'm keeping my options open.
+- Yeah, I noticed. There you are in your little pink car by yourself. Must be so lonely.
+- What is going on with these two?
+- I thought they worked everything out.
+- Me, too.
+- Maybe they need some alone time.
+- Great.
+- Because if I have to spin for a new mortgage rate again, I'm going to die.
+- It's like we're actively wasting our baby-sitter.
+- Okay, let's, uh... let's speed things along here.
+- Then you and I can have a little look-see in Castle.
+- Morgan: Ellie?
+- Hmm?
+- Uh, your turn.
+- Yeah, my turn.
+- Hey, spin a ten, game is over.
+- All right. Spin... a ten. Okay. (laughs)
+- Oh!
+- (gasps) Millionaire Estates!
+- Yay!
+- Yeah, baby!
+- We won in Life. We did.
+- (Captain whooping)
+- Yeah. Okay.
+- We'll take a little breather before the next game, guys. Bye. Yeah, good, good.
+- Good kids. (chuckles)
+- Oh! Our hands touched for a second, and I kind of got, like, a chill on my back.
+- It's kind of funny, 'cause...
+- Morgan? Mm?
+- What am I really doing here?
+- I'm-I'm not here to try anything, if that's what you're asking.
+- Unless what you're asking is that you want me to...
+- No.
+- That's what I'm saying-- no, of course. Uh...
+- There's no quick fix for us.
+- It's just going to take some time.
+- I know that.
+- Hey, I totally get it.
+- How about a game of Sorry?
+- (scoffs)
+- Sorry! Sorry! Sorry!
+- Come back. Sorry. Sorry.
+- (yells, grunts)
+- Ahh!
+- Whoa! Yeah!
+- Once again, look who doesn't need the Intersect.
+- Where's Ryker?
+- Where the hell is he? (speaking Hungarian rapidly)
+- Do you speak Hungarian?
+- No.
+- Do you, Mr. "I don't need the Intersect? "
+- I think I got a phrase book on me somewhere.
+- (speaking Hungarian)
+- Uh...
+- (pages turning)
+- (speaking Hungarian)
+- What are you doing?
+- I got her in the deli.
+- What? She wasn't busy. It's Europe.
+- Would you mind asking this gentleman what his business is with Ryker?
+- (sighs)
+- (speaking Hungarian)
+- (speaking Hungarian)
+- He said this man you are asking about gave me 20, 000 forint to put a note under a coffee cup.
+- He doesn't know anything else.
+- He's lying.
+- I think you understand every word I'm saying.
+- You're gonna tell me where Ryker is, or you're gonna lose a lung.
+- Where the hell is Ryker? !
+- Any sign of her?
+- Man: Nothing yet, sir.
+- (g*n clicks)
+- You didn't think I was just gonna use the front door, did you?
+- I knew you wouldn't use the front door.
+- You tell me everything Sean told you right now.
+- (baby crying)
+- What is that?
+- (crying)
+- Oh, God, I don't know what you want. What do you want?
+- (thunder rumbling)
+- What do you need?
+- (crying louder)
+- Oh, my God.
+- Okay. Okay.
+- Um...
+- (dialing)
+- (phone line ringing)
+- Woman: Hello?
+- Uh, hi, Mom. It's me.
+- Honey? Are you okay?
+- Where are you?
+- I'm just... I'm uh... I'm in a bit of a situation here.
+- Are you hurt?
+- Uh, no, no, no, no, it's nothing like that.
+- I was on a mission, and, um...
+- Well, I'm looking after a baby, and she won't stop crying, and I'm not really sure what to do.
+- Can you please help me?
+- Okay. Uh, yeah.
+- Um, is she wet?
+- Uh, no. No, it's not that, and I... and I fed her an hour ago.
+- Did you try rocking her?
+- What? No.
+- Okay, honey, I want you to bring her close to you.
+- She needs to feel safe.
+- She needs to feel your warmth.
+- (crying)
+- Okay.
+- Okay, she's close. Now what?
+- Okay, now just-just rock her.
+- Slowly back and forth and...
+- (continues crying)
+- Mom, this is not working. I'm not good at this.
+- What am I supposed to do?
+- Don't freak out, honey. It's okay.
+- It's okay. Just, um... Just try singing to her.
+- (crying)
+- Um... what am I supposed to sing?
+- Do you remember the lullaby I used to sing to you when you were little?
+- Yeah. Uh, I-I think so.
+- ♪ Slumber, my darling ♪
+- (both singing): ♪ Your mother is near ♪
+♪ Guarding your dreams from all terror and fear ♪
+♪ Sunlight has past and the twilight has gone ♪
+♪ Slumber, my darling ♪
+♪ And the night's coming on. ♪
+- (sighs)
+- Did it work?
+- Yeah.
+- Yeah, it worked, Mom.
+- Thank you.
+- (baby crying)
+- (grunting)
+- (click, crying stops)
+- Tie her up.
+- (gasping)
+- I have to give you credit on that fake communiqué.
+- Unfortunately for you, I already knew that Shaw was back in prison.
+- So tell me, did you just come all this way to have a cup of coffee with your old handler?
+- You're asking the wrong question.
+- (agonized grunting)
+- Just get to the point, Ryker.
+- The point is that it's not about money anymore.
+- You know why I requested to be your handler?
+- Why I brought you to Budapest in the first place?
+- Because your file screamed loner.
+- You had no family to speak of, never trusted anyone.
+- I knew that you could keep a secret because you had no one to tell.
+- (laughs)
+- And you still don't, do you?
+- I bet no one even knows that you're here.
+- Do they?
+- And that's why you're gonna die today... unless you tell me something.
+- Where is she?
+- Shaw told me she's still alive.
+- Where's the little girl?
+- What?
+- You don't know where she is, and you're never gonna find out.
+- That's why I came here.
+- That's all I needed to know.
+- Man: Sir, there's a problem in the foyer.
+- (blow lands)
+- (groans)
+- I'm not done with you.
+- (gasps)
+- Stay with her! You two, come with me.
+- What the hell?
+- They made me talk!
+- (Ryker sighs)
+- (man screaming)
+- What are you looking at?
+- Sarah? Sarah, baby, are you okay?
+- Move. He was just a distraction. Let's go.
+- Tell me where the nukes are, Doctor.
+- Or should I call you...
+- Damian?
+- (with British accent): You may know my real name, but that doesn't mean that I'll give you my intel, Cobress.
+- Well, I have ways of making you talk.
+- (sighs)
+- Oh, okay. Ow! Ow! Ow!
+- Okay, okay. Is this... is this part of the bit, babe?
+- No, I'm stuck. It's my earring.
+- I'm stuck... Ow.
+- Okay, hold on, hold on. All right.
+- Oh! Ah!
+- You all right?
+- Yes.
+- What was that accent?
+- Oy. My British accent.
+- Really?
+- Alex: Morgan, stop.
+- I thought I could do this, but I can't.
+- Morgan: If you don't... if you don't want to play a game, that's okay.
+- You know what we could do? We could watch a movie.
+- We could watcha bunch of movies...
+- You broke up with with me in a text.
+- I don't know how to trust you again.
+- I think I should probably just go.
+- Babe. Babe.
+- Captain: Maybe alone time isn't what they needed.
+- We have to do something.
+- Yeah.
+- Hey, there. Hey. I'm actually heading home. No, really. I'm...
+- Alex, okay... Devon, really, I...
+- Listen, I think you're making a mistake.
+- Hey, you got a sec?
+- What's that?
+- What? That...
+- Oh. Uh, nothing. Just...
+- Um, I actually wanted to talk to you about Alex.
+- I don't think you're gonna understand what I'm going through here.
+- I don't know if you know this, but when Devon and I first started dating, we took a break for a while.
+- Alex: What happened?
+- As you probably know, I was an A & F model.
+- I got to admit, I let it go to my head.
+- Ellie: He was a real ass.
+- For our first anniversary, he gave me a signed photograph of himself.
+- He was carrying a canoe in, in nothing but suit pants.
+- And so I just, I broke up with him.
+- I had to win her back.
+- You know, I couldn't lose a woman like that.
+- So I pulled out all the stops.
+- I made a Tracy Chapman mix tape; I got front-row tickets to Les Mis.
+- I even baked those little cupcakes, you know, the kind with the peanut butter inside.
+- Oh, yeah, I like those.
+- Yeah, so does she.
+- Did it work? Uh, no.
+- So then what did you do?
+- I mean, why did you take him back?
+- I don't think he knows this, but I came home from work one day, and he was sitting on my doorstep with a bunch of calla lilies, and he must have been there for hours, because he was on the phone with his mom, and he was so sweet with her.
+- He really cared about what she was saying.
+- I just remembered that that was the man I fell in love with.
+- Calla lilies-- works every time.
+- Devon, I really appreciate this, but I've got to...
+- No, Alex, come on.
+- Yeah, we all make mistakes, and Morgan made some big ones.
+- Yeah. Trust me, he loves you.
+- Ellie: She's in pain, Morgan,  but if she's the one that you love, just... you just have to be yourself.
+- Stop trying to force it.
+- You are a catch, okay?
+- She's going to realize that soon enough.
+- (rustling)
+- Hey.
+- You're up. Feeling better?
+- Yeah.
+- You were kind of in and out a little, so I took the liberty of putting your dresses away.
+- I wasn't sure if they went on the left or the right, so I went with the right.
+- Uh, Sarah, look...
+- You-you know that I'm, I'm not the kind of guy who says things like this, but... whatever it is that you thought you needed to hide... not telling me the truth, going out on you own like that, I think it was, uh... a mistake.
+- I think that you were wrong.
+- You're right.
+- When Ryker captured me in Budapest, I kept thinking why am I doing it this way?
+- Why do I feel like I have to do everything on my own?
+- But it's what my dad taught me.
+- It's the way the CIA taught me, that you can only ever trust yourself.
+- But the truth is that I trust you completely, and I want to tell you everything.
+- (rain falling)
+- (cell phone ringing)
+- Hello?
+- Graham: How are you holding up?
+- Look, I know what Ryker made you do.
+- I know everything.
+- I was just obeying orders.
+- There's no need to worry about that now.
+- Where's the package?
+- If I have the package in my possession, then what?
+- The CIA would take it into custody, and then...
+- Do you guarantee its protection?
+- You know I can't make guarantees.
+- The CIA keeps records on these kind of things.
+- Records that a man like Ryker might be able to get his hands on.
+- And who knows what he would do.
+- He's a wild card.
+- Agent Walker?
+- Sarah?
+- I'm not in possession of the package, Director.
+- Sarah: It must be somewhere else.
+- This is your home, too. It doesn't have to be this way.
+- Mom, I've thought a lot about this, and, uh, and...
+- I can't stay.
+- Because for both of you to be safe, well, I can never see you again.
+- (sighs)
+- When the CIA recruited me, I was on the run with Dad, and we changed our identities so much that they never knew you existed.
+- And we can't let them find out about you now.
+- When you were a little girl, all I ever wanted for you was a normal life.
+- But you went off with your father, and he was never one... (sighs)
+- You just... you never got to go trick-or-treating or play on the soccer team, or never got to go to prom or homecoming.
+- I just wish I could have given you at least some of that.
+- Oh, um... don't forget this.
+- She likes to be wrapped up in a blanket.
+- It... helps her sleep.
+- And the sound of the rain-- she likes the sound of the rain.
+- And I've noticed that car rides... It's okay, honey.
+- I'll take good care of her.
+- Yeah, I know.
+- I know.
+- Um, Mom?
+- Yes?
+- Going to prom and... and soccer games and... (sighs) and... and all those normal things that you wanted for me--
+- ... will you just make sure that she gets them?
+- Of course I will.
+- Thank you.
+- (sniffles)
+- So the baby has been with your mom this whole time?
+- Yeah. Yeah, now I know that they're both safe.
+- Ryker has no idea where she is.
+- He has no idea that my mom ever existed.
+- I'm so sorry that I never told you any of this before.
+- I really am.
+- I just... I didn't want to put anybody else in danger.
+- But thank you for trusting me.
+- Babe, I love you.
+- (slight electronic hum)
+- Who's that?
+- Yeah, what was that?
+- That's feedback.
+- (louder humming)
+- (mouthing)
+- Ryker. Oh, my God, he knows that the baby is with my mom.
+- I've been looking forward to this little visit for a long time.
+- Let's go.
+- Your call has been forwarded to an automated...
+- She's not answering.
+- I sent her the coordinates.
+- I just hope she remembers the signal.
+- (cell phone ringing)
+- Mom?
+- Mom!
+- Please remember the signal, please.
+- (tires screeching)
+- Did you get ahold of Morgan?
+- Not yet, but I'll keep trying.
+- Stay there.
+- (water running)
+- (water running)
+- I've got her.
+- Nice apron.
+- Thanks.
+- Chuck: Whoa, whoa, whoa, hey, hey, guys, sorry, but this street is permit parking only.
+- (grunting)
+- (grunting)
+- ♪
+- (choking)
+- You came so close to keeping her safe, you really did, but I'm gonna k*ll you and then I'm gonna k*ll your mom.
+- (choking) And then after I get that money, you know what I'm gonna do with that little girl?
+- Hmm?
+- Get up. (grunts)
+- (anguished cry)
+- (coughing)
+- You just don't quit, do you?
+- (wry chuckle)
+- But you always manage to make the same mistake.
+- Even when you have a team, here you are all alone.
+- When the hell are you gonna learn?
+- (two g*n outside)
+- (grunts, stabs)
+- (panting)
+- I'm not alone.
+- She'll never have nightmares and she'll never even know that you existed.
+- She's going to have the life that she deserves, a normal one.
+- (panting)
+- (men grunting and punching)
+- Sarah, thank God you're okay.
+- We got Ryker's men.
+- My mom saw the signal.
+- She must be at the coordinates I left for her.
+- She remembered.
+- Morgan: Okay, this is where I make my comeback.
+- This is where I make my comeb-- every time, this is where I...
+- (Morgan sighs)
+- Morgan: What?
+- You are good, you are-- you used cheat codes.
+- This is what I-- no, you-- come on, you put in some kind of...
+- ♪
+- I missed you.
+- I know.
+- Oh.
+- Molly, I want you to meet someone very important.
+- This is your sister Sarah.
+- Hi, Molly. It's nice to meet you.
+- Nice to meet you, too.
+- So who's this?
+- This is Rex.
+- Hi, Rex.
+- You know, I used to have a stuffed dog, too, when I was little, and I, I named him Bunny.
+- That's a funny name for a dog.
+- I know. (both laugh)
+- Chuck: You know, I can't even begin to tell you how excited I am that I get to meet you.
+- It means a lot to me, too, more than you know.
+- Ah, it's been so long since I've seen her.
+- She was always a tough little thing, you know, but I worried about her.
+- Growing up mostly with her father, she always kept to herself; she wouldn't let people get close.
+- I know I don't know you really well yet, but thank you for giving her this.
+- Morgan: Okay, that was-- that wasn't supposed to happen.
+- I'm going to pract...
+- I got to go practice.
+- Bartowski and his fancy Chardonnay.
+- Don't worry, I know where Sarah keeps the Scotch.
+- Kitchen, top left cabinet.
+- Nice.
+- You were, uh, pretty good with Molly today.
+- Well... you know, I'm kind of a sweet guy when I'm not in douchey Intersect brain-melting, life-ruining phase.
+- Captain: Mission accomplished today, huh?
+- Yep.
+- Looks like Morgan finally found the right girl.
+- I know how he feels.
+- Aw.
+- Your favorite.
+- Honey, you didn't have to do that.
+- I wanted to.
+- I'm the lucky one now...
+- Joining the CIA and giving up everything you did, did you ever think it would lead you here?
+- No.
+- (laughs)
+- No, but, uh, Chuck's taught me that every now and then, it's okay to be surprised.
+- Chuck: You just love putting me in my place, don't you?
+- Yeah.
+- (laughing)
+- It's good to have you back, Agent Walker.
+- Sometimes when an agent goes through what you did, we lose 'em.
+- Well, you're not going to lose me, sir... but I am done with handlers.
+- Oh, I agree.
+- In fact, I think that it's time for you to become one.
+- I have a new assignment for you-- something stateside.
+- You think you can handle this one?
+- I like it here.
+- Me, too.
+- You know, I, I really want the life that you imagined for us, Chuck, but if we go back to the CIA, it's just going to be missions and secrets that we have no control over.
+- What are you saying?
+- I gave my life to the CIA for a really long time and I chose it over my family and my friends, and that was the right thing for me to do at the time, but... I'm different now.
+- You know, things have changed.
+- You've changed me.
+- I don't want to go back.
+- I want to turn down Beckman's offer.
+- (sighs)
+- Okay.
+- Okay.
+- We don't need that bonus and... we don't need this house because all we need is each other.
+- Sarah?
+- Wha-- hey, hey, hey, hey, what are you doing?
+- I am carving our names into the frame.
+- Honey, you know we don't own this home.
+- I know, but we will one day.
+- Might not be tomorrow or the next day, and it might take us months or years of hard work, but one day this will all be ours.
+- And when it is, I would like to always remember this moment.
+- So what do you say?
+- You still in?
+- (etching)
+- (chuckles)

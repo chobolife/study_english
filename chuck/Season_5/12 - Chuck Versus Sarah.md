@@ -1,0 +1,713 @@
+# Chuck Versus Sarah
+
+- Hi, I'm Chuck. And here's what's been going on in my life, lately.
+- You wouldn't have downloaded the same version Morgan had, would you? Oh...
+- Chuck: I know you lose memories when you flash.
+- (beeping)
+- No!
+- Whoa, Sarah.
+- Who are you?
+- Your handler.
+- Orders are in.
+- k*ll Chuck Bartowski.
+- Okay, guys, Sarah's out there.
+- She's still out there; we need to find her.
+- Quinn said that he's after the last remaining intersect, which means if we find it, we will probably find Quinn, and with him... Sarah.
+- Exactly.
+- Which is why I hacked into the CIA's database.
+- Just stay with me for a little bit, because I found something interesting.
+- These are the blueprints to DARPA.
+- DARPA? That's an acronym for something.
+- Give me a minute, I can figure it out.
+- Defense Advanced Research Projects Agency.
+- Morgan, if the CIA had a Q working for them, he'd be working right there.
+- And I've seen enough Intersect white rooms to know that they have one.
+- Guys, I know this is a long sh*t, But I have to do something to find her.
+- I cannot continue to sit idly by and wait.
+- Are you with me?
+- Let's go. 100%.
+- Sarah?
+- I'm... I'm sorry it took me so long to come home.
+- Baby... but you've been undercover for the past five years, monitoring a rogue spy.
+- His name is Chuck Bartowski.
+- Everything's in here.
+- Strengths, weaknesses, profiles of the people closest to him.
+- Memorize it.
+- Any questions?
+- Yeah. Yeah, just one, um...
+- Why the hell should I believe you?
+- (grunting)
+- I'm on your side, Agent Walker.
+- I don't want to have to hurt you.
+- And then I threw him out the window.
+- And that's how I escaped.
+- What? I can't believe that.
+- That's nuts, amazing.
+- And Quinn?
+- He's dead.
+- And the Intersect is out of my head.
+- So, it's all over. Well, thankfully, these cuts look pretty minor.
+- We should let you get some rest.
+- QUINN (over comms): Eleanor Bartowski.
+- The sister.
+- Goes by Ellie.
+- Thank you, Ellie.
+- And you remember her husband's name.
+- And thank you, Devon.
+- Thank you, all of you.
+- I'm-I'm really glad to be home.
+- Glad you're safe.
+- Me, too.
+- (grunting)
+- I don't remember you any more than I remember this Bartowski guy.
+- So you tell me, what happened to me?
+- (choking): Walker, give me a chance.
+- There's something you need to see.
+- (beep)
+- This is Agent Sarah Walker.
+- Today is September 24, 2007, Day One.
+- Today, I made contact with the Intersect, Charles Irving Bartowski, or rather, Chuck.
+- My mission is simple: find out what he knows, gain his trust and monitor his actions until the agency can decide what to do with him.
+- (beep) Well, the Agency has made a decision, Agent Walker.
+- (hammer clicks)
+- Chuck Bartowski has proven to be a major threat to... (clears throat) national security.
+- Well, then put Director Graham on the phone.
+- He gives me my orders.
+- He's dead, Sarah.
+- Well, what about my partner, Bryce?
+- Where is he?
+- I'm sorry, Sarah.
+- He's dead, too.
+- That's not possible.
+- We believe that Bartowski and his team are responsible for both of their deaths.
+- And I wish I could just let you forget everything horrible that this man has done, but Chuck Bartowski needs to be stopped.
+- He's a traitor.
+- And you want me to k*ll him?
+- Yes.
+- But first, I need you to retrieve something that he's stolen from us.
+- A pair of Intersect glasses.
+- We believe that Chuck wants to use them to upload a pristine version of the Intersect.
+- Sarah?
+- If you want your life back-- the life he stole from you-- return to Burbank, retrieve the glasses, and put Chuck Bartowski to rest once and for all.
+- I'm so glad you're okay.
+- I love you.
+- I love you, too.
+- ♪ Chuck 5x12 ♪
+Chuck Versus Sarah
+Original Air Date on January 27, 2012
+- ♪
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- (Butcher's kn*fe pounds)
+- Wow, you are...
+- You are really going to town on that thing, huh?
+- I'm just cutting the chicken up.
+- You're just getting it...
+- I'm gonna... I'm gonna make a quick phone call, okay?
+- Love you. Be right back.
+- (bones crunching)
+- (door closes) I'm alone.
+- Good.
+- Find the glasses.
+- (over comms): Look for a hidden safe or vault.
+- Be careful, Walker.
+- Do not underestimate him.
+- He has proven time and again that he is more dangerous than he looks, and remember, the rest of his team is only a few feet away.
+- MORGAN (over phone): Different how?
+- I don't know, Morgan; that's what I'm trying to tell you.
+- I can't put my finger on it.
+- Sarah just seems different.
+- Look, of course she's not acting like herself.
+- Okay, she was kidnapped by some homicidal maniac on a Japanese b*llet train, and then in order to escape, she had to k*ll the dude and walk home from his secret base barefoot!
+- Wow, she really is incredible, huh?
+- Yeah, yeah, maybe you're right, maybe you're right.
+- Maybe I just need to try and make her feel, you know, a little more relaxed.
+- Yes, yes, untense the tense girl.
+- Loosen up that leggy blonde.
+- I can do that.
+- Hey, uh... that leggy blonde.
+- Hey, honey, uh, you want to meet me in the bedroom?
+- I have a surprise for you. Okay.
+- Okay.
+- I think he's up to something.
+- QUINN (over comms): Stay alert.
+- It could be a trap.
+- (door squeaks open)
+- Welcome to the Bartowski Inn and Spa Resort where all of your worries melt away.
+- You have to use a little imagination, but picture, if you will, outside those windows the gorgeous Ojai Valley.
+- And what may look like a normal, five-year-old mattress is, in actuality, a luxurious massage table.
+- Huh? Huh? ♪ Ha, ha, ha.
+- A sheet has been provided for your discretion.
+- Oh. (clears throat)
+- Great.
+- Quinn: Walker, what's going on?
+- He claims he wants to give me a massage, but I think he's onto me.
+- You almost ready?
+- Just a second!
+- Calm down.
+- You should use this as an opportunity.
+- Allow yourself to be vulnerable with him.
+- It'll convince him that there's nothing wrong.
+- Okay.
+- Okay, I'm ready.
+- (clears throat)
+- All right.
+- Here we go.
+- (kissing sound) Starting with the application of the oil.
+- (whistles)
+- Ah, yes.
+- Relax, relax.
+- This would actually go a heck of a lot smoother if you just brought these down to your side, honey.
+- So, just down to your side.
+- Rela... There we go. There we go.
+- See? Yes, better already. Breathe. Yeah...
+- Baby, your muscles are so tight, they're hurting my hands.
+- A lot of lactic acid buildup, huh?
+- Why don't, why don't I crack your neck?
+- No!
+- What? What did I, what did I do?
+- What did I say? You love it when I crack your neck.
+- Quinn: Don't blow your cover, Walker. Talk to him!
+- Uh, I'm-I'm-I'm sorry, Chuck.
+- I really appreciate everything that you are trying to do.
+- It's just that it's been a long couple days, and, um, you know, maybe it's just best if we go to bed.
+- Yeah. Yeah, sure, sure, sure.
+- Whatever you need.
+- Wow! It's all ending, huh?
+- What are you babbling about?
+- I just get nostalgic, you know?
+- Quinn's dead, Sarah's home safe, so we're done, man. No more missions.
+- And no more g*n.
+- Think about it, Casey. Five years.
+- I went from pipsqueaky sidekick to this.
+- And you, you were the most cold-blooded sn*per in the whole world, and now you're scrubbing our floors.
+- Well, if you would use a plate when you're eating taquitos, I wouldn't have to scrub the floors, would I?
+- Do you really think I've changed?
+- I'm so glad that Sarah's back.
+- Bill.
+- Social event. Me, too. I don't know what Chuck would do without her.
+- For you. For you.
+- Babe... Babe, I just got a letter from...
+- Carlos Shuman Medical Center?
+- In Chicago offering me a research position.
+- They want me to head up the cardiac division.
+- They must know we're a couple.
+- Babe, I think we're being wooed by Midwesterners.
+- I know, I know. We could, we could buy a house.
+- We could buy a big house.
+- Okay.
+- Are we... are we really considering this?
+- We've lived our whole lives in California.
+- We've always said a change would be nice.
+- I just always assumed I would live close to Chuck.
+- Yeah, yeah.
+- But Sarah's back now.
+- He's okay, right?
+- Quinn, I found the glasses.
+- Quinn: Good. Then, it is time to finish your mission.
+- Take out Bartowski.
+- Sarah?
+- (sighs)
+- (sighs contentedly)
+- (whispers): Chuck just left.
+- I'm following.
+- Hey.
+- Hi. Sorry. Did I wake you up?
+- No. I couldn't sleep.
+- How's Sarah?
+- Um...
+- You'd better come inside.
+- Thanks.
+- Chuck: I don't know. I guess,  it's, uh, the little things that are different.
+- Like, her feet get cold at night, so I always put mine on top of hers to keep them warm.
+- And I know it sounds stupid, but tonight she... pulled her feet away from mine, and she never pulled them away like that.
+- Quinn: Walker, where are you?
+- (whispers): Ellie's apartment.
+- They're talking.
+- Chuck, it's her first night back.
+- I can't imagine what Sarah's been through.
+- She's involved in this, too.
+- What are they talking about?
+- About me.
+- I almost lost my best friend.
+- And now, my wife, and always for the same reason, which is the Intersect, Ellie.
+- Which is why I keep thinking that I need to destroy it for good this time.
+- What do you mean?
+- Quinn is dead, yes, but there will always be someone who wants it, and we will never be able to move on with our lives until it is gone.
+- Quinn, are you hearing this?
+- He doesn't want to download the Intersect onto the glasses.
+- He wants to destroy it completely.
+- I know where the latest version of the Intersect is being kept.
+- All I need to do is sneak in and plant the virus.
+- What do you want me to do?
+- You have to go with Chuck and download it onto the glasses yourself to ensure its protection.
+- It's up to you to keep it safe.
+- Then you can k*ll him.
+- Just wanted to get a little... sisterly advice.
+- (sighs)
+- I think if you can be safe, then you should do it.
+- It's what Dad always wanted.
+- Thanks.
+- Good luck.
+- Get some sleep.
+- Oh, no.
+- Chuck?
+- Yeah?
+- I'm cold.
+- Yeah?
+- Hey, hey.
+- (sighs)
+- So that's how I figure we'll infiltrate DARPA headquarters.
+- Once we're in the white room, I'll boot up their system.
+- Sarah, you'll plant the virus using this, and we'll destroy the Intersect, once and for all.
+- That seems a little drastic. .
+- Yeah, well, it is drastic, Casey, but think of all the Intersect is responsible for.
+- My father's death, Volkoff's very existence, Morgan's brain melting, Sarah...
+- Let's just say, it's been more bad than good.
+- When my dad found out I had it, he told me to destroy it, and I wish I had.
+- We'd all be better off.
+- I'm not gonna miss that opportunity again.
+- If this is what you want, Chuck, I'm in.
+- All right, I'm in.
+- I'm on board, obviously.
+- I also want to say that I'm really glad that we're having this third last mission, seeing as how I wasn't a part of the other two, uh...
+- All right, we leave in 20.
+- Hey, buddy, real quick-- you have any extra tranq darts?
+- I used all mine up at tranq dart... practice.
+- Yeah. Uh, actually, Sarah normally keeps an extra clip for me in her bag, so...
+- No dice, buddy.
+- She must have forgotten.
+- Oh, yeah. Don't worry about it.
+- Hey, Casey, Chuck says you got to let me use your tranq darts.
+- What is she doing with these?
+- (whirring and chirping)
+- (g*n)
+- (beeping)
+- (whirring)
+- (beeping, whirring and chirping)
+- (air hissing)
+- (researcher sniffing)
+- What the... ?
+- (beeps)
+- (drill whirring)
+- (sighs)
+- (whirring)
+- Three, two, one.
+- (sighs, inhales through nose)
+- I think we're okay.
+- Let's find the Intersect crew.
+- We won't have long before they wake up.
+- Look at this place.
+- It's incredible! Wow!
+- What's under here?
+- It's like a big silver ghost.
+- (laughs)
+- It's creepy.
+- (whooshing)
+- A cloak of invisibility!
+- Yes!
+- You're a wizard, Harry.
+- Grimes, Grimes, what, are you on a diet?
+- What are, what are you talking about?
+- Well, 'cause you started to disappear in front of my eyes.
+- Get it? Get it? Oh.
+- Hey, the Intersect room is down this hall. Let's go.
+- What? What? Sorry, I couldn't hear you.
+- I'm the headless Grimesman.
+- (laughing): Headless Grimesman.
+- You...
+- It wasn't me. It wasn't me.
+- It was the one-armed man. You find this man.
+- Go. You never saw The Fugitive?
+- Five guards.
+- All right, Team, what's the plan?
+- Let's use some sort of distraction. I think if, uh, you threw like a rock.
+- Sarah?
+- (grunts)
+- (groans) (grunts)
+- (grunts)
+- (grunts) Hey! Oh!
+- (men thudding to floor)
+- Let's go.
+- (whistles) Wow.
+- Quite a woman you got in your hands, huh, buddy?
+- Yeah.
+- (electronic chirping)
+- (keypad beeping)
+- (clacking, whooshing)
+- (door opens)
+- Chuck: All right, just give me a few minutes to get the system up and running.
+- All right, got it.
+- Sarah, you're on.
+- (chirps)
+- Chuck: I'm not sure for how long, though, so upload the virus now.
+- Uploading.
+- It should have gone through by now.
+- Is there something wrong?
+- Just a second.
+- (beeps)
+- Casey: Walker!
+- Drop the g*n.
+- Sarah? Sarah, what are you doing?
+- Drop the g*n.
+- Now, I have the Intersect, and you can't destroy it, and you can't hurt anybody else with it.
+- Baby, what are you talking about?
+- Quinn told me the truth.
+- Quinn's not dead?
+- I know about you.
+- I know what you've done, all of you.
+- I know everything.
+- I don't know what's happening right now, but whatever he told you is a lie.
+- The Intersect is-is...
+- It's damaged your memory or something, because the Sarah that I know would never do something like this.
+- Baby, please.
+- It's me.
+- It's your Chuck.
+- Quinn (over comms): Get the hell out of there, Walker!
+- (groans)
+- Don't!
+- (whooshing)
+- (door clanks shut)
+- (g*n, electrical crackling)
+- (rhythmic beeping)
+- This can't be happening.
+- It doesn't make any sense.
+- (beeping quickens)
+- (rapid beeping)
+- She attached an expl*sive to the door.
+- She could detonate it at any second.
+- No. No, she wouldn't.
+- We gotta take cover.
+- She wouldn't.
+- Quinn, maybe we don't have to do this.
+- They're locked inside.
+- They'll be arrested.
+- That's not your call.
+- (expl*si*n inside building)
+- (coughs) We gotta get out of here before more guards come.
+- What just happened?
+- Sarah, sh-she just...
+- Quinn must've turned her into thinking that she works for him.
+- Now she has exactly what he's been looking for: the last version of the Intersect.
+- No, she doesn't.
+- I switched them out.
+- What the hell? How'd you do that?
+- I saw the glasses in her bag before we left.
+- I didn't want to say anything because I didn't want to believe it.
+- But deep down, I knew it was true.
+- My wife never came home.
+- (tires screech)
+- That was a government facility you just blew up.
+- And that was a man who deserved to die.
+- Did you get the glasses?
+- These are empty.
+- They're fake!
+- That's not possible. I had them on me the whole time.
+- No one got close to you?
+- Chuck. Chuck did, I guess.
+- As I was leaving, he tried to grab me... and, and convince me that our relationship was real.
+- I guess he must've switched them out then.
+- This is exactly what I warned you about, Agent Walker.
+- That's why I pushed the detonator button.
+- This man is a liar; he is a manipulator.
+- (cell phone rings)
+- He's still alive?
+- I made a mistake.
+- And I can promise you I will not make the same mistake again.
+- I will get those glasses back no matter what it takes.
+- She's not picking up.
+- Of course she's not picking up, dude! She's evil!
+- Okay, that's a little unfair.
+- It's the faulty Intersect talking.
+- It's kind of like what happened with me, only much, much worse.
+- Seeing as how she tried to k*ll us.
+- Quinn turned her. We have to consider the fact that maybe she's gone.
+- Hoe can you say that? She's your friend!
+- And she's not gone. Not completely anyway.
+- Oh, yeah? Did his memory come magically back after the Intersect? You know it didn't.
+- All I have to do is remind her of who she really is.
+- You know, look, look, I have, I have the glasses.
+- Even if she doesn't remember me, I know that she wanted these.
+- She tried to k*ll us, Chuck.
+- Can't pretend that everything is as it was.
+- Otherwise, she's gonna succeed next time.
+- And I'm not gonna lose you both.
+- You honestly think that?
+- She's a trained assassin. She knows where we live, she knows where our families live.
+- He's right, Chuck. He's right, okay?
+- What about Ellie and Awesome?
+- She wouldn't.
+- Come on, come on, come on, come on.
+- (ringing)
+- Hey, bro, I'm sorry.
+- I was just trying to get Clara down for a nap. What's up?
+- Are you okay? Is everyone all right?
+- Yeah, of course.
+- (sighs) Thank God.
+- Everyone's at the apartment?
+- Well, no. Ellie just went to grab a cup of coffee with Sarah. Why?
+- I'm glad we're doing this.
+- You've been through so much lately.
+- How are you holding up?
+- Oh, I'm fine, thank you.
+- We're all really worried about you.
+- Chuck's was a wreck.
+- I can imagine.
+- (phone rings)
+- Oh.
+- Mm, speak of the devil.
+- Do you mind? I actually have to talk to him.
+- SARAH (over speaker): Hey, sweetie.
+- So, I see you that you switched out the Intersect glasses.
+- That was a nice move.
+- Should've known I couldn't trust you.
+- I have some moves of my own.
+- We're at the Bergamot Café off Gower.
+- Bring the glasses; come alone.
+- You have 15 minutes.
+- This is crazy, Sarah. Please.
+- Oh, Bartowski, if you try anything...
+- Sarah, what are you doing?
+- I'm gonna put a b*llet between your sister's eyes.
+- Oh, my God.
+- Beckman: I've heard enough. You were right to contact me.
+- Go to that café.
+- But convince Sarah that you've hidden the Intersect glasses somewhere else.
+- I'm moving men into place at Regal Plaza.
+- Get Sarah there.
+- And then what? Have a sn*per take her out?
+- We will do whatever it takes to ensure the safety of your sister while bringing in Agent Walker peacefully.
+- But, Chuck, you know that what happens in that plaza depends entirely on Sarah.
+- Sarah, I think that the Intersect may have damaged...
+- Stop talking. I know you're involved.
+- Chuck: You okay?
+- You got the glasses?
+- I don't have them with me.
+- Wait-wait-wait-wait-wait!
+- Just wait a second, okay?
+- Whatever you think I've done, she didn't do anything. She's innocent.
+- So I will lead you to the glasses, but just you and me, okay?
+- Please, just let her go.
+- I'll follow you in a separate car.
+- She'll come with me.
+- If I see anything suspicious, I...
+- Well, you'd better hope I don't.
+- Okay, okay. Follow me.
+- You drive.
+- Casey: All right, Bartowski, we have eyes on the plaza.
+- Okay, she's following me, but, Casey, she brought Ellie with her.
+- Don't worry, Chuck. I'll make sure Ellie comes out of this without a scratch.
+- Sarah... you don't have to do this.
+- Casey, what if she resists?
+- Hey, this isn't the Sarah you know.
+- You were in my wedding. You were at the hospital when my baby was born. We're family.
+- No, we're not. This was always a mission for me, and today I'm gonna finish it.
+- Chuck, you listen to me.
+- She's not in there anymore.
+- Sarah's gone.
+- No, she's not.
+- My wife is not gone.
+- Bartowski? Chuck!
+- Where are you going? !
+- So once you get the glasses, what then, hmm?
+- What happens to Chuck?
+- Just stay close.
+- Okay, he's right up there ahead.
+- If you could remember, if you were still you, you would want me to do anything I could to save Chuck.
+- You would want this.
+- Want what?
+- Sorry, Sarah.
+- (engine revs)
+- Sarah: Ellie, no!
+- (horn blaring)
+- Ellie.
+- Oh, God, are you okay? I'm okay.
+- What were you thinking?
+- I was thinking about protecting you.
+- Chuck, Sarah's trying to k*ll you.
+- There's something seriously wrong with her, Chuck.
+- That's why I'm taking her somewhere that'll help her remember.
+- (grunts)
+- Quinn: Agent Walker, what's happening?
+- Walker, where are you?
+- What if she doesn't remember?
+- She's further gone than Morgan ever was, Chuck.
+- You need to call the CIA.
+- You need to turn her in.
+- Listen, everyone keeps telling me that Sarah's gone, but she's not. She's right here.
+- Chuck...
+- What if it was Devon?
+- Hey, where are you? Are you okay?
+- I'm fine, I'm fine, but Chuck isn't.
+- He just, he just took off with Sarah.
+- Damn it, Bartowski.
+- John, I know my little brother, and I know where he would take her.
+- Hi.
+- Look, I know you don't remember me.
+- I thought maybe you'd remember this, our dream home... the one you always told me that you wanted.
+- Our relationship was a cover, Bartowski.
+- Always has been.
+- You're just an assignment.
+- No, I was an assignment, and then you fell in love with me.
+- And I know that sounds crazy, and if I didn't know any better, I-I'd say it's crazy, too.
+- But the fact remains, you fell for me, Sarah, you did.
+- My job is too make you think that I feel something.
+- That's what I do best; I lie.
+- Actually, you're not as good a liar as you think you are.
+- It's true, okay?
+- Our first kiss, not our, not our first cover kiss, but our first, our first real kiss...
+- was when we were trying to defuse a b*mb and we we thought we were gonna die, and I closed my eyes and...
+- I felt you grab me and kiss me.
+- You kissed me.
+- And then there was a lot of pretending that it didn't happen and awkward back-and-forth and even dating other people, but one day, one day when I was sure...  that you could never love a nerd like me, you came over... and I asked you if you loved me.
+- Sarah, do you love me?
+- And you, Sarah Walker... said yes.
+- And when I asked you to marry me, you didn't even have to say yes because we both knew, we both knew that we'd spend the rest of our lives together.
+- So, please remember this house and the red door and the white picket fence and the family that we were going to raise together and remember me.
+- Because if you remember me... then you'd remember... that a nerdy guy like me who works at the Buy More... could make you happy.
+- So I'm going to give you a choice right here, right now.
+- It's up to you.
+- You can either take a chance on me, and we can start over...
+- (sniffling)
+- ... or you can take these glasses that you came for and never see me again.
+- (sighs)
+- This is real.
+- You really love me?
+- With all of my heart.
+- I'm sorry, I did my job too well.
+- But I have a mission to finish, and I need those glasses.
+- No, you can't!
+- Ow!
+- Give them to me!
+- Ahh!
+- (glass shattering)
+- Why won't you fight back?
+- I'm not gonna fight you.
+- (both grunting)
+- I'm never gonna hurt you.
+- Sarah, you're my wife!
+- (groans)
+- (grunts)
+- (Chuck panting)
+- (straining)
+- (panting)
+- (g*n cocking)
+- (panting)
+- You can k*ll me.
+- I will never hurt you.
+- I wrote that.
+- Yeah, you did.
+- CHUCK (distorted, echoing): Honey, you know we don't...
+- Sarah: I know... but we will... one day, this will all be ours.
+- And when it is, I would like to always remember this moment.
+- (voice echoing)
+- Very good work, Agent Walker.
+- The glasses?
+- You've lied to her!
+- You used her!
+- You're right.
+- He's right, I'm not CIA.
+- And, uh, I suppose I could explain it all to you, but honestly, you're not worth the time.
+- Quinn: Good-bye, Sarah.
+- Chuck: No!
+- (b*ll*ts ricocheting)
+- Oh, my God, are you okay?
+- (sirens wailing in distance)
+- I'm wearing a vest.
+- They're coming for you, Sarah.
+- (sirens grow louder)
+- (gasping): Run.
+- But... Run!
+- (tires screeching, men running to door)
+- (gasping groan)
+- (wheezing)
+- He's here.
+- Chuck? Oh, my God. Chuck.
+- Hi.
+- Where's Sarah?
+- She's gone.
+- Sarah's gone.
+- You're lucky the b*llet only hit your vest, bro.
+- Yes, it's the best news I've heard all day.
+- (groaning)
+- All right, all right, I'll get you something for the pain.
+- Thank you.
+- I lost her, Ellie.
+- For a split second, it felt like she was starting to remember, but she's gone.
+- Why don't you get some sleep.
+- I'll be right here when you wake up.
+- Come on.
+- (soft grunt)
+- Thanks.
+- Don't ever leave me.
+- Never.
+- Figured I'd find you here.
+- You can put the kn*fe down; I'm not here to fight.
+- What do you remember about me?
+- Your reputation, mostly.
+- Unfriendly, unforgiving and... unquestioning about your orders.
+- That's funny.
+- When we met, people said the same thing about you.
+- Probably why we never got along, huh?
+- Well, if we didn't get along, then why are you here?
+- I guess Bartowski's made us both a little soft.
+- Beckman's got a new job for me, but... these past five years, we changed, you know.
+- We became friends.
+- Take care of yourself, Walker.
+- (door opens)
+- (door closes)
+- SARAH (on video): Day One.
+- My mission is simple: find out what he knows, gain his trust, and monitor his actions until the agency can decide what to do with him.
+- Day 21.
+- Chuck came over to my hotel room today and brought me a pizza.
+- Vegetarian, no olives.
+- I think he's making it his mission to get to know me.
+- It's sweet.
+- Day 49.
+- Chuck broke up with me today.
+- Well, uh, Fake... Fake broke up with me, technically.
+- Day 56.
+- Chuck I were defusing a b*mb today, and there was a moment where we were sure we were going to die.
+- He closed his eyes, and...
+- I kissed him.
+- I... kissed him.
+- Day 564.
+- Things are calm for once.
+- No missions, nothing... nothing really to report, except I still find myself sitting here, talking to myself, because... because I love him.
+- I love Chuck Bartowski, and I don't know what to do about it.
+- (sighs)
+- You sure you don't want to spend the night?
+- You're more than welcome.
+- I'm gonna have to go home eventually.
+- Tonight is as good a night as any, I suppose.
+- Okay.
+- Well, I'm coming over bright and early, and I'm making you pancakes.
+- Night, sis.
+- Love you.
+- Love you, too.
+- Sarah: Chuck?
+- Sarah!
+- I-I just wanted to tell you that I believe you.
+- I believe everything that you told me about us.
+- But... the truth is, Chuck, I...
+- I don't feel it.
+- Everything that you told me about us and our story--
+- I just... I don't feel it.
+- Right.
+- (wry laugh)
+- Right, of course, I...
+- I don't know what I was expecting, you know?
+- So, what are you doing here, then?
+- Well, I wanted to say sorry for everything that happened today.
+- But, uh, most of all, I wanted to say good-bye.
+- Where are you going?
+- Quinn took away my life, and I have to...
+- Well, I have to go find him.
+- Bye.
+- Bye.

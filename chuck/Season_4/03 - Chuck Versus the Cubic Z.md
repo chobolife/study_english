@@ -1,0 +1,742 @@
+# Chuck Versus the Cubic Z
+
+- Chuck: I'm Chuck. Here's a couple things you might need to know, or forgot.
+- We spared no expense re-creating the Buy More.
+- It's now a full-fledged CIA-NSA substation.
+- New Buy More rules.
+- Slides, trapdoors and the new superspy/Nerd Herder, Greta?
+- Be still, my heart.
+- I think you have earned this. The keys to the Buy More.
+- I'm making you store manager, Mr. Grimes.
+- Chuck: Maybe Awesome's right.
+- Marriage, baby...
+- Who knows? Maybe we're next.
+- Man: When's food? I'm hungry.
+- Shut it, convict.
+- You're talking my ear off.
+- [ENGINE SPUTTERING]
+- We can get 10 miles, max, but no way we'll make Yucca Mountain.
+- We're being redirected. New top-secret facility.
+- We're going where?
+- MORGAN [OVER PA]: Attention. Your patience is appreciated.
+- Release of "Spy Attack" is less than two hours away.
+- Somebody restack these DVD players. And I need a lot more blank CDs.
+- No. Get these consoles out of there. Guys, I need a lane going through here.
+- All right? I vlogged about listening k*ll last night.
+- Did anybody watch? No.
+- And it shows.
+- I don't think you're taking this seriously.
+- Oh, I'm serious. I'm De Niro serious.
+- Listen, the Buy More is CIA... and as the manager, I am the front line.
+- Things don't run smoothly, it's a security issue.
+- I need a sidearm. A Desert Eagle or something big.
+- You're beyond De Niro. This is Russell Crowe serious.
+- Okay, listen. Biggest game of the year drops tonight.
+- Fans have been camped out for a week.
+- A week without consoles and simulated k*ll.
+- You can cut their bloodlust with a kn*fe.
+- Weren't you camped out last year?
+- Yeah. But that means I know what they're thinking.
+- And they expect a full-blown, hi-tech launch presentation.
+- All right, look, with just me at the helm... this is it, dude, my managerial Bushido test.
+- And I'm ready. I want it. And I don't need any help.
+- But if something was to go down, there is a CIA presence, John Casey.
+- Oh, and the new Greta.
+- The new Greta?
+- Hello, Greta.
+- We're all set for the game launch.
+- Perfect.
+- Any further tasks?
+- Uh...
+- Filter. Filter.
+- Nope. Nope. Carry on. Well done.
+- Lovely to meet you.
+- [WHISPERS] Yes.
+- [WHISPERS] What?
+- [IN NORMAL VOICE] Where was I? I'm the manager.
+- Manager, national security. All that. Yada yada.
+- As much as I wish I could stay and see how this plays out... I have to catch a flight.
+- Uh, you don't say?
+- Private jet to Monaco.
+- Wow.
+- Good for you. A whole week chasing some lazy oligarch... down the French Riviera with your stunning girlfriend.
+- Did I mention that too?
+- It's gonna be the mission...
+- Of a lifetime. I think you mentioned that as well.
+- But hold on one second here.
+- What is with the unbridled enthusiasm? Where's the Chuck relationship neurosis?
+- Where's the handwringing and the mishegas?
+- Well, I'd never speak for Sarah, but if forced to... l'd say that she's finally starting to settle down with me.
+- Wow.
+- Let's pause. Be very still. You are in a happy relationship... l'm peaking professionally. Let's savor it.
+- [SIGHS]
+- Smells like victory.
+- [GRUNTING]
+- [PANTING]
+- What's eating you, Walker?
+- Fighting like a pit bull, huh?
+- Has it changed anything... finding out you had a kid?
+- What?
+- They say priorities change.
+- Priorities are the same: God, country, duty, Corps.
+- [GRUNTING]
+- All right. Yeah. Sometimes I think about calling... but Alex has her own life.
+- I still don't know what my role is. What's with the interrogation?
+- Chuck let something slip last night about the future.
+- [GRUNTS]
+- Oh, yeah? What?
+- Kids? With you?
+- Huh. Bartowski's the king of cool, huh?
+- [GRUNTING]
+- I'm a spy.
+- I can't even process the idea of having kids.
+- I need to say something to him before he runs away with the idea.
+- Probably already measuring for drapes.
+- We're going on this trip to Monaco. He's gonna know something's wrong.
+- He's gonna keep digging at you too, till you give it up... then spend the rest of the trip moping.
+- [MONITOR BEEPS]
+- [GRUNTING]
+- Harness your fury, Agent Walker.
+- Your mission to Monaco with Agent Bartowski has been canceled.
+- Oh. Oh.
+- Subtle.
+- Beckman: A prisoner transport... headed to our Yucca Mountain supermax was redirected to Castle.
+- The prisoners are ours... until the transport is repaired or a chopper frees up.
+- Whoa, wait, wait, wait, what? Canceled? Monaco canceled?
+- It was supposed to be the mission...
+- Of a lifetime. I know.
+- But there is a silver lining.
+- We get to stay in and have a quiet night and, um... And chat.
+- I don't know if I'd call that lining silver... as much as copper or zinc or manganese.
+- We were supposed to be in St. -Tropez... as Lord and Lady Carmichael, all expenses...
+- Unless there's something we needed to talk about.
+- Lock and load, Chuck.
+- Lock and...
+- Sarah, hang on. This chat.
+- [g*n COCKS]
+- I mean, are we talking about like a chit-chat... or, you know, an FDR fireside chat?
+- Everything is fine. I just thought a night in might be nice.
+- A night in at the Buy More.
+- Well, there's nothing I love more than a night together with you.
+- [ALARM BUZZES]
+- Gentlemen.
+- Sir.
+- Carmichael.
+- Aah!
+- Guard: Back off him!
+- Hugo: Yeah.
+- [IN STRAINED VOICE] Yeah. Nice, quiet evening.
+- At least it can't get any worse.
+- Heather: Well, well. Jenny Burton.
+- My old high school punching bag.
+- Love your dungeon. Can't wait to catch up.
+- [PEOPLE SPEAKING INDISTINCTLY]
+- Morgan: Guys, 40 minutes to the game launch.
+- Time to move some units.
+- Now, in the meantime, please, do me a favor, fix this.
+- You know, shower, shave, toothpaste, hair gel, anything.
+- Okay? Just try not to embarrass me.
+- Ha.
+- You talk like you got a lot of brass in your pants.
+- For a dead man.
+- He's here.
+- Who?
+- Lester: The man whose job you stole.
+- Big Mike.
+- Oopsies.
+- Ugh.
+- Move.
+- I knew this day would come.
+- I avoided my mother's house so I didn't have to see him.
+- But I can handle this.
+- I can handle anything.
+- I am a cobra.
+- Son, I'm bursting.
+- With pride, seeing you in that suit.
+- I never wanted anyone else to wear it.
+- But if it's family, it's okay by me.
+- So, Mr. Panzer. Hugo.
+- You on a new diet? New workout?
+- Regimen?
+- You're looking pretty fit.
+- Heather: Can I just... ?
+- No.
+- Just one thing.
+- Not interested.
+- Well, you're acting awful bitchy, Burton.
+- Or whatever it is you go by.
+- Sarah Walker.
+- And don't forget it.
+- [DOOR BEEPS]
+- Guard: All set.
+- You done with that newspaper?
+- Look who thinks he can read.
+- Chuck: Sudoku fan, huh?
+- Go ahead.
+- Well, enjoy your new accommodations.
+- [DOOR BEEPS]
+- Mike: There's no room in my heart for anger.
+- Love, though? I'm full up.
+- I spent the past few months out on the sea... hunted with my bow, looking for my...
+- My inner Big Mike, my happiness.
+- I discovered the source of it.
+- Good.
+- Your mama.
+- Ha, ha.
+- And I wanna do right by her.
+- I want to make her an honest woman.
+- Let's stop talking. All right?
+- It was good seeing you. I'm really glad you came by.
+- And, you know, we'll... What is that?
+- Mike: That's a full half-karat... pear-cut cubic zirconium.
+- I came by here to ask your permission... to marry Bologna Garcia Bougainvillea Grimes.
+- Oh, wow.
+- Think on it. Give it back to me when you think I'm worthy of your mother's love.
+- Keep it on your person. I don't trust the scoundrels working the store.
+- Nor should you.
+- But on that note, actually, I should probably get back to work.
+- You and me both. Ha, ha. Know what I mean?
+- I intend to support your mama as best I can.
+- But, man to man, I'm between gigs.
+- Hear there's a game launch.
+- You can always use an extra hand there.
+- Especially when it's a close relative asking?
+- [PHONE RINGING]
+- Yeah, I... It's...
+- I won't let you down, son... Ah!
+- Boss.
+- Hey, ha, ha. All right.
+- Ha-ha-ha.
+- Grimes. Manager. Speak.
+- Mm-hm.
+- What? What do you mean we're only getting six copies of "Spy Attack"?
+- I got 300 customers waiting for this ga...
+- Yes, I'll hold.
+- So chat time?
+- Sure.
+- Here?
+- Yeah, okay.
+- Look, it's not a big deal.
+- I mean, well, it is.
+- Maybe.
+- It is a big deal? Sarah, what is?
+- I love you, Chuck, that's the first thing.
+- I love being with you.
+- Ditto, right back at you.
+- It's just, um... Can we please... just for a second... ?
+- Did you just flash?
+- Heather Chandler is in the Intersect 2. 0.
+- She was connected to Frost.
+- I think she knows my mom.
+- I have to talk to her now. Transport will be here soon.
+- You want Beckman to know we're looking for your mom?
+- We don't have the authority to interrogate Chandler.
+- We don't have the authority to use the closet... for what it is we use it for, but we do it anyway.
+- She knows my mom.
+- Fine, but you can't just whip questions out... to somebody like Heather Chandler. It's not gonna work.
+- This needs to be a real interrogation.
+- Good Cop, Bad Cop.
+- How about Tough Cop, Silent Cop?
+- Okey-dokey. Which one am I? Right.
+- Right, got it. Oh, hey, uh, real quick, though.
+- Time machine. In case things go south... use "time machine" in a sentence. That'll be code to back off and regroup.
+- Just remember, Tough Cop, Silent Cop.
+- Of course.
+- [DOOR BEEPS]
+- We need information on an arms deal you were involved in... with Alexei Volkoff, and an agent whose code name is Frost.
+- And coming my way is?
+- Optimal placement at Yucca Mountain and favorable parole review.
+- How about a unicorn too?
+- I'm as likely to get that as the crap you just offered up.
+- Sarcasm is the lowest form...
+- Sorry.
+- Heather: You wanna offer me something?
+- Witness protection.
+- For that, I'll spew on Volkoff and Frosty the Snow Bitch.
+- But we both know that's handled by WitSec, who I'd be happy to talk with.
+- Not some man-boy and a bottle blond with a daddy complex.
+- You got a lot of nerve, talking to her like that.
+- Burton can handle a little ribbing from a pal.
+- You're her partner, Chuck, not her boyfriend.
+- Wait.
+- You two are actually together?
+- Us? We? No.
+- We're not.
+- Oh, get out.
+- You kids are an item. He's not just your partner.
+- Isn't spy sex great?
+- Heather, we were discussing...
+- Heather: So how deep are you? Shacking up?
+- Doing the dog thing first or straight to babies?
+- One? Five?
+- Time machine.
+- Time machine? Really?
+- Right... ? Okay.
+- When I said use it in a sentence, I was thinking more along the lines of: "You wanna relive your past? Then get a time machine. "
+- We need to take this slow.
+- Sorry I lost it in there.
+- If you let her get under your skin... about living together and the other thing she mentioned... we're not gonna get anywhere.
+- What other thing?
+- Remember, tough, silent. Do not let her get under your skin.
+- She's not. She won't... What? Hey.
+- Are you okay?
+- Guard: Food, Panzer.
+- [GUARD GRUNTING]
+- We can contact WitSec.
+- When did you start dating for reals?
+- But first we need a good-faith offering.
+- You know why she won't talk about this, Chuck? It makes her edgy.
+- I get it. You met my so-called husband/con v*ctim, right?
+- I toyed with normal life... played happy homemaker a while.
+- And as soon as he got serious, I robbed him blind.
+- My advice? Pull the ripcord before you get fried.
+- Only thing getting pulled is a rope...
+- Look at my time machine. Appointment.
+- [CROWD CHATTERING]
+- Morgan: I'm gonna handle this.
+- I can handle multiple stressors at once.
+- Angry mob? Of course.
+- A lifetime of calling Big Mike "Dad"? No.
+- I really do not like that woman.
+- Yeah, that's clear.
+- What's not is why this topic of you and me is such a hot button.
+- Uh, we have a problem.
+- Is that what you wanted to chat about?
+- I thought we were en fuego.
+- No, we have a serious problem.
+- [SHOUTING]
+- If he's trying to escape, why doesn't he run?
+- This might be about me.
+- I kicked his ass on a plane once.
+- Hey, Chandler, Mr. Volkoff says hello.
+- You send her out, no one else dies.
+- Don't open that door.
+- What is this about Volkoff?
+- I got a transfer to Yucca Mountain, out of the blue.
+- In the transport, that monster is in the cage.
+- Volkoff engineered the transfer?
+- He's capable of it.
+- Why would he want to? What did you do?
+- Nothing. He's being petty.
+- I blew a half-a-billion-dollar deal.
+- The F-22 plans were for him. I guess he's mad.
+- Come on, Casey. Pick up.
+- Morgan: Come on, Casey. Real fast, you know?
+- Just inform the anxious horde... the distributor made an error and there's a delay in delivery.
+- [PHONE RINGING]
+- Two weeks.
+- Sounds like a job for the manager.
+- No games.
+- Casey.
+- A prisoner has escaped in Castle... and we're trapped in Cell 6.
+- On my way.
+- [RINGS]
+- Colonel, I know I'm supposed to be upstairs.
+- Doc Bollywood was staring down my shirt... and those losers in line are freaking me out.
+- Casey: Yeah. Just get to the cell block, neutralize the prisoner.
+- [GRUNTING]
+- Casey: Greta. Greta, what's happening?
+- She's indisposed.
+- Chuck: Uh... Uh...
+- Panzer's on the computer now. I can't see what he's doing.
+- Buying patio umbrellas. He's trying to get to us, you dope.
+- Boy, you're a charmer.
+- [ALARM WAILING]
+- You're gonna have to override the Castle lockdown. Can't get in.
+- I didn't put the system into lockdown. I just locked the door to Cell 6.
+- Whoa, whoa, whoa, Panzer locked us in? This is not good, people, okay?
+- I've been locked in with this guy before. I handled it fine, but he got very agitated.
+- Uh, he's using the mainframe to open each cell door.
+- There's a fire override. I'm gonna have to access it. Hold on.
+- Come on, come on.
+- Door 2 is open.
+- Computer: Hello, Colonel Casey.
+- Welcome to the new Castle override mainframe.
+- How can I help?
+- You're kidding.
+- Computer: I'm sorry. Could you repeat that?
+- And Door 3.
+- Location of fire emergency override.
+- Computer: Did you say, "Hire nursery overhige"?
+- Why would I? It's not even a real word.
+- Computer: I'm sorry, I didn't get that.
+- [DOOR OPENS]
+- Chuck: Door 5.
+- [g*n COCKS]
+- Fire emergency override. Where is it? Or you die.
+- Computer: The fire emergency override is behind my monitor.
+- Just press control, escape.
+- I didn't get that.
+- Thank you, Casey.
+- Okay, let's go. Move out.
+- You go first, scare the rats.
+- You go, so I can keep an eye on you.
+- Sarah, you, me, go, now. Come on.
+- Jeff: We're totally screwed.
+- No. No. This is a positive, okay? Today, we get to be challenged.
+- I'm gonna make a phone call and get us the games we were promised.
+- Now, you will handle the launch presentation.
+- At midnight, we settle the crowd, you will read from the script.
+- And you'll read from the script slowly.
+- You don't just drop a role in a man's lap and say, "Go, seal, clap for your fish. "
+- I must make this my own... if I am to undertake it.
+- Whatever.
+- No big deal. I can handle this. I can handle multiple stressors.
+- Ugh.
+- What monkey flung this? No.
+- Chuck: You know, I was thinking... about how some of my favorite movies wind up in air ducts.
+- Like Aliens and Die Hard.
+- Although, generally, it doesn't wind up well for the duct-crawlers.
+- Thanks for that, movie dork.
+- I bet you have, like, a Tron poster.
+- Yeah, yeah, yeah. Keep crawling, sister.
+- [LAUGHS]
+- [ALARM WAILING]
+- Walker, where are you?
+- We're just passing Coupling Duct 5A.
+- [WHISPERS] Come on, come on, come on.
+- Ten feet, turn left, into the junction room.
+- Heading there to unlock it.
+- Any sign of Panzer?
+- Not in Castle. But he's after you... so watch your back.
+- That's fantastic.
+- You hear that, Chuck? Stay alert. Don't distract yourself staring at my tail.
+- Looking at your... ? No, no, thank you, no.
+- I'm kidding. Jenny-Sarah, how did you end up with such a goofball?
+- Masculine goofball, thank you very much.
+- Oh, you're sweet. I did the sweet-guy thing too.
+- I know how it is.
+- Mm.
+- Sorry, foot slipped.
+- Whoo, touchy. I must be hitting home.
+- Of course I am.
+- Sarah: We're almost at the junction room.
+- Crowd: Three, two, one, zero!
+- Man: Yeah!
+- Nice and orderly.
+- You are in for the night of your lives.
+- Ugh.
+- Don't get your hopes up. There's not enough games.
+- Don't say that. Everything's fine. Everything is great. Go get your...
+- Listen, stretch it out just a bit longer. We are almost out of the woods.
+- Easy, sister. We've got this covered.
+- Okay.
+- We've got this covered.
+- [PHONE RINGS]
+- Talk to me here. Oh, yes. Here we go.
+- Jerry, what's going on? What did you score me?
+- How many you got? What do you got? How many games? Yeah. Yeah.
+- Two! Two games. That's... I... That's not enough, Jerry.
+- I got to have more games, brother. Hello? Jerry? Jerry? Oh.
+- [PHONE BEEPS]
+- Son, your crowd is surly... and you got no product.
+- I don't wanna tell you how to do your business, but the sheep need a shepherd.
+- Yeah. They sure do. Sheep, huh? Those sweet little sheep.
+- [CHATTERING]
+- [GRUNTING]
+- Okay. Casey's gonna have to unlock this for us.
+- Till then...
+- I'll finish what I was saying.
+- Running your mouth isn't gonna get you witness protection.
+- You were never gonna call Witness Protection, so let's just call this payback.
+- Chuck: What do you mean, "payback"?
+- I got hitched to a dork just like you.
+- Sweet, dumb... loyal, a mutt. And that was attractive.
+- I thought, "This schmuck is gonna make me a better person. "
+- And for 10 minutes, I convinced myself I didn't mind movie night or dinner at 6.
+- Then my true nature kicked in.
+- And the reason this conversation has Burton so upset... is because it's doing the same for her.
+- We're the same.
+- Not gonna dignify this.
+- Right. Yeah. Because we are professionals.
+- We cannot hear a word you are saying.
+- She's all spy.
+- White weddings, rug rats in a minivan? It's not in our wiring.
+- Hey, hey, hey.
+- Heather, guess what. You talk too much.
+- Burton, be kind to him. He's too sick in love to see the truth.
+- Just remember, she keeps secrets for a living.
+- Why are we saving your life again?
+- Because of my connection with Frost. And my time with her in Burma.
+- Casey?
+- Heather: I'm right and she can't face it.
+- That's why she's upset.
+- She's not upset, Heather. I know what she looks like when she's upset.
+- And it's more...
+- Sarah: Look out! Oh!
+- [GRUNTING]
+- [YELLING]
+- Chuck: Let go of me!
+- Hugo: Unh!
+- Help me.
+- Sorry, kitten. You're on your own.
+- You know you'd do the same.
+- Hugo: You're coming down with me.
+- Sarah: Unh!
+- [GRUNTING]
+- No, no, no. Not the tie, not the tie.
+- [GRUNTING]
+- Hugo: Unh! Come here.
+- Chuck: Uh!
+- Chuck: Sarah!
+- Hugo: Unh!
+- Chuck: Sarah, help me!
+- Hugo: Come on, you coward.
+- Chuck: Sarah! Unh!
+- Carmichael!
+- [GRUNTING]
+- Aah! Sarah, help me!
+- Sarah: Chuck! Come on.
+- Up. Up.
+- [PANTING]
+- That felt good.
+- You know... they wanted me to read you this trash.
+- But you deserve better. We, as a people, deserve better.
+- Crowd: Yeah!
+- So... brace yourselves for a free-form, no-holds-barred poetry slam.
+- [CROWD GROANS]
+- And a kung fu demonstration of moves in the game "Spy Attack. "
+- Can we just buy the dumb game?
+- Crowd: Yeah!
+- No... you cannot.
+- [CROWD GROANS]
+- Sarah: How far down did he go?
+- Could you see the bottom of the duct?
+- Chuck: It was too dark.
+- And I was kind of concentrating on his fists flying at me.
+- Heather: You're a real tough guy, Chuck.
+- Chuck: Hey, this morning... I was going to Monte Carlo.
+- But instead, I spent the night as a canned good.
+- It's funny the way life can suck.
+- [g*n COCKS]
+- Move and you die, tunnel rat.
+- All right, I got him.
+- Transport on the roof in two minutes.
+- About Frost, last chance to deal.
+- Heather: You're just a dog with a bone.
+- No dice.
+- Good luck. I'm rooting for you.
+- But I'm certainly not betting on you.
+- Shut it.
+- You're not letting Heather get to you, are you?
+- No, of course not. I'm all good.
+- I know your all-goods, and that was not a real all-good.
+- It was a fake all-good.
+- I'm just curious why what she said got under your skin like that.
+- Well, once we get rid of these guys, we will have our chat.
+- Ah.
+- What are you smiling at?
+- This doesn't smell right.
+- They're not CIA. They're Volkoff's men.
+- Down. Down, down, down!
+- Volkoff must have intercepted our transport.
+- [GRUNTS]
+- Chuck, we'll handle the g*n.
+- Go after the prisoner.
+- Ooh!
+- [g*n]
+- Go for the exit. I got you covered.
+- Agh!
+- Casey!
+- [GROANING]
+- I'm all right. Unh!
+- Your man's wounded, pinned down.
+- Give us Chandler and you'll both live.
+- Hand me over.
+- Save your ass.
+- We both know what you're gonna do, so just do it.
+- You kept me alive for information, but it's not worth dying over.
+- I know you, Walker. I know what you're going to do.
+- You don't know who I am, what I want, or the thoughts in my head.
+- We have nothing in common.
+- On the count of three, two, one.
+- [GRUNTS]
+- Oof!
+- That was my last b*llet.
+- [SIGHS]
+- The flea-ridden masses infest my house Do I cry? Perchance to die?
+- No, McFly This game launch will not be televised Enough. Just give us the game.
+- Man: Yeah.
+- We want the game!
+- ALL [CHANTING]: We want the game! We want the game!
+- We want the game! We want the game! We want the game!
+- Jeff: Guys!
+- Guys!
+- The games didn't show.
+- Man: What?
+- Shut up... and let the poetry slam you.
+- Thank you.
+- [ALL SHOUTING]
+- Freeze, Panzer.
+- Look awful shaky with that sh**t, boy.
+- How's your aim in tight quarters?
+- Perfect.
+- Because that's the gas line.
+- Hit that instead of me, this whole building goes.
+- So it is. But that doesn't matter, because you're trapped.
+- [CREAKING]
+- I don't think these air ducts were meant to hold 400 pounds.
+- And since most of that is you, I need you to back up now.
+- You're losing them, son. They're going to rampage.
+- Right. Right. Hey! Hey! No!
+- No! Halt! Halt!
+- Halt! Everybody just go... Whoa!
+- [ALL SCREAMING INDISTINCTLY]
+- Oh, no! Oh, no! Oh, Morgan. Morgan!
+- Back up.
+- You back up.
+- You back up.
+- [SHOUTING]
+- [BOTH GRUNTING]
+- The engagement ring!
+- No, no, no.
+- Ah.
+- [GRUNTING]
+- Look, this is a call to arms.
+- I brought my black case for such an occasion.
+- It's in my car. Go get it for me.
+- I don't work for you.
+- Hey.
+- I do work for you.
+- Ha, ha.
+- [LAUGHS]
+- Get on your feet, son.
+- No, I can't... I can't... The, uh...
+- There's a riot going on.
+- Right. Right. I need to tell you.
+- Your ring, it fell out of my pocket.
+- I looked everywhere. I can't find it. I screwed up. I need your help.
+- You find the ring, I'll take care of the riot.
+- Yes, sir.
+- Thank you.
+- Yeah!
+- Excuse me, fools!
+- [SHOUTS] I said, excuse me, fools!
+- [GRUNTING]
+- [IN STRAINED VOICE] That's not fair.
+- What is this madness?
+- Yes... we promised something we couldn't deliver.
+- Yes, had we delivered, you would have been overcharged.
+- Is that any reason to behave like this?
+- You got to ditch your lives... and spend a full week with your dorky friends... talking video games... which no sane person would have ever done with you.
+- And because we came up a little short on supply... there's a riot?
+- Hell, no.
+- This ain't no video game.
+- It's not.
+- This is real life.
+- Lester: It's the truth of life.
+- Mike: This violence ends... now.
+- Not later.
+- Peacefully.
+- With peace.
+- Quietly.
+- With a whisper.
+- All civil-like.
+- Lester: Like you're civilians.
+- Hugo: Move it. Move it. Get out of the way.
+- Excuse me, son.
+- Move.
+- Mike: You best stop.
+- Or I will come down there and make an example of you.
+- Try and stop me, fat man.
+- What? Who's this... ?
+- Give me the Disco Stick.
+- That boy is family.
+- What the... ?
+- Mike: And my name... is Mike.
+- [SHOUTING]
+- [ELECTRICITY CRACKLING]
+- [CROWD GASPS]
+- [GROANS]
+- Big Mike.
+- Mr. Big Mike.
+- All right?
+- Well done.
+- Another Purple Heart, Casey.
+- Unh.
+- I'm fine.
+- Gonna be laid up for a while.
+- Paid vacation.
+- Ugh.
+- Can't stand the silence.
+- Well, maybe you could use the time to meet up with Alex.
+- Figure out what your role is in her life.
+- Hmm.
+- You should do the same for Bartowski.
+- So we can get back to normal around here, hmm?
+- Whatever that means.
+- Operation Beacon.
+- That's where I met Frost.
+- What's Beacon?
+- It was an underground arms pipeline, but I lit out before it was active.
+- Frost was always around Volkoff.
+- Doing what exactly? What does that mean?
+- I couldn't get the full gist of their relationship, but she was there.
+- Maybe she had to be.
+- That's all I know.
+- Sarah: Hugo's ready to roll.
+- Chuck: Let's go.
+- Thank you.
+- Maybe you're right. Maybe we aren't alike at all.
+- Maybe you are capable of love, affection and vulnerability.
+- I hope so.
+- Chuck seems like a really nice guy.
+- And he's really in love.
+- Are you?
+- Goodbye, Heather.
+- I looked everywhere, Big Mike.
+- I couldn't find your ring. But I did find this.
+- Don't give me this because you think I'm upset.
+- The assistant manager's vest is a sacred vestment.
+- No, I know. Believe me. But you're the best.
+- You can handle anything.
+- I would be proud to have you as assistant manager.
+- Although I understand if you couldn't.
+- You haven't quite forgiven me yet.
+- I want you to know I'm sorry about the ring.
+- Marriage isn't about a ring.
+- It's a lifelong commitment of compassion and understanding... especially for your spouse's idiot relations.
+- All is forgiven.
+- Here. This is yours.
+- And, for what it's worth, you have my permission... to marry my mom.
+- Son.
+- Unh...
+- So Beacon.
+- That's, uh, a place to start.
+- Bringing us to the long-delayed... and much-anticipated chat.
+- The other night, when you repeated what Awesome said... about us being next having kids... it scared me.
+- Okay.
+- And I wanted to tell you earlier... but, um, I didn't. And I've been thinking about it all day long.
+- And Heather kept poking the topic with a needle.
+- You're nothing like her.
+- For a long time, I was exactly like her.
+- It took a night in the guts of the building... to realize I'm not anymore.
+- At all.
+- And I don't wanna be.
+- But I do need to take things slow.
+- I'm not ready for parenthood either.
+- One day, hopefully.
+- But not now. Not yet, anyway.
+- Who are we kidding? I'm barely on solid food myself, so...
+- [CHUCKLES]
+- Okay.
+- So, slow.
+- Super slow. Really slow.
+- Let's start small.
+- You tell me ready or not ready.
+- Okay.
+- We're on a trip, one of us forgets our toothbrush.
+- Do we share?
+- I am ready to share your toothbrush.
+- Oh, oh, using the bathroom, door open or shut?
+- Door shut. Always.
+- Preferably with the sink running or the radio on.
+- Sarah: Yes.
+- Chuck: Yeah.
+- Uh...
+- Oh! Whoa!
+- Whoa! Uh...
+- Wow.
+- Wow, wow.
+- Uh... Ahem.
+- Oh.

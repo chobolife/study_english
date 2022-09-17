@@ -1,0 +1,831 @@
+# Chuck Versus the Zoom
+
+- Hi I'm Chuck. Here are a few things that you might need to know.
+- You really think you've been fighting evil...
+- ... doing good?
+- You think it was all a coincidence?
+- The Intersect, FULCRUM, the Ring, Shaw, Agent X?
+- You're just a pawn, you always were.
+- No, no, n-n-n-no, don't take the Intersect.
+- You're fired, Chuck.
+- No!
+- Operation Bartowski is done.
+- What if we went into business for ourselves?
+- Sarah: Hartley turned over all of Volkoff's assets to us.
+- Our first purchase was the Buy More and everything below it.
+- Freelance spies.
+- Under the radar, above the law.
+- Oh, man, this is gonna be so much fun.
+- Nice.
+- Guys... I know kung fu.
+- So... ocean view, gulls flying by?
+- Think this is something you could get used to?
+- Well, I-I think I'm more of a toes-in-the-sand kind of girl.
+- I like the idea of waking up in the morning and rolling out onto the beach.
+- Okay, well, then maybe we can find a nice little place on the sand someday if we, you know...
+- Survive this?
+- Yeah.
+- Hi.
+- How you doing today?
+- No sh**ting.
+- I don't want the bl*od and the mess on the pool deck.
+- Make them jump.
+- Think we can survive this?
+- I don't think so, honey.
+- Honey?
+- You talk like an old married couple.
+- Well, actually...
+- No, no, I'm sorry, I don't care.
+- We just came for the vase.
+- It belongs to our client.
+- You let us have it and maybe we'll let you live.
+- Sarah: You've fallen into our trap.
+- You see, we work with a master spy, somebody who you can't see coming.
+- In fact, right now, he's probably...
+- (g*n cocks)
+- I want it noted that I took out six of their guys.
+- Henchman: He was taking this.
+- You thieves have expensive tastes.
+- This vase is worth $6 million.
+- It's times like these, I wish I still had the Intersect.
+- Well, you don't.
+- What now, Moriarty?
+- k*ll them.
+- Wait, wait, wait, wait, wait, wait wait!
+- We have another master spy.
+- (groans)
+- (beeps)
+- (beeping)
+- Okay, yes, yes, first mission as the Intersect.
+- You can do this.
+- They need you, Morgan, so get in there, okay, and you be a man.
+- No, be more than a man.
+- Start with the man part, just be a man first.
+- ♪ ♪
+- Keep going, thief, this is fun.
+- Well, the fun's about to end, Jean Claude, because while we've been standing around chatting, our other master spy has been effortlessly breaching your compound's security.
+- ♪ ♪
+- (thud)
+- I'm good, I'm good.
+- He's heartless, cruel...
+- I'm so sorry, fishies, about your pond.
+- Whoa, whoa, whoa.
+- Sarah: You think your security men are the best, top-notch?
+- I admit I do.
+- Sarah: Well, our spy is currently slicing through them like a hot kn*fe through butter.
+- Go on, say something about you-know-who.
+- Do I have to?
+- Yes.
+- He'll tear your limbs off and b*at you with them.
+- Okay, okay.
+- Points for trying, but where is this master spy?
+- Morgan: You looking for me?
+- Right here, tough guy.
+- (laughing)
+- Okay, here we go.
+- Here we go.
+- k*ll him, too. k*ll them all.
+- Come on. Now's the time, buddy.
+- I'm working on it, working on it.
+- Casey: And... we're dead.
+- Let's dance.
+- (grunting)
+- ♪ ♪
+- (grunting)
+- Who the hell are you?
+- Charles Carmichael of Carmichael Industries, private contractors, spies for hire.
+- Don't forget it.
+- (shattering)
+- Wow, I really thought that the latch was latched, but, uh...
+- Buff that right out. I think we can, we can still make that-- we'll make that work.
+- We're still working out the kinks.
+- ♪ Chuck 5x01 ♪
+Chuck Versus the Zoom
+Original Air Date on October 28, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Chuck: All righty, folks, it wasn't a total catastrophe.
+- The client was not interested in the vase but the microchip inside it, and that is intact.
+- Boom.
+- Señor.
+- Bang, we are in the pink.
+- The vase was going to be our payment.
+- And... still is, fully restored.
+- Who's not going to pay six mil for a slightly used Ming vase?
+- Chuck, we mowed through the Volkoff fortune on start-up costs. I mean, look at these numbers.
+- $42 million, which is still a lot of dough.
+- Rockets, b*ll*ts, the private jet, servicing the private jet, the fresh shrimp that Morgan likes to eat on the private jet.
+- You have to understand they're just not the same frozen.
+- They're expensive, and if we're going to stay solvent, then we need to collect soon.
+- Or crawl back to Beckman, get a government contract.
+- Never had a problem with Uncle Sam.
+- b*at the yahoos we got coming in here.
+- Casey, our problem is not with Uncle Sam, it's with Clyde Decker, and I don't see that changing anytime soon.
+- Beg, plead.
+- You know I get antsy taking cases with moral ambiguity.
+- Guys, come on.
+- Sarah, isn't this what we wanted?
+- Come on, Carmichael Industries-- the independence and freedom to do what we want when we want, and we're doing good, we're doing good.
+- We got a solid team.
+- We just need a little more time to get our feet on solid ground.
+- And, in the meantime, we work for dirtbags.
+- Chuck, you're handling this really well.
+- I mean, all the bumps in the road and Morgan with the Intersect and you without it.
+- Which is fine.
+- Morgan, yes, has the Intersect now, but I'm, I'm happy for him.
+- Plus, I get to work with my smokin' hot wife and my best friends.
+- Who could ask for anything more?
+- Okay.
+- What was that?
+- (mumbling): What was what?
+- Are you hiding something?
+- Why would I need to hide anything?
+- Okay.
+- Okay.
+- Morgan, Operation
+- VFTB is dead.
+- "View from the Bluff" is dead?
+- (groans) Chuck, I found the perfect house for you guys.
+- Well, except that I was wrong and Sarah doesn't want a house on the bluff.
+- She wants her toes in the sand.
+- Okay, fine, "Operation Toes in the Sand. "
+- Actually, it makes a better acronym.
+- Toes in the Sa-- T. I. T...
+- Why don't, why don't, why don't we just call it "Operation Toes, " okay?
+- Oh, fine, fine, I'll start my research.
+- Oh, Chuck, I know you've been setting aside funds for this house, you know, and I hope my accident with the vase didn't, didn't blow it for you.
+- No, hey, hey, don't worry about it.
+- We've got a very promising potential client.
+- We're going to wine and dine him and, soon enough, we will be raking it in.
+- Good, and you know what?
+- If it all goes south, well, we still have...
+- The Buy More.
+- She's served us well over the years.
+- It all seems so normal, a little too normal.
+- Yeah.
+- Sleeping dogs, though; sleeping dogs.
+- (phone rings)
+- Oh, it's Casey.
+- Wants us down in Castle.
+- Yeah, all right.
+- (quietly): Hoist the flag.
+- Hey, Casey, what do you need?
+- The client's here.
+- I don't like him.
+- What? The who, the what?
+- The client-- the client is here?
+- Hmm.
+- I thought we were going to wine and dine the guy, charm him.
+- Waste of time-- he's here now.
+- Casey, this is supposed to be a secret base.
+- I took precautions.
+- Oh, good.
+- Casey, what precautions?
+- (panting)
+- What the hell kind of operation is this?
+- We're still working out the kinks.
+- Man: $20 million was stolen from me by a high-level Ponzi schemer.
+- You heard the name Roger Bale?
+- Well, you will soon.
+- He's bilked investors to the tune of about a half a billion dollars.
+- Why not go to the cops?
+- I did, but Bale has falsified records, saying he lost the money in normal trading and he's broke, but he keeps buying property in St. Martin.
+- He's a thief.
+- The heart of Bale's operation is a computer vault in his corporate headquarters.
+- Access the accounts, get my money.
+- Yes, we ride at midnight.
+- His security is deadly.
+- So maybe, maybe we, we ride first thing in the morning.
+- No need to rush.
+- That's probably a better idea.
+- Twenty percent of what you recover is yours.
+- Fifty.
+- Done some digging on you, Woodley.
+- You're just an ambulance chaser, trial lawyer, scum of the earth.
+- Uh! He's kidding.
+- He's kidding. He's only kidding.
+- Casey, Bale is worth infiltrating anyway.
+- Looks like he's stolen money from teachers' unions and families.
+- Woodley: He stole $2 million from Rush Limbaugh.
+- Tell me everything you know about this animal.
+- Woodley: He's throwing himself a party tomorrow night-- his going-away-- but it's strictly invite, and everything goes through his secure Blackberry.
+- What a complete tool.
+- Blah-blah-blah-blah-blah on the Bluetooth, all day-- how rude.
+- SARAH (over comm): I'm getting a really good feed from the satellite.
+- The party's being set up, and the place looks like a fortress.
+- Chuck: See? I told you satellite was a good investment.
+- We just got to figure out a way to get into his PDA and invite ourselves to this party.
+- Let's talk house, homeboy.
+- What was that?
+- Did you say house?
+- Nothing, n-nothing, Sarah.
+- Just hopping off real quick.
+- (laughs softly)
+- The house is secret, remember?
+- The only secret, the only real secret is gonna be which room you're sleeping in.
+- Why? 17 of 'em!
+- Swimming pool, screening room, bowling alley, gourmet kitchen, second... bowling alley, and it's on the beach.
+- (sighs) I mean, it's crazy, but...
+- Hey, toes in the sand.
+- Toes in the sand. Toes in...
+- Toes in the sand!
+- Could you imagine how awesome this would be, buddy?
+- I mean, to give Sarah the dream life?
+- Owning her own company, living in the dream home, a place that we can call our own.
+- We just need this gig to pay out.
+- (phone rings nearby) I know.
+- One second.
+- (clicking, beeping)
+- Chuck, why don't we just nab this guy's phone while he's playing squash?
+- Huh? I just zoomed on his gym bag.
+- Okay? Kensington Athletic.
+- It's, like a super exclusive squash club.
+- He's got to have a regular game, right?
+- Morgan, that's fantastic.
+- Fantastic!
+- Zoomed?
+- Did you say you... what?
+- Did you... you said you zoomed on his gym bag?
+- Yes, yeah, because you had "flash, " which was great, but... mmm... I kind of want to do my own thing, mix it up a little bit, so I came up with zoom.
+- You don't like it. Ah, you don't like it.
+- No, hey, hey--
+- "zoom" it is, buddy. You know.
+- Whatever you want.
+- Really? You're-you're amazing.
+- You are so Zen right now. If I had a power like that and I thought it was gone forever, aw, Chuck, I'd be a wreck.
+- Whew! But not you, man, you are my hero.
+- You're great even without the Intersect.
+- Chuck: How certain are you that these glasses only had one reload left in them?
+- (sighs) Like... very certain.
+- I tried to access the program, but there was no way to update it.
+- This version of the Intersect is a one-time deal-- I'm sorry.
+- That's okay. That's okay.
+- Morgan's got it now, and he's doing surprisingly well, so...
+- Chuck, what's wrong?
+- (heavy sigh) The Intersect opened me up to big dreams.
+- But in order for those dreams to become a reality, I need this business to succeed, and...
+- You think the company doesn't work if you don't have the Intersect?
+- Yeah.
+- Chuck, I don't think that Dad wanted you to have the Intersect forever.
+- And besides, you don't need it.
+- The computer didn't make you a hero, it just gave you an opportunity to become one.
+- Now it's up to you.
+- The training wheels are off, you're gonna fall down, but I promise you... you can do this.
+- My two cents.
+- Thanks, sis.
+- I needed a good Ellie speech.
+- Well, what are sisters for?
+- (laughs)
+- The mission, is to access Roger Bale's PDA and put ourselves on the guest list for his party tonight.
+- The phone is gonna be difficult to get to, and password-protected when we do.
+- Bale has bodyguards; could be trouble.
+- And that's why you're the one going for the phone, Casey.
+- This plug-in will cut through all the encryption and install a virus that will send me an invite.
+- Bale is playing in a club squash tournament. Morgan, you're gonna delay his opponent while I step in and match up with Bale.
+- He'll get to know my face and name so that when I show up at the party, I won't be a complete stranger.
+- What? What-what-what, what's the problem? What's up?
+- You're gonna play? Do you actually play any non-video game sports?
+- Yeah, I played some racquetball.
+- I think I can fake squash for half an hour.
+- No, Chuck, I don't think so.
+- I... Sarah.
+- Sarah: Uh... well, sweetheart, um... you know, I-I think what, um...
+- Let's put Grimes on the court.
+- He can zoom on squash, give the guy a game.
+- "Zoom, " Casey?
+- It'll buy me some time.
+- Morgan: You delay his opponent, take over the job I was gonna do.
+- It'll be great, right? What was the job I was gonna do?
+- (moaning)
+- Yeah...
+- Oof...
+- I think I'm supposed to be playing my game right now. You sure it's only 2:00?
+- Oh, Mr. Burnham, you just sit here and relax.
+- I will tell you when it's time.
+- And right now, it is... not time.
+- Bale's coming.
+- (over comm): Casey, he's headed your way.
+- Morgan, get ready, he'll be there in a minute.
+- Yep.
+- Chuck, you keep that bear on that table, or this all falls apart.
+- Burnham: Remember, I like it deep... and hard.
+- That's great.
+- That just sounds great.
+- Hey, man, sorry for the delay.
+- I had a hot tub full of nursing students.
+- Bale: They're so chatty.
+- Morgan: Totally.
+- Bale: So, you must be k*ll Burnham?
+- He's a no-show.
+- I'm Michael Carmichael of Michael Carmichael Industries, a subsidiary of MikeCo.
+- That sounds like big money.
+- Morgan: Mmm, you have no idea.
+- You know, if was standing on my wallet...
+- I'd be tall.
+- Yeah. (laughs)
+- Your skin is... soft to the touch.
+- There you go.
+- Is that a waxing situation?
+- My wife's talked to me about waxing, but...
+- I'm not really a big fan of physical contact.
+- Outside of my job, of course.
+- This is what I do every day.
+- Hey, uh, your ball warm?
+- Here we go.
+- (grunts)
+- Amigo, my ball is...
+- (whispers): red-hot.
+- You're pretty quick.
+- "Sneaky quick, " they call that.
+- Morgan: Ooh! Sneaky quick.
+- Put a little elbow grease into it.
+- (grunting): Oh, yeah? Should I do that?
+- There you go. There it is.
+- (whispers): Almost there.
+- Almost there.
+- Little deeper.
+- You know... you are a thick man.
+- Yeah... right there.
+- (grunts): There it is.
+- Come on.
+- (door opens)
+- Turn and reach, you old son of a bitch.
+- SARAH (over comm): Hey, Chuck, we got a problem.
+- Casey's caught up getting Bale's phone.
+- Maybe I can tranq my guy and give Casey an assist.
+- So, let me ask you a question.
+- Yes, sir.
+- This guy you're supposed to play, Jim Burnham, you called him something else.
+- k*ll.
+- Heard he k*ll nine men in the Foreign Legion.
+- The name stuck.
+- Mm, only nine, huh?
+- What the hell?
+- No, no, somebody's not relaxing!
+- Relax, breathe, breathe.
+- I just dropped something.
+- Oil's slippery.
+- (chuckles)
+- John Casey.
+- I knew you'd fall for that old line.
+- I haven't seen you since jump school.
+- Stark.
+- Been a while.
+- Breathe.
+- Is that a g*n?
+- (gasps) I am gonna rip your head off!
+- What's a leatherneck like you doing in the Kensington Club?
+- Private security.
+- Me, too. For a turd named Bale.
+- Real scuzzer, but at least it's a payday.
+- I don't have to sell you on selling out.
+- Guy with your k*ll, Casey, you've got to be raking it in.
+- (grunting)
+- (loud crack) (grunts)
+- Ah!
+- (chuckles)
+- You think one little dart is gonna drop 400 pounds of solid meat?
+- (yells)
+- (yelling)
+- (mouthing)
+- You seem like a... moderately successful individual.
+- ♪ ♪
+- (grunting)
+- Let's say a fella had 40 mil just kind of lying around doing nothing.
+- What would you do with it?
+- You looking to invest?
+- I might be.
+- I might be.
+- (gasps)
+- (panicky grunting)
+- Aah! Aah! No! No! No!
+- (yells)
+- Bale: Good game, Carmichael.
+- Oh, bunny doll, bunny doll, Bale; Bale, bunny doll.
+- Hey, uh, why don't you guys come to my party tomorrow night?
+- Tomorrow night? Bunny doll, do we have anything, uh, planned?
+- No. I don't think so.
+- Well, how do you feel? You want to go?
+- Oh, I'm game. Mm.
+- Excellenté.
+- Good, good, good, good, good.
+- It's a date, then, huh?
+- Tomorrow night.
+- ♪ ♪
+- (grunting, Chuck whimpering)
+- (grunts)
+- (cocks g*n)
+- Quit goofing around, Chuck. We gotta go.
+- What about the mission?
+- Don't worry, Morgan saved the day.
+- Got an invite to the party.
+- Huh?
+- Thank God for the Intersect, huh?
+- Hey, buddy.
+- Nice work on the mish today.
+- Yes. So listen, we wired a couple million dollars into Bale's account.
+- You're all set for the party. Would you go Bogart with the white tux, or would you go Bond with the black tux?
+- Uh... black, definitely.
+- I knew it. I knew black tux. Always bet on black.
+- Right?
+- Okay, what's wrong?
+- Chuck, is this Intersect withdrawal?
+- I mean, are you... are you missing it?
+- Sure.
+- Yeah. Of course, but it's-it's more than that.
+- I'm just realizing how hard it's going to be without it.
+- I guess I got used to our spy missions being a little bit easier.
+- But-But remember the big picture here.
+- Your beautiful wife, your perfect home.
+- It's all right here, buddy.
+- Toes in the sand.
+- It's the-the big picture.
+- Hey, oh.
+- I gotta go.
+- I'll get this to the lab.
+- Good job, team. Yeah.
+- Right, a high five here.
+- Good, good, good, good.
+- Good briefing.
+- Chuck, do you realize that I am a trained spy who can tell when somebody is keeping a secret?
+- Especially when that someone happens to be my husband?
+- It's who I am.
+- Husband without a secret.
+- Casey and I are going to scout Bale's corporate headquarters, so we'll talk about this later.
+- Can't this be that one-time conversation?
+- (sighs)
+- (sighs)
+- Chuck: This isn't good.
+- We finally lost control of the store, haven't we?
+- All right, where's Jeff? No...
+- Where's Lester? I can sense his evil little hand all over this.
+- (whirring)
+- Hey, Jeff.
+- (clunk)
+- (tires squealing, thud)
+- (whirring)
+- Heartbreaking, isn't it?
+- What happened?
+- What do you mean?
+- Is this about poor Jeffrey over there?
+- Poor Jeffrey? Poor Jeffrey?
+- He was trampled by a stampede of middle-aged secretaries during the midnight release of the talking Justin Bieber doll.
+- His legs were crushed.
+- He may never walk again.
+- But you would know that if you ever bothered to come in and actually manage the store, Grimes.
+- Or you, Bartowski, if you ever bothered to come by and check up on your friends.
+- Shame!
+- Shame.
+- Morgan, I can't believe it.
+- It's terrible. I feel so bad!
+- No, Morgan, I mean, I literally can't believe it.
+- Really? This? They wouldn't. They couldn't.
+- What am I talking about? It's Jeff and Lester.
+- Of course it's a scam.
+- Of course.
+- (whirring)
+- Please help. Buy More insurance ran out.
+- (scoffs) The audacity.
+- Chuck: As the secret owner of this establishment, I happen to know we have excellent insurance.
+- Morgan: Listen, how are we going to prove that Jeff and Lester are bilking it from the store?
+- Well, maybe we construct some sort of ruse, you know, and trick him up out of the chair.
+- Or we could... Hang on.
+- Or we could wait for him to stand up like the moron that he is.
+- Yeah. Mm.
+- Mr. Barnes, this is some sort of insurance scam? !
+- Hey, guys.
+- Jeff, you're gonna give back every penny, or you're going to jail. To see my mom?
+- Lester: Whoa! Whoa! Whoa! Whoa! Whoa!
+- Hey, guys, guys, what are you doing?
+- This is a very sick man here.
+- Ah! Ah, my gosh!
+- Jeffrey, you can walk!
+- Guys, it's a miracle.
+- It's a miracle.
+- This is because of your donations.
+- Shame. (gasps)
+- Shame. Shame.
+- I think we may need to spend some more time at the Buy More.
+- Yeah, we do. Oh!
+- Oh, I forgot-- Sarah wants to have a talk.
+- She knows I'm keeping a secret from her.
+- Oh, no. Not the house.
+- She's gonna try and break me.
+- Mm-hmm, mm-hmm.
+- Okay, I'm gonna hold on to this, right?
+- And, uh, you go in there, and you be strong.
+- Good luck.
+- Remember, I'm not there to save you this time.
+- Sarah?
+- Sarah: In a minute!
+- Um... so, honey, here's the thing.
+- Uh, I'm not trying to keep anything from you.
+- You are my wife, and-and that's a part of the deal.
+- I'm well aware of that.
+- I would, however, like to keep a few things in a special category of "you don't need to know aboutness. "
+- Yeah.
+- ♪ ♪
+- No, no.
+- Not today.
+- This has worked in the past. Not today.
+- What is it?
+- This. This. All that.
+- What's your secret, Chuck?
+- (grunts)
+- My lips are sealed.
+- Well, let me help you unseal them.
+- Hand it over.
+- He cracked like an egg.
+- It's an acronym.
+- You see the little dots there?
+- Whatever. If you were to break it up and sound it out phonetically...
+- (laughs)
+- It's very sweet, Chuck, that you tried to surprise me.
+- With a dream home.
+- Yeah. Like that one right there, right on the sand.
+- The perfect house for the perfect woman. What do you think?
+- (sighs)
+- It's not right, is it?
+- You know, I-I could just keep playing detective and trying to read your mind...
+- Well, I haven't, um...
+- Well, this isn't something that I've ever told anybody.
+- Hello. Husband.
+- It's my official title now.
+- I have a ring to prove it.
+- You tell me things that you don't tell other people.
+- Uh, well, when I was a little girl, my, uh... my dad's "work" kept us moving around a lot.
+- And I always imagined what a real family would feel like, you know, what the perfect home for us all would be, and, you know, the dream house.
+- This is stupid.
+- No, no, it's not. Babe, continue.
+- Well, I always imagined a little white house with a red door and, don't laugh, but it had a picket fence, just like, you know, the houses that you see on TV that people live in.
+- Hmm.
+- Mid-century, very Leave It to Beaver?
+- Cozy, homey and simple.
+- And perfect.
+- Really?
+- Sarah, I'm going to find you your dream home, whatever it takes.
+- I'll do anything. I promise.
+- Testing, one, two.
+- One, two, three.
+- (indistinct conversation)
+- CHUCK (over comm): Looking good, team.
+- Especially you, Sarah.
+- Well, let's have a great mission, huh, team?
+- While I sit by myself in the van.
+- God, I hope this works.
+- Allright. Let's go over the plan, one more time.
+- Casey, you locate Bale's computer vault.
+- Morgan and Sarah, you're gonna create a distraction, giving Casey enough time to get into the vault and tap into the system.
+- Got it.
+- Bale, old man, good to see you.
+- Nice to see you.
+- Right? Yeah, you remember Sarah? I do.
+- This is Chalmers, my mute manservant.
+- We have received your wire and account information.
+- On behalf of our investors, we're very excited to have you aboard.
+- Oh, I bet. I bet.
+- Follow me.
+- Will do.
+- I was to be your accountant.
+- What I did was, I improvised.
+- Okay. (grunts)
+- Chuck: Morgan, buddy, you're doing great.
+- You're doing great. Just stay on point.
+- Remember the mission. Casey, you're up.
+- (quiet whine, powering up)
+- (blipping)
+- Excellent. Excellent, Casey. Excellent.
+- Fiber optic cable leads all the way down that hall. That's probably where the vault is.
+- I'll need a key card.
+- Sarah?
+- Sarah: I'm on it.
+- As you can see, my fortune is based on shared wealth.
+- Finding others who enjoy the better things in life.
+- Sarah: Yeah, that's very bold, Mr. Bale.
+- Chuck... this jerk's starting to get handsy with my girl.
+- Ourgirl. Yourgirl.
+- Calm. Calm, Morgan!
+- Just calm down. No. No, no, no, no, no, no.
+- I think I'm gonna zoom, okay?
+- I can feel it coming on-- a little kung fu.
+- I am gonna karate chop this guy in the face.
+- No, no, no, no. No, no.
+- Do not do that. You're gonna zoom too soon.
+- Premature zoom? Really? Crap!
+- Okay, okay, what do I do?
+- Think about baseball.
+- Baseball.
+- Why baseball? I mean, come on. It is so boring.
+- I mean, just pitch the damn ball already!
+- And enough talk with the statistics!
+- Chuck, do you know what a slugging percentage is?
+- 'Cause I don't know what a slugging percentage is, all right? And honestly, who the hell cares? !
+- (sighs)
+- All right, that worked. Thank you, buddy.
+- Thank you. I'm good.
+- Perhaps I can show you around the gardens outside.
+- They are modeled after the pleasure gardens of Italy.
+- Well, the pleasure would be all mine.
+- (whispers): You're a good girl.
+- What a slime bag.
+- Mm.
+- Chuck: Excellent work, everybody.
+- Casey is on his way to the computer vault.
+- Morgan, Sarah, distraction time.
+- All righty, Chuck. Am I up?
+- Oh, you are up, buddy. Zoom away.
+- (sighs)
+- I like that.
+- (dance music playing)
+- Sarah?
+- Let me show you how it's done.
+- ♪ ♪
+- (beep)
+- Nice work, Morgan.
+- (computer chirps)
+- (trilling)
+- We're in.
+- Bingo. Now, once all the accounts are downloaded, we can reroute them to the original investors.
+- (breaker clacks)
+- No, no, no, no, no, no, no. What's happening?
+- (static, beep)
+- Decker.
+- Hello, Chuck.
+- What are you doing?
+- I'm using your computer to access Bale's accounts and freeze them.
+- No. No, no, no, no, no.
+- You're gonna trigger the alarm. My people are still inside.
+- Yo people?
+- Cute.
+- (music playing, applause and cheering)
+- (applause, cheering and whooping)
+- Listen, I know you lied to me, I know I'm not part of your bigger plan, whatever the hell that is, okay?
+- You've won. Now let us go.
+- Payback's a bitch, Charlie.
+- No... Guys, guys, get out of there!
+- Mr. Carmichael?
+- Darling, I know what you did with my key card.
+- Come with me now, or I will k*ll you in front of all of my friends.
+- Uh-uh. I think actually what's gonna happen is, I'm gonna open up a big can of--
+- Come with us. What?
+- Come with me, Colonel. Oh, I'm sorry.
+- You used to be a colonel.
+- Morgan, Sarah, Casey, please, tell me what's happening.
+- (computer trilling)
+- (trilling)
+- I'm locked out of the accounts! What have you done?
+- Do anything to us, and you'll never have access to those accounts ever again.
+- You see, we work with somebody.
+- A master spy who always has a plan.
+- Okay. Okay, this isn't good.
+- No plan, no plan.
+- The master spy does not have a plan.
+- Uh, I don't want to hear her voice anymore.
+- Take 'em all downstairs. I'll decide what to do with them later.
+- I need you to get somebody from our computer team on the phone right now!
+- Man: Yes, sir.
+- I think I have a plan.
+- Computer emergency?
+- What's wrong with it?
+- An outside computer is accessing your system.
+- You're under attack.
+- Don't worry. I cut into the attack, and your accounts are still here.
+- Is it fixed?
+- Yeppers.
+- Get rid of him.
+- Huh? Wait, wait, wait, wait.
+- What's happening? I'm just the IT guy.
+- You saw some things you weren't supposed to see.
+- And I don't like your face. k*ll him.
+- Then the others.
+- I'd think twice about that, Bale!
+- I pull these wires, your firewall goes down, and the CIA is inside of you in seconds.
+- Your computer.
+- Inside of your computer in seconds.
+- Who are you?
+- Carmichael.
+- Charles Carmichael.
+- I have your brother Michael.
+- I know, and you're gonna let him and the others go.
+- I so much as sneeze, and, well, you lose all your money.
+- Oh! (laughs)
+- Oops. That was about ten million bucks right there, Rog.
+- Let 'em go.
+- What the hell is going on?
+- You're free to go.
+- Hey, Chuck? Chuck, can you hear me? Where are you?
+- Sarah, you outside?
+- Sarah: Yeah.
+- They let us go. Are you still inside?
+- Don't worry about me. Just go.
+- No, I'm-I'm not going anywhere.
+- Sarah, you, Casey and Morgan, get in the van and leave right now.
+- Did I do great?
+- Shut up, moron.
+- Chuck, I am not leaving my husband on a mission.
+- Sarah... Sarah, I'm sorry.
+- I wanted to buy you the house.
+- I wanted to give you the future that you've always dreamed of.
+- But more than that, I want you to live.
+- Come on. What?
+- Don't make me die in vain.
+- Leave me behind.
+- Get in the van.
+- Leave. Leave me behind!
+- Casey, we can't just leave him behind like that.
+- Please, leave!
+- Guys, please don't leave me behind! I have a plan.
+- Your friends are safe, but you're stuck here.
+- What were you thinking?
+- Actually, I was thinking fast.
+- Listen, there's-there's a button on the control panel.
+- Hit that button.
+- I just hope they got my message.
+- (whirring, powering down)
+- (alarms sounding)
+- Morgan, disconnect us from the building's electrical line.
+- Casey, get the van moving.
+- Sarah, there's a rather large window on the east side of the building.
+- It's the only way out... so I'm going to be jumping through it.
+- Casey, east side of the building-- go, go, go, go!
+- (alarms sounding)
+- (tires squealing)
+- (engine revving)
+- Chuck: And Sarah, no matter what happens,
+- I love you.
+- (tires squeal)
+- Ow! Ooh!
+- Chuck: Also, if at all possible, if you could check to make sure I'm still alive on the roof of the van, that would be great.
+- Good work, Chuck!
+- Thanks, honey.
+- Hey, dude, that was awesome!
+- Listen, guys, team, let's-let's... let's not get down, okay?
+- Yes, that was not a classically successful mission, but, you know, we all made it out alive, uh, so-so, that-that's a plus.
+- And the news says that Bale was arrested, so, I think we should put that in the win category.
+- Win, uh, win with an asterisk maybe.
+- (clears throat)
+- It's not that, Chuck.
+- Well, okay, what is it then?
+- Decker froze Bale's accounts, which included the money we transferred in.
+- Castle and the Buy More are the only things that aren't frozen.
+- Sarah: Decker froze all of our money because he tracked our deposit back to us.
+- Wait.
+- Wait. What?
+- All of our... all of our money?
+- We have nothing?
+- Payback's a bitch.
+- Morgan: Okay, think about it.
+- We still have the Buy More, and-and we still have me.
+- And, uh, Sarah and Casey, you.
+- This is still a team. We can still do this.
+- I think I, uh... I think I need a little air.
+- Chuck...
+- Chuck...
+- Listen, it's okay. We'll bounce back. We always do.
+- Yeah.
+- I got to... uh...
+- I'll be back.
+- (car door opens)
+- Sarah: Chuck, you found it.
+- What's the matter?
+- I can't afford it.
+- If I bought it yesterday with our fortune, we'd own it, but now...
+- (sighs)
+- I'm so sorry, Sarah.
+- Well, so what?
+- I mean, we knew this wasn't gonna be easy, and we didn't get married because we thought life was easy.
+- We got married so that we could be there for each other when things got tough.
+- So we could work through things together, rich or poor.
+- But how are we going to do this? I mean, we got to start over.
+- It's okay. We'll get new clients and new missions.
+- And we haven't lost everything.
+- We still have Castle and the store.
+- The Buy More.
+- The Buy More.
+- The Buy More.
+- We use the store to support the spy team.
+- We take Buy Mores' profits, put them into Carmichael Industries until both companies can make money.
+- But in order for that to work, the store actually has to turn a profit.
+- We can do that.
+- We can do that.
+- What about me, though?
+- You and Casey are super spies.
+- Morgan's the Intersect.
+- Who am I? What's my job?
+- Chuck, you're our leader.
+- (camera shutter clicking)
+- That's the plan.
+- (computer chirps)
+- As you can see, our superiors' interference in Chuck Bartowski's life has only just g*n.
+- Now you understand how important he is.
+- And why he must fail.
+- You all have your orders.
+- This is the plan.
+- Its final chapter.
+- Nothing can stop it.

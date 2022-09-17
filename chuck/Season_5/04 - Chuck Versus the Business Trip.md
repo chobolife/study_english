@@ -1,0 +1,883 @@
+# Chuck Versus the Business Trip
+
+- Hi I'm Chuck.
+- Here are a few things that you might need to know.
+- Ever here of carbon monoxide? Stop sleeping in your van, Jeff.
+- I'm seeing things clearly for the first time in a long time.
+- Are you high?
+- Morgan, the Intersect that you uploaded, there's something wrong with it.
+- There was some kind of Trojan horse hidden in the software.
+- That's why you're not acting like yourself!
+- You've text-messaged a breakup with my little girl?
+- I can do better.
+- Morgan told anyone who wanted to hear he had the Intersect.
+- Decker wants Morgan dead.
+- (beeping)
+- (beeping)
+- Stop!
+- (Chuck gasping)
+- Chuck...
+- Chuck, what the hell, man? !
+- Morgan, you stay away from douche-cycle, okay?
+- We've gotta get you back to Castle now.
+- The CIA knows you're the Intersect.
+- You have a hit out on you!
+- Yeah. Oh, my God. Yeah-yeah-yeah. Let's go Let's go. Don't freak out, though, okay?
+- I am still the Intersect.
+- Not to mention I happen to stand by my Montracer's coolness factor. Please, okay?
+- I'm just gonna grab some...
+- No, no!
+- Yes, I agree that it is okay to freak out.
+- Thank you.
+- Morgan, the only reason there's a hit on you is because you got the Intersect in your head.
+- Chuck: So we just need to get it out of your head, let the CIA know it's over, and you'll be safe.
+- And a moron again.
+- Is Ellie working on something?
+- Sarah: No, we, uh... called in the big g*n.
+- (video games trilling)
+- So shocked you people are running out of money.
+- m*ssile Command is a part of our process.
+- All right, let's clean up this mess.
+- Are you ready, Mr. Grimes?
+- Yes, ma'am. Let's do it.
+- Let's get this mind-melting, assassination-producing thing out of my head.
+- Don't worry, buddy, just so sit back, relax, breathe.
+- (exhales) So that's it?
+- It's, it's really over? Superhero no more?
+- Okay, all right, if you're absolutely sure this is the only way.
+- Morgan, look, trust me, I know how you feel, I do, okay?
+- The Intersect is a lot of fun.
+- But this is all for the best.
+- I know. I know. I do.
+- Can I just do one last thing first?
+- You ready, buddy?
+- Ready.
+- ♪ ♪
+♪ ♪
+- (sighs) Wow.
+- Man, I miss the Intersect.
+- Okay, let's do this.
+- Bye, Captain Morgan.
+- (beeps, whooshing)
+- Okay, okay, wow, yeah, yeah.
+- You all right?
+- Fine. Yeah, great.
+- (groans)
+- (gasps)
+- That was for dumping Alex.
+- I get it! I get it!
+- And the first thing I'm gonna do is apologize to her, okay?
+- But do I need to remind you that my mind was melted?
+- How's your memory, buddy?
+- You remember Die Hard, Star Wars,
+- Chewie, Yoda, "Yippie Ki-Yay"?
+- Sorry, dude, no, it all kinda sounds like gibberish.
+- It is.
+- Well, I feel fine otherwise, you know?
+- I guess my brain just got rid of the unimportant stuff.
+- Which there seemed to be plenty of.
+- General, how long will it take to call the hit off?
+- I'll contact you when he's clear.
+- Until then, Grimes, stay down here.
+- And the rest of you, don't make a mistake like this again.
+- Thank you, General.
+- Stop playing with government toys.
+- You have plenty of your own.
+- Captain: And we lower the babies to our chests as we breathe in... and blow it out as we raise 'em back up.
+- In... out...
+- In... out...
+- Oh, hey, guys!
+- Grab a mat, join baby yoga.
+- We can share Clara.
+- We'd love to, but we're kind of in a rush.
+- Hey! Hey, baby Clara!
+- How's my favorite niece in the world?
+- Clara is a rad yogi.
+- You know, I probably shouldn't say this, but she's a way more grounded breather than these other jokers.
+- Wow. Well, looks like you're really enjoying paternity leave.
+- I have adjusted 100%.
+- I could do this forever.
+- Let's go ahead and put our babies into a teeny downward puppy. Hey.
+- Hi.
+- Hi.
+- Hey, there's Superdad's missus.
+- Uh, yes, Devon is really taking to the stay-at-home daddy thing.
+- He's gotten into mommy groups that wouldn't even call me back.
+- Hmm.
+- Well, you're lucky he's willing to stay at home.
+- Yeah, yeah, I'm a happy lady.
+- Well, happy lady, have a great day at work.
+- Thanks. Have a good one.
+- Bye, Clara.
+- Captain: Say, "Bye, Mommy. "
+- Bye...
+- Man, how great are Ellie and Awesome, huh?
+- They're just a nice, happy, normal couple.
+- Yeah, they are.
+- We aren't all that normal, are we?
+- No, no, not really, but we're happy and we're nice.
+- It's just, you know, my best friend is being hunted; his brain almost turned to mush.
+- I haven't slept in nearly a week because our family business is is on the brink of bankruptcy.
+- And we're spies who aren't allowed in the CIA.
+- I just, I just think you know, maybe we're at a fork in the road.
+- Well, you want, you want to not be spying?
+- I just wonder what it'd be like to be a normal married couple.
+- Regular 9:00 to 5:00's, more taco nights, less evil cabals?
+- Look, I know things have been a little crazy right now, but Morgan's gonna be fine, and we're gonna figure out this whole free-agent spy thing.
+- Even now that we don't have the Intersect?
+- Yes, even now.
+- ♪ ♪
+- Mmm... mm-hmm, mm-hmm, mm-hmm! Here we go.
+- Here we go.
+- (phone rings)
+- Oh, no.
+- Most of the assassins have been called off.
+- "Most" of the assassins? Okay, good.
+- That's like getting "most" of the brain tumor.
+- I don't understand what the problem is, General.
+- The problem's name is "Decker. "
+- Beckman: That's right.
+- The order originally came from his desk.
+- He's already ousted us from the Agency.
+- What's his problem? He's not done with us.
+- Perhaps we should...
+- Good afternoon. I hear we're having the most unfortunate little k*ll order mix-up.
+- Don't you ever interrupt my feed again, Decker.
+- I am still your superior.
+- Decker, what's going on?
+- Morgan is Intersect-free. Call off this hit.
+- Oh, I really do want to.
+- But unfortunately, and probably not accidentally, I also sent the order out to one outside contractor.
+- One who can't be recalled.
+- It's sort of his "thing. "
+- It's, uh, codename "Viper. "
+- The Viper? !
+- He goes completely dark once he's cashed the check.
+- Decker: Which, sadly, he's done.
+- What does he know?
+- Just the name Morgan Grimes. That should do it.
+- That's all he needs.
+- The Viper's never had an uncompleted mission.
+- Decker: Why don't I leave you all with a little look-see at some of his famous k*ll?
+- So many dead people.
+- I'm gonna be down here for the rest of my life.
+- And I have all these broken relationships I need to fix upstairs.
+- Don't worry, buddy.
+- Your name's not gonna be on that list.
+- No way. We're on it.
+- Yeah, leave it to the three friends you recently stabbed in the back.
+- ♪ Chuck 5x04 ♪
+Chuck Versus the Business Trip
+Original Air Date on November 18, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Marked for dead. Kinda sexy.
+- It's not terrifying. Why?
+- 'Cause my big bad spy friends are gonna take care of it.
+- That's right, buddy, nothing to worry about.
+- All we have to do is lure out this Viper creature and neutralize him.
+- Look, there's no reason why we can't reason with him.
+- You know, the man's just doing a job.
+- There's no vendetta involved.
+- Maybe we can talk to him, contractor to contractor.
+- Like normal people.
+- (laughing)
+- (laughs) Oh, man!
+- Jeffrey, you're not noticing I'm doing something interesting here, buddy?
+- Oh, sorry. What's up?
+- Okay, so, listen, as you know, the big Salesman of the Year convention is taking place this weekend in Riverside.
+- But you never sell anything.
+- You just eat Pirate's Booty and watch large- lady pornography.
+- I'm aware of that, but I rigged it so that every employee's sales this quarter have been logged under my name.
+- My friend, I'm going to be up to my eyebrows in popcorn shrimp and some sweet Inland Empire lady parts.
+- But what about the rest of us?
+- Like, what if I wanted to go?
+- No, no, you don't.
+- You like being number two.
+- I made you number two, man.
+- I don't think I do.
+- You do. Stop spewing nonsense.
+- Sometimes I think you are a bad person.
+- Now, undo what you've done.
+- I know you'll feel better if you earn this on your own.
+- Son, are you reading a book?
+- Yes, I am.
+- I'm gonna get my camera.
+- Chuck: Let the reeducation of Morgan Grimes begin.
+- Oh, yes, I am so excited.
+- What do I start with?
+- Easy. Star Wars.
+- (sighs) I'm so jealous.
+- Enjoy, while we sort this out.
+- And don't worry, the Force is strong in this one.
+- Ah, no idea what that means, (cell phone rings) but I'm pumped.
+- Well, have fun.
+- Okay, all right. Hello?
+- Whoa, whoa, whoa, whoa, Casey, Casey.
+- Want to watch Star Wars with me?
+- Uh... no. No, but hey, don't start with A New Hope.
+- Old ones, nobody likes that.
+- Phantom Menace. Everybody loves Phantom Menace.
+- Hey, you're all right.
+- Thanks, man.
+- Yeah, sure.
+- The Phantom Menace.
+- Yeah, this is gonna be awesome.
+- I'm sorry, who is this again?
+- Jeffrey. Jeffrey Barnes.
+- You know, from the Buy More. Oh!
+- Hey... Jeff!
+- Wow. You sound... normal.
+- We really need a decision on who will be chosen to go to the Buy More Salesman of the Year weekend in Riverside, and our manager cannot be located.
+- Huh.
+- You know, let me, uh, let me call corporate, and I'll let you know.
+- Great. Thanks, Chuck.
+- Bye.
+- I know how to find the Viper.
+- Chuck: So, I've talked to corporate, and it turns out that the Salesperson of the Year and winner of the coveted weekend in Riverside, California, is...
+- (sighs)
+- Morgan Grimes! (clapping)
+- Are you pulling my considerable chain? !
+- Grimes has barely shown his face in weeks!
+- I love the boy, but it's true.
+- No, no, no. Guys, guys, guys!
+- Do you not see what's happening?
+- This is a fix!
+- Lester: It's obviously fixed.
+- Now, you know what?
+- I revolt.
+- I revolt! Who's with me? !
+- Other Employees: Yeah!
+- (employees cheering)
+- Li-Listen, I'm disappointed, too.
+- But aren't we all still lucky to be here?
+- Working in a great place, in a down economy?
+- Surrounded by our great-looking Buy More co-workers?
+- Selling fine goods to the few people who haven't discovered Amazon.
+- So what if we just use this as a wake-up call and vow to work even harder for the next year?
+- Employees: Yeah!
+- (employees murmuring approval)
+- Chuck: This is...
+- (chuckling): I don't know what this is, but I-I like the new work ethic, Jeff.
+- You keep that up.
+- I gotta go.
+- (employees cheering)
+- Chuck: So, here's the plan:
+- We send Morgan to Riverside.
+- We make it as public as possible, so that the Viper hunts him down.
+- But before he can strike, we do.
+- And after all this is over, Morgan can be just a regular guy again.
+- Morgan: Okay, yeah, put myself out there, allow myself to be hunted.
+- Mm.
+- Yeah.
+- Now, not to sound like a baby, but without the Intersect, it does seem a bit more... terrifying.
+- It won't be as hard as you think. (pats back)
+- (indistinct chatter)
+- Hi.
+- I'm Morgan Grimes.
+- (computer beeps twice)
+- Oh, look at all these nice people.
+- Wonder which one is trying to k*ll me.
+- (microphone feedback squeals)
+- Hello, Buy Most-ers!
+- (crowd cheering)
+- And welcome to all the salespeople of the year.
+- Now, I say "salespeople, " because some of you are even ladies.
+- So, good for you.
+- Another crack in that ceiling.
+- We're going to have to get that thing fixed.
+- I'm just joshing, just joshing.
+- Grab a yard of margaritas and get your mingle on!
+- (crowd whooping)
+- Well, Morgan, you ready to get your mingle on?
+- So ready to get my mingle on. Thank you.
+- Casey, you good?
+- We're up and running.
+- Remember, I need pulse bio-feedback.
+- The finger-pads don't give us lie detection unless you're actually touching the subject.
+- Got it. Touch the subject, see if they're lying.
+- If they are, perhaps they want to k*ll Chuck.
+- And if they aren't, perhaps I grab another crab-puff.
+- Okay, stay alert.
+- All we know is that the Viper k*ll at close range.
+- That's why he's so accurate, but that only means no sniping.
+- He could use poison, so just watch your food and drink intake, okay?
+- Okay, he has strangled, kn*fe, drowned, and there is a pool here.
+- So, you know?
+- Got it. Lots of ways to die today.
+- Okay. Once we identify the target, I'll move in and neutralize him.
+- Yeah, not normal husband-wife conversation.
+- (men chuckling) Hey, how you guys doing?
+- Morgan Grimes, Burbank Buy More.
+- And where are you from?
+- Champaign-Urbana!
+- Prettiest place on God's sweet earth.
+- (chuckling) That's where I was born, and, uh, where, God willing, I will die.
+- (monitor chirps)
+- Yep. He checks out.
+- As you know, we're all just visitors in this sweet corn festival that, uh, is life.
+- CASEY (over comms): Poor sucker thinks that's true.
+- Well, it's nice to meet someone who loves where they're from.
+- And what about you friend?
+- You're looking a little flushed there.
+- You running a fever?
+- No. Always get red after my ninth or tenth.
+- Irish bl*od, you know?
+- Just a race to see if our noses or our hearts will explode first!
+- (mimics expl*si*n)
+- (laughs) Ah!
+- Either way, though, we're dead by 50!
+- Mm. (laughing)
+- Oh!
+- (all laughing)
+- Yep, true, too.
+- You guys are too much. I'm gonna take off.
+- All of you shush, shush, shush, shush, shush!
+- Aw, man, Crazy Bob, you're k*ll me!
+- Literally, this is terrible for my liver condition.
+- Hey, there you go.
+- You're the new guy; got you a special one.
+- Drink it.
+- Drink it now.
+- Drink it!
+- Please drink it. They're so loud.
+- Man: Oh, he took it down!
+- He took it... (sputtering)
+- Oh, you are welcome.
+- Crazy Bob's shots'll k*ll ya.
+- (laughing)
+- You're a lifesaver.
+- Mm!
+- ♪ ♪
+- Good to see you.
+- Yep. He checks out.
+- Oh! Randy, come on.
+- Leave the pretty lady alone.
+- (laughs) Hey.
+- I am sorry about how all these leeches are gonna paw at you all weekend.
+- And also wildly jealous.
+- (both laugh) Hi, I'm Linda.
+- Hi. Hi. Sarah.
+- It's very sweet of you.
+- So, um, seriously, how do you look like this?
+- Ten years at Buy More, I can't keep my face out of the cheese balls.
+- True.
+- The lady loves her cheese balls.
+- Clear.
+- Hi.
+- She's good, too.
+- Clear.
+- True.
+- It checks out. Clear.
+- All clear there, Jim.
+- Nothing in the old eyeballs.
+- (yelling)
+- Easy, buddy!
+- This gets you into the buffet.
+- (chuckling)
+- ♪ ♪
+- Woman: Oh, sweetie, Mama's gonna be home soon, I promise.
+- No, I promise, and I'm going to bring you a treat.
+- (sighs): Oh...
+- Uh, is everything okay?
+- Oh, hi.
+- I'm just being stupid.
+- My son has a cold, and... I feel bad I'm here.
+- Oh, I... I understand.
+- I'm Jane.
+- Uh, Sarah. Sarah.
+- I'm here with my husband, Morgan Grimes.
+- Walker, move your hand.
+- Casey: You just checked yourself.
+- Passed, too. You're getting pretty good at this lying thing.
+- Oh, I promise I'm not one of those women who can't be away from her family.
+- It's just been a while, you know.
+- I think I've been a mom and a wife for so long, I...
+- I think I've sort of forgotten how to be a regular person, you know?
+- Oh, I do.
+- I really do.
+- I used to know how to have fun.
+- I came to one of these things before I was married--
+- Crazy Bob and I led 18 people in a midnight skinny dip!
+- Clear.
+- Well, it sounds like you're the lady that I'm going to be sticking with.
+- You know everybody here.
+- Oh, better. I know what everyone looks like naked.
+- (both laugh)
+- (all clamoring) You're gonna go in...
+- No, no!
+- Chuck: No, no, no, no!
+- (all cheering)
+- Oh, my God.
+- (gasps)
+- Are you okay? !
+- I'm fine!
+- (crowd whooping)
+- ♪ ♪
+- (computer trilling softly)
+- Wait a minute.
+- Oh, my gosh.
+- I have to ask you something man-to-man here, okay?
+- Did I seriously like Phantom Menace?
+- Because I would rather scratch out my eyeballs than to listen to that Jar Jar Binks anymore.
+- Ai-yi-yi.
+- I don't know, maybe my brain has changed.
+- Mm...
+- You know what hasn't changed?
+- My feelings for Alex.
+- Yeah, if there's one thing I remember, it's that I was an ass, an-and that I love her.
+- The crazy thing is, she changed her phone number.
+- So, just wondering maybe you can help me out?
+- And tell her what, that you had a secret supercomputer in your head, made you into a jackass?
+- No.
+- Nothing left to say. It's over.
+- (sighs)
+- Hey, oh...
+- I lied. Start with the originals.
+- You'd love those.
+- Really?
+- Mm.
+- Thanks, man.
+- Thanks.
+- Oh, hey.
+- Just so you know, Darth Vader-- Luke's father.
+- Leia is his sister.
+- Still mad.
+- (laughter)
+- So, all of a sudden, right, all-all of a sudden, after years and years of lunacy, Jeff is smart, because it turns out he'd been sleeping in his van for years with the engine still running.
+- The guy wasn't a moron; he was actually brain-damaged.
+- (laughter)
+- Two of our Buy Morons actually contracted scurvy.
+- What?
+- Yeah. Scurvy?
+- Turns out they'd been subsisting solely on the candy from the snack aisle.
+- They didn't even know anything was wrong until they started seeing their teeth in the Jujubes.
+- (laughter)
+- Man, the, uh, Buy More never fails to provide dinner table fodder.
+- Linda: My kids ask for funny customer stories every night at bed.
+- Stu: Hey, hey, hey.
+- Best job ever.
+- Hear, hear.
+- Cheers. Cheers.
+- Oh, who needs another round?
+- I do. Me, me, me, me, me.
+- I'll come with you, honey.
+- I kind of love it here.
+- I know. They're, like, the nicest people in the world.
+- Yeah, we've checked everybody, and everyone is exactly who they say they are.
+- It's amazing.
+- And here we are, lying, all suspicious.
+- You know, I think Jane wants to be my friend.
+- She asked me out for coffee.
+- She's the Viper.
+- Sarah: What? No, no, no, no. She passed the test.
+- And I... I think that she just really likes me.
+- Honey, you're right.
+- Of course. Of course she does. Duh.
+- It's just my stupid suspicious spy brain, you know?
+- (sighs) Well, it doesn't matter anyway.
+- I mean, I'm not really sure what type of friendship is founded on lies.
+- But we should focus anyway.
+- I'm sure the Viper is zeroed in on you by now.
+- We need to lure him out and get you alone and vulnerable.
+- (laughter)
+- Chuck: Ladies and gentlemen... ladies and gentlemen. What, what, what?
+- What? What?
+- I've had one too many, and I'm going to bed.
+- Come on, Morgan. What? ! No.
+- No, no, no, no, no. Hey, there's poker later, and probably another less-clothed swim party.
+- Whoo! Huh?
+- I would love nothing more than to see you do a naked cannonball, Irv.
+- Keep it... keep it on, keep it on, keep it on.
+- I need to lie down, you know.
+- I think the sciatica's acting up.
+- Yeah. I think I'll call it, too.
+- Bob!
+- What? !
+- Good night. Come on.
+- See you tomorrow. (groans)
+- Yeah, I got to call my family before they hit the hay.
+- Yeah, one of my kids had a big game today.
+- Oh.
+- That's a lie, Chuck.
+- Bob: No, Omaha's no St. Louis, but we have a good time.
+- Sally, in her day, ooh, what a looker.
+- Yeah, Corn Princess in 1987.
+- Nope, still lying.
+- Oh. (chuckles)
+- Well, this is me. Oh.
+- Guess I'm just going to be in here.
+- All by my lonesome.
+- Well, sleep tight. Don't let the bedbugs bite.
+- (chuckles) Yeah.
+- Grimes.
+- Huh?
+- I shouldn't have joked about bedbugs.
+- I mean, they cost the hospitality industry millions of dollars a year.
+- Wrong thing to say.
+- (sighs) Yep.
+- I'm alone and vulnerable.
+- Hello, Sarah.
+- Come in.
+- I've been watching you.
+- You've got a cute little persona going on.
+- But I can spot a girl in a costume.
+- You know, I'm not what I seem, either.
+- (yells, grunts)
+- Yeah.
+- I like costumes, too.
+- You're not going anywhere until you hippity-hop over here.
+- It's party time.
+- Sarah!
+- It was the bartender!
+- Yeah, not everybody here is normal.
+- (chuckles)
+- Whoa! Yes!
+- I'm not gonna die.
+- Hey, Viper.
+- Suck it.
+- Can I go home now?
+- Yeah, buddy.
+- You're good. We're not letting this guy go till he acknowledges the hit's been called off.
+- Which he's being very stubborn about doing, I might add.
+- Go ahead, nod your head. Do it.
+- Yep, hit's off.
+- No more k*ll.
+- This is not how it's done. Hmm?
+- Sarah: First, we have to get Decker to rescind the k*ll order, but we'll handle that, Morgan, so, you know, I think you're free to go.
+- Hmm. And if you go anywhere near Alex, you're going to be on another hit list. Hmm?
+- (muttering)
+- (groans)
+- I'm sorry, buddy. You doing okay?
+- Morgan: Yeah.
+- You know, I just... wish he'd give me the number so I can explain to her.
+- Chuck: Don't give up, you know?
+- You got to keep trying.
+- He's a tough one to crack.
+- You know, uh... it's easier to ask forgiveness than permission.
+- Mm-hmm.
+- Truer words will never be spoken.
+- A stitch in time saves nine.
+- Hmm? Lead a horse to water.
+- Just...
+- (whistles)
+- Sarah: Hey, I... I got to make a call.
+- Jane asked me for a drink, and this is going to take a while, so I have to...
+- No, no, no, no. Go.
+- Casey and I can take care of the Viper handoff.
+- Really? You mean, like, I can go and have an actual normal friend?
+- Yeah. Babe, come on.
+- We saved a man's life not having to use the Intersect; just awesome husband/wife spy work.
+- Maybe we can have some normal friends, too.
+- Okay. Well, I'm going to go have a drink with a friend like a real live person.
+- Have a great time. Thanks.
+- Jeff, you have shown incredible improvement in motor k*ll, language ability, reflexes, memory.
+- It's like you're an actual person now.
+- Thank you.
+- I have started to see a lot of things more clearly.
+- Hey, guys.
+- Hey, Mommy.
+- Hi, muffin.
+- Mommy missed you. Yes, she did.
+- Babe, I have never seen such a perfect case study for an article on the effects of multiyear carbon monoxide poisoning.
+- We could get published.
+- Ellie: That's so interesting.
+- Jeff, why don't you come by the hospital?
+- We'll take a look.
+- Let me see your belly.
+- Let me see your belly. I could eat you.
+- Let's go out here and see some fun stuff.
+- Your woman is not happy.
+- What are you talking about?
+- Fresh air has made me intuitive.
+- That woman... wants to be home with her child.
+- She'll never say it, but it's true.
+- Hey. Alex.
+- I am not here to talk to you.
+- I'm here to see my dad.
+- Look, I just wanted to apologize, that's all.
+- There's nothing you can say to make it okay.
+- You are just not the man I thought I loved.
+- Whoa, whoa, whoa, whoa, whoa.
+- Hey. Hey.
+- You want the truth?
+- You ready?
+- I had a supercomputer in my head, okay?
+- And it was melting my brain.
+- Keep walking.
+- Normal thoughts.
+- So, how do you like working private sector?
+- It's hard, right?
+- Figuring everything out, choosing the right small business accounting program.
+- You're probably not feeling too chatty.
+- Probably feeling bad we took down the best so easily.
+- Probably too easily.
+- We were supposed to catch you.
+- Sarah, wait. Don't move.
+- Oh, my God. What?
+- Look, I know we're trying to be normal people and all, but if we were in spy mode, we'd probably think it was kind of interesting timing that you made a new friend...
+- I'm Jane. who wanted to hang out with you immediately post-mission.
+- A new friend who was as good as I was at passing a lie detector.
+- Chuck: And we might wonder if the Viper didn't use a decoy, like we did,  to make Morgan feel safe and come out of hiding.
+- And we might think that getting rid of his guards by, say, planting a car b*mb, might be a really great way to go.
+- (beeping)
+- Okay, here's a spy thought: Don't move your foot.
+- Okay.
+- I'm looking for Morgan Grimes.
+- You have to understand this all happened a couple years ago, okay?
+- Now, I can't give you names and details, 'cause it's confidential-- that sort of thing-- but there were e-mails, and there were supercomputers, okay?
+- A supercomputer wound up in my brain.
+- And I zoomed. (imitates whooshing)
+- That's my word, not theirs, okay?
+- But the supercomputer that I got was flawed, which is why all this sort of behavior was happening.
+- I'm really sorry. You have to believe me.
+- My brain was melting.
+- You know?
+- You look a little overwhelmed.
+- I'll let you process that for a second there.
+- Jane: I'm sure the manager's around here somewhere.
+- I'll find him.
+- Got to go now.
+- No, Morgan. What are you doing?
+- Come with me. Just come with me.
+- Seriously. You always do this.
+- (muffled shouting)
+- You little barbarian son of a bitch.
+- (engine idling)
+- (gas hissing)
+- Oh. Help, help!
+- Help!
+- Skip, pull the fire alarm!
+- (alarm ringing, people murmuring)
+- Someone plug the hose!
+- Everyone run to safety! I'm saving you!
+- I make no apologies for any of this, Jeffrey.
+- I-I just needed you back, man.
+- Big Mike: Pineapple!
+- (clamoring, alarm continues ringing)
+- (alarm beeping)
+- (beeping) Yep. Yep.
+- That's-That's a b*mb.
+- (beeping)
+- And it's a nice one.
+- Okay.
+- Listen to me.
+- This is what's happening, okay?
+- There is an elusive assassin, and she is hunting me, okay?
+- You are legitimately insane.
+- What? No.
+- No, no, no, no.
+- Please, please, look, look, look, look.
+- Okay, okay. Okay.
+- It's all right, stay calm. She's there.
+- I know, I know.
+- (cell phone ringing)
+- I'm gonna rip your face off.
+- Morgan: No, shh. Casey, listen to me.
+- We have the wrong person, okay?
+- The real Viper is a lady.
+- And she's here, hunting us.
+- Northeast corner of the store.
+- Get Alex to the broom closet.
+- You want to live, you're gonna take care of my daughter.
+- Of course.
+- Listen to me.
+- We're gonna move when I say move, okay?
+- Okay.
+- Move.
+- (beeping)
+- (cell phone chimes) Chuck, I'm getting some text.
+- Jane is in the Buy More, and Casey's locked in the castle.
+- Ooh, man.
+- Okay, well, tell them we'll be there in less than 90 seconds.
+- Okay. Uh, you remember how to do this, right?
+- Yeah. Yeah.
+- Maybe, kinda, yeah.
+- I think so. It's normally the red wire.
+- Or the green wire.
+- It's normally the red or the green wire; I'm not really sure.
+- I want you to wait in here, all right?
+- Okay.
+- Don't you move till I get back.
+- She's after me.
+- I'm not gonna put you in danger.
+- Okay.
+- I love you.
+- You don't have to say it back at me.
+- Would've been romantic, but, uh, it's fine.
+- It's fine. Good.
+- (sighs)
+- God, I can't believe I trusted Jane to be who she said she was.
+- I must have been really desperate for a normal friend.
+- Oh, hey, hey.
+- Don't-Don't b*at yourself up.
+- And don't move your foot, really, because this is a very nasty b*mb.
+- Up with the leg. Up with the leg.
+- Okay.
+- Up with the leg. Keep that leg!
+- Up with that leg. There we go.
+- There we are.
+- (cell phone ringing)
+- Hello.
+- Jane? Jane, it's Sarah.
+- Um, I'm so sorry I'm running late.
+- I'm having a really bad day, and I... I just need somebody to talk to.
+- Well, just come to the restaurant.
+- We'll workshop it.
+- No, I...
+- I'm so upset, I don't think I can drive.
+- Well, just get in the car, turn it on and get here.
+- I can't. My hands are shaking.
+- Well, honey, look, I'm really sorry, okay?
+- I'm not gonna be able to help you right now.
+- I got to go.
+- No, no, wait. Jane, Jane, I want to tell you something.
+- I-I feel, I feel really badly.
+- You've been so open and honest and sweet with me, and I'm so excited to have a new friend.
+- Yeah?
+- (g*n cocks)
+- But I've been lying to you.
+- About a couple of things.
+- (g*n cocks) I'm a spy.
+- Boy, it feels good to say that to a real friend.
+- By the way, you're amazing at what you do.
+- I really trusted you.
+- And I don't do that very often.
+- Well, you shouldn't.
+- Wait, wait, stop!
+- I have your b*mb.
+- Which means it's disarmed.
+- Bye.
+- Thanks, honey.
+- I kind of thought maybe stepping into the middle of this might have been a bad idea after all, so...
+- I miss knowing kung fu.
+- Remarkable work.
+- The Viper's perfect record has been broken.
+- Uh, boom.
+- Suck it.
+- Sorry about that, sir.
+- I'm obviously relieved the mix-up was righted.
+- I would never have wanted you to complete your mission after the CIA called it off.
+- I am one of the good guys.
+- Right. So, in front of all of these witnesses, on a recorded feed, the hit is off?
+- Yes.
+- It's official, the hit is off.
+- All right, our business here is done.
+- Good luck running a spy business with no Intersect, huh?
+- See ya never.
+- He's a quippy bastard.
+- So can someone get us out of this hole?
+- My pleasure.
+- Follow me.
+- Decker took that well.
+- Yeah, he did.
+- I'll take care of it.
+- So, we need to talk.
+- Whatever.
+- We're no longer friends, I get it.
+- Like I care.
+- I do care.
+- I wish you were a better person.
+- But unfortunately, you need to learn there are repercussions for your actions.
+- Mm.
+- So, you're under arrest.
+- What?
+- For what?
+- Attempted homicide.
+- Jeff.
+- Jeff!
+- You have the right to remain silent.
+- Anything you say can and will be used against you in a court of law.
+- Alex: Morgan,  we're not gonna get back together.
+- You told me that you were done with the spy life, and clearly you lied to me in a million different ways.
+- You're my hero, but you are not my boyfriend.
+- Okay.
+- I'm sorry.
+- No, it's okay. I get it.
+- But, um, we can still be friends.
+- And I'm really glad we're both here tonight.
+- Me, too.
+- Oh, hey. We're putting out some hors d'oeuvres, if you guys want to come in.
+- Is my dad here yet?
+- Uh, he's coming a little late.
+- DECKER (over earpiece): You haven't said anything yet that's made me think you're still the man for the job.
+- I have a reputation to repair.
+- This will get done.
+- You need to understand, however, that I have to protect my cover.
+- Obviously. Which means...
+- Neutralizing everyone who knows who I am.
+- Walker, Grimes, Casey, Bartowski, Casey's daughter.
+- (g*n cocks)
+- You have approval on everyone but Bartowski and Walker.
+- Now get it done.
+- (silenced g*n)
+- John Casey.
+- Your life is over if you...
+- (silenced g*n)
+- So, tell me about your day.
+- Fun parts only, please.
+- Mm. Fun parts only.
+- Well, this week, I had to pose as Morgan Grimes.
+- (laughter)
+- You would need some serious hormone injections to get a beard like that.
+- Okay, okay.
+- Well, fortunately for me, my wife likes me baby smooth.
+- I do. My husband was the best human target a wife could ever ask for.
+- Aw, this is fun.
+- Talking openly about our days.
+- It's the best.
+- (door closes) Hey, everybody.
+- Sorry I'm late.
+- No, perfect timing, man-- we were about to sit down and eat.
+- Here, I'll trade you. Excellent. Thanks.
+- Hey, Dad. Where were you?
+- Oh, just had an errand to run.
+- Oh. Yeah.
+- May I? Sure.
+- Cheers.
+- ♪ ♪
+- Uh, I'd like to make a toast.
+- Chuck and I have been a little sad this week that we aren't normal people.
+- I've been having a hard time with the fact that I have no real friends.
+- But I look around here at all of you today, and I realize that, because of Chuck, I do.
+- Nobody in the world is closer than we all are.
+- So, thank you and cheers.
+- All: Cheers.
+- I, too, have an announcement.
+- I'm going back to work.
+- Well, what? Wait, seriously?
+- I thought you were happy at home.
+- No, I was just putting on a front, you know?
+- I was going nuts.
+- Ellie is stepping up and taking care of baby Clara for awhile.
+- Wow. Yes, well, it was too soon for me to go back, anyway.
+- I missed her too much.
+- Yeah. She's totally saving me.
+- One more "Mommy and Me" class, I would've lost my mind.
+- Hey.
+- Hey.
+- I just wanted to tell you that you could probably, uh, ixnay on the whole k*ll me thing, because I'm not gonna bother Alex anymore.
+- Mm.
+- You should move back in.
+- Really?
+- Got you a gift.
+- Come on, really?
+- Indiana Jones.
+- I like these?
+- You did.
+- Are you holding out on me? Is this the only three?
+- You're not, like, keeping the good ones for yourself or...
+- Yeah. There's just the three.
+- Thanks, man.
+- (knocking)
+- Hey. I got it.
+- Decker, what is this?
+- We're looking for John Casey.
+- Whoa, whoa, whoa, whoa, whoa, whoa.
+- Decker: John Casey! You're under arrest. For m*rder.

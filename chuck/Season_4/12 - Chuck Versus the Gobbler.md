@@ -1,0 +1,738 @@
+# Chuck Versus the Gobbler
+
+- Hi. I'm Chuck. Here are a few things that you might need to know:
+- I will do anything in my power to help bring back Chuck's mother and to eliminate Volkoff and his organization.
+- Agent: Agent Sarah Walker, you're under arrest. What? !
+- It was all a setup to establish my cover as a double agent.
+- I'm going undercover into Volkoff Industries.
+- I'm going to take them down from the inside.
+- That's exactly how I lost my mom.
+- That's exactly how you're going to get her back, Chuck.
+- I'm doing this for you, okay?
+- I'm doing it for us.
+- (groans quietly, panting)
+- That all you got?
+- Sorry.
+- Hey, you seen Bartowski?
+- (gruffly): That depends on who's askin'.
+- Sorry, I was just sort of workshopping a tough guy voice.
+- I need some more work. Huh.
+- Any-who, uh, I have not seen Chuck. What's up?
+- Well, Walker's been all over Europe, taking jobs as a rogue agent.
+- Volkoff's finally noticing.
+- Want to make sure Chuck's in the loop.
+- That's great news.
+- But seeing as how Chuck is not here, do you have a second to have a little chitchat with me, man-to-man?
+- Yeah, sure.
+- Yeah, but...
+- Listen...
+- Sarah going to be undercover in Volkoff Industries for a long, long time. and I think that Chuck will be hurting inside...
+- Ah, the feelings. I see why you came to me.
+- Whoa, whoa, whoa-- seriously, these situations tend to send Chuck, well, to the dark side.
+- He'll wind up sitting around the house moping and sulking, and eating Cheetos, and... watching The View.
+- Anyways, I need your help in sort of, I don't know, keeping Chuck's spirits up.
+- Maybe we could tranq him till Walker gets back.
+- Huh! Here's Mr. Mopes now.
+- ♪ ♪
+- Morning, fellas! Hey.
+- You two are looking very dapper this a. m.
+- How's my crew? Crew. Well, you're chipper today.
+- Yeah, well... I just heard the news about Sarah.
+- I mean, it's only been a few weeks and she's well on her way to taking down Volkoff and freeing my mom, so... what's not to be happy about?
+- Abso-toot-ly!
+- We were just talking about the same thing!
+- We're thrilled and very happy, and you're happy-- happy, happy, Chuck.
+- He's happy.
+- I see. I get it.
+- I-I see what is going on here.
+- You're afraid I'm just going to sit around the house eating Fritos all day because Sarah's gone.
+- I thought it might be Cheetos, but, uh, yeah.
+- L-Look guys, I-I get it.
+- I-- and I appreciate your concern, I really do, but I've thought a lot about this.
+- When my mom disappeared into the Volkoff organization, her mission changed her.
+- She became a different person.
+- But that's never going to happen with Sarah.
+- Mm. Yes.
+- She'll always remain the exact same Sarah Walker.
+- ♪ ♪
+- (doors thud shut)
+- Sarah Walker.
+- Love what you've done with the hair.
+- Please, sit.
+- I hear you've turned against the CIA.
+- Treason, was it? It was.
+- Hmm.
+- Bit out of character.
+- Years ago, I told Chuck that I didn't want him to be a spy.
+- I tried to get him to run away with me.
+- But despite all your pleadings, he said, "no. "
+- He did.
+- I knew it.
+- But I still loved him.
+- We got trapped in a CIA-run world with no way out; no exit.
+- Unless...
+- There's always an "unless. "
+- Unless I took matters into my own hands.
+- I turned on the CIA because I want to cash out and build a life.
+- It may sound foolish, but I'm trying to... buy a future with the man that I love.
+- You know, I'm a bit of a hopeless romantic myself. art of massage, that sort of stuff.
+- So... what do you want?
+- I want to come and work with you.
+- Ms. Walker... even if you've told me the truth about your motives, why would I ever trust you?
+- Fair question.
+- The reason you're going to trust me is because I'm not going to k*ll you, right here and right now.
+- You... are such fun.
+- Thank you.
+- (with Russian accent): "Velcome" to Volkoff Industries.
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Volkoff: Now, you and I have to discuss-- ♪ LA LA, LA LA ♪ how best to utilize your particular k*ll.
+- Yes, let's.
+- Sarah Walker, a traitor.
+- This I had to see with my own two eyes.
+- Well, it shouldn't come as a total surprise.
+- After all, your actions did serve as a... sort of inspiration.
+- Alexei, may I have a word in private?
+- She's going to betray you; you know that.
+- It depends how you define betrayal.
+- Now, remember your intentions when you first met me?
+- Now you're my right hand.
+- Have dinner with me. (whispers): Alexei!
+- Lunch, breakfast, uh, a bit of cake with a cup of coffee.
+- Alexei, stay focused.
+- You know I get great pleasure from bending people to my will.
+- I do.
+- Volkoff: She could be very useful to us.
+- What if we had her break Yuri out of prison?
+- That is a wicked idea.
+- Thank you.
+- Sarah, we're going to have you break out Yuri the Gobbler.
+- Now, don't ask why he's called that.
+- (snickering): It's because he eats people.
+- Basically, it's a su1c1de mission.
+- I love a good su1c1de mission.
+- So do I.
+- (phone playing a series of tones)
+- Morgan!
+- Dude, come here. Listen to this.
+- (hums cheerfully)
+- (series of tones playing)
+- Pretty amazing, right?
+- Dude, it's all sorts of amazing. Where do I start?
+- Are you putting Kahlua in your cereal again?
+- Buddy-- the beeps-- that's Sarah.
+- What? She can't use voice communication when she's undercover, so the CIA developed a tonal language for us, that only we understand.
+- Get out of here.
+- And right now, she's... she's saying she loves me.
+- Or she's planning on buying a Buick, I can't really tell.
+- It's a very confusing language; lot of nuances.
+- It's beeps and things, it's... I can understand.
+- Alex: Morgan! Can I borrow your T-shirt? But of course.
+- I gather things are going well with Alex?
+- So well. This girl... is the coolest girl I've ever dated-- and I've dated almost...
+- Chuck: Three? Three.
+- Morgan: Three? No.
+- Three. Three. Hey, Chuck.
+- Don't freak out. Stay calm.
+- But your girlfriend is currently wearing your previously unworn, original issue, Zemeckis authenticated Back to the Future T-shirt.
+- Oh, dear sweet goodness.
+- Pizza, orange juice. Pizza, orange juice. What?
+- (romantic opera music plays)
+- (b*mb exploding)
+- (b*mb exploding)
+- Um...
+- Come back to bed so we can cuddle for before I go to work Uh-huh. Absolutely.
+- Totally.
+- There's still time-- you can get in there and save that T-shirt.
+- No. I'm cool.
+- Excuse me?
+- Nah, she looked... just... really cute in it, didn't she?
+- Let me ask you a quick question.
+- What the hell's wrong with me?
+- Nothing's wrong with you, my friend-- but I have news for you, Morgan.
+- I think you're in love.
+- (whispers): What?
+- Okay.
+- I'm in love?
+- I'm in love.
+- Maybe you're right.
+- Wow. Do I tell her?
+- Well, that's... that's a... kind of big deal.
+- Alex: Morgan!
+- Are you coming?
+- Let's finish this conversation at the Buy More.
+- I have some more snuggling to do, and... no, I'm not embarrassed I just said that.
+- Mary: Stop exactly where you are.
+- There is one square meter of land on the entire compound that is never under surveillance, and we are currently standing on it.
+- Mrs. Bartowski, I came here to help you take down Volkoff and get you the hell out of here.
+- Which is why I want you to break free Yuri.
+- He's Volkoff's most trusted bodyguard, but I think he has something to do the Hydra.
+- Hydra?
+- Volkoff's network.
+- A database of w*apon buyers, sellers-- his entire infrastructure.
+- Early on, I realized that Hydra is more important than Volkoff himself.
+- So how does the bodyguard fit in?
+- I really don't know.
+- But since Yuri was arrested, Volkoff's communications with his network have slowed to a stop.
+- (whispering): We should go.
+- Sarah, I need you to realize that going undercover in a place like this can require certain difficult choices.
+- I'm well aware.
+- You might find yourself becoming someone you no longer recognize.
+- I'm willing to do whatever it takes.
+- Oh, good, I was, uh, I was just coming over to see you.
+- Really. About what?
+- Well, I'm having a bit of an issue with Devon, and I was hoping that you could help. I told you I can't get him to stop cooking with no shirt on.
+- It's not that.
+- I keep proposing baby names, and he keeps sh**ting 'em down, one after another.
+- Nothing works.
+- That's ridiculous. I'm sorry, El.
+- It's just that naming the baby is the last planning that we have to do before I can just relax and focus on the birth.
+- You know? Yeah.
+- No, yeah, totally.
+- W-W-What can I do to help?
+- Well, I, I finally picked the perfect name and I don't want him to sh**t it down.
+- It's the most beautiful, unique, precious name for a girl.
+- Well, don't keep me waiting.
+- What is it? Tell me.
+- Grunka?
+- I can't believe she's going to name her Grunka.
+- Dude. Dude. Dude. Dude.
+- We can't. You can't.
+- Grunka isn't what you name your beautiful baby girl.
+- It's what you name... these people.
+- Ellie said she wants the name to be original.
+- Right? Mm-hmm.
+- I think I may know a way to stop this Grunka in its tracks.
+- Hey.
+- Saw Alex leaving your apartment this morning... wearing your shirt.
+- Hmm, right, Alex.
+- Uh, yeah, see, that's because, uh...
+- (clears throat)
+- ... she didn't have a shirt. Hmm?
+- She-- well, what, what I was meaning to say is she couldn't, she couldn't find her shirt.
+- It was pretty cold, so we wear lots of shirts, and it's like a shirt party, you know.
+- (laughing nervously): It's kind of a...
+- Please don't k*ll me.
+- Okay? (growls)
+- I need you to know that I am a perfect gentleman with her, and honestly I, I really do care about her.
+- (inhales deeply)
+- That is all I wanted to know.
+- Really?
+- Mm-hmm.
+- (slapping) Ow.
+- Hey, any word from Beckman about what's going on with Sarah?
+- No, nothing yet. Still waiting for contact.
+- Computer Voice (over P. A. ): Surveillance disabled.
+- Whoever's in here, you're about to enter a world of hurt.
+- Yeah, serious world of hurt.
+- Hello, boys.
+- (sighs)
+- Honey.
+- Oh, gosh, I'm so sorry for all the drama, but nobody can know that I'm here.
+- I had to disable the surveillance.
+- (sighs)
+- Wow...
+- Sarah, you look evocative.
+- It's so great to see all of your faces, but I don't have much time before I have to leave.
+- I'm being sent to Seabrook Supermax Prison and I need you to create a diversion for me.
+- Sorry.
+- Sorry, you just, you, you just, you look so different.
+- (chuckles)
+- You know, hair change.
+- That's a big-- it's kind of a drastic...
+- What do you, how do you, how do you do that?
+- Is that a wash or a wig?
+- Uh, right, I need you to create a diversion so that I can break out this man: Yuri Gobrienko, aka Yuri the Gobbler.
+- Yikes, a big mother.
+- Eh, big doesn't always mean bad.
+- Here are some photographs of his v*ctim.
+- (groaning) Oh, that's not good.
+- That's impressive. The Gobbler is Volkoff's main bodyguard, but your mom believes that he has some connection to Volkoff's database.
+- Code name Hydra.
+- (beeping)
+- I have to rendezvous with Volkoff's men.
+- Find a way into the prison.
+- I'll meet you inside.
+- Sarah, Sarah, wait, hey, I know you gotta go, but...
+- I missed you, too, Chuck.
+- Wow.
+- I-- it's kind of, it's kind of like I'm cheating on you with you, right now.
+- Good-bye.
+- Call me on the secure line with the plan.
+- Got it.
+- See you in prison. (door closes)
+- Guard: What do we got?
+- Casey: Transfer from Gen Pop.
+- The inmates are having rec time.
+- Careful, it's been almost two days without a stabbing.
+- We're due.
+- Chuck: I was thinking maybe we should just postpone this mission just lo e enough for everyone here to get all the stabbings out of their systems.
+- What do you say? Chuck, listen to me.
+- That tattoo on your face belongs to the most ruthless gang in North America.
+- Well, you just tap on this bad boy right here and... uh, it's instant respect.
+- What have you done? Hmm?
+- Just a little bit of a, of a smudge.
+- Focus, guys-- timing's limited.
+- We can only divert surveillance for a short period of time.
+- Yeah, and then when you do, make sure you signal me as fast as possible so I can flash and neutralize the Gobbler.
+- You just make sure he's out cold.
+- He can't know Walker had any help getting him out of here.
+- Yeah, yeah, no-- good, good, good.
+- Good old-fashioned prison fight.
+- I'm excited, you know?
+- You take out the biggest and baddest dude in that place, and guess who's top dog.
+- You are, all right?
+- You look better without it-- tougher.
+- All right, guys, listen up.
+- New dude in here.
+- Don't mean to interrupt your little game of Mah-jongg, but we got ourselves a real k*ll here today.
+- Yep.
+- New guy here likes to fight other dudes.
+- I would be very, very careful of this guy.
+- k*ll.
+- This is the guy.
+- This is the guy you don't want to mess with.
+- All right, dangerous.
+- Morgan, I think they get the point.
+- They all look like they want to k*ll me.
+- Morgan: Well, you're welcome, okay.
+- As you were, guys.
+- Carry on.
+- (clears throat)
+- So... which one of you is Yuri the Gobbler?
+- (indistinct chatter)
+- Please, not so loud.
+- What's going on here?
+- What are you doing there?
+- What's the eye thing all about?
+- The last time I pointed at him, he did this.
+- Swallowed 'em whole.
+- CASEY (over earpiece): All right, Bartowski, Walker arrives in three minutes.
+- Prepare to initiate the fight.
+- Oh, boy.
+- The surveillance room is just up here.
+- So, listen, um, Alex, you know, uh, hypothetically, very hypothetically, how do you think that she would respond to, let's say, me saying "I love you"?
+- Stupid thing to say. What if I actually mean it?
+- No, the words are stupid.
+- You love someone, you show 'em.
+- Heck, I went to her apartment, built her a shelf yesterday.
+- Okay, I'm sorry, I'm sorry.
+- You've never told your daughter that you love her?
+- I mean, that just seems wrong.
+- I didn't ask you what you think, did I?
+- You can talk to me.
+- I know a lot about love.
+- (chuckles) Yeah, no, totally.
+- Moving in on the Gobbler now.
+- The closer you get, the bigger he gets.
+- Okay, let's get this guard off the surveillance monitors. You ready?
+- It's the only way, right?
+- We gotta do what we gotta do.
+- What's his name again?
+- Steve. Oh, yeah, Steve.
+- Hey.
+- Who are you guys?
+- You know, it goes against everything I believe in to interfere with a hard-working guard protecting American citizens, but this just has to be done.
+- Happy birthday, Steve.
+- I know it's a little late, but all the guards down in Gen Pop-- we wanted to wish you a happy birthday.
+- Hey.
+- You Yuri the Gobbler?
+- What do you want?
+- I want your seat.
+- It looks comfortable.
+- You try to make point, huh?
+- Show everyone that you can, uh, take me out?
+- Yeah, well, maybe I am and maybe I just want your chair.
+- Morgan and Casey[b]: ♪ Happy birthday to you ♪
+♪ Happy birthday to you... ♪
+- You've got 45 seconds. Take him out.
+- Then let me give it to you.
+- (both grunting, inmates cheering)
+- [b]Morgan and Casey: ♪ Happy birthday ♪
+- ♪ To you. ♪
+- (laughter)
+- ♪ ♪
+- I'm gonna need a little more time here, guys. Stretch it out!
+- Guess I'd better get back to the grind.
+- (stammering)
+- ♪ How old ♪
+♪ Are you now? ♪
+- (both grunting)
+- Hey, what the hell is going on in here?
+- Nobody told us there was a birthday.
+- (chuckling): Oh... cake.
+- Yeah, it's birthday cake.
+- ♪ ♪
+- Here.
+- Steve, for you, a big piece.
+- I don't want to hear any of that, you know, "Oh, give me a skinny slice. "
+- That's good.
+- ♪ ♪
+- I'm in.
+- What's the status on the Gobbler?
+- Oh, oh! (growling)
+- He's hungry! He's hungry!
+- Uh, who wants a frosted flower?
+- Sarah: Casey, we need you to unlock the east entrance.
+- (clanging)
+- (men gasping and shouting)
+- (panting)
+- Top dog!
+- (men cheering, whistling)
+- (beeps)
+- Thanks. I owe you one.
+- He's in the rec area at the end of the hall.
+- You okay? Hmm?
+- Oh, just frosting. Don't ask.
+- Hey, sweetness.
+- That's a mighty fine chair you got there.
+- I want it.
+- Oh, for heaven's sake. Honestly? Right now?
+- I can't just be top dog for a minute?
+- Get up!
+- (men gasping)
+- What are you looking at?
+- Nothing.
+- (sighs) Well, looks like you're top dog now.
+- What?
+- It doesn't matter.
+- (tires squeal)
+- Let's go. Come on.
+- I love sourdough.
+- I love you.
+- Was that weird? That whole finger kiss thingy?
+- A little. But I love you, too.
+- I hate this, when you leave.
+- But it's all going to be over soon.
+- I hope so.
+- Of course. Of course it will.
+- We got the Gobbler. That's big, right?
+- It could be, yeah.
+- Chuck, your mom's been doing this for many years.
+- It...
+- It just could take some time.
+- ♪ ♪
+- Okay.
+- (Yuri the Gobbler groans)
+- I'll let you know what we learn.
+- (engine starts) Bye.
+- Bye.
+- I'm thinking about a new toaster, babe.
+- I mean, toaster technology has come a long way.
+- Hello. Beautiful friend.
+- Eleanor. Uh, can I be of help?
+- We were just talking about a new toaster oven.
+- Toaster oven? More like bun in the oven.
+- (all chuckling) Right.
+- Sure.
+- Any thoughts on names, or...
+- Actually, we have. We're naming her Grunka.
+- Grunka. Grunka.
+- Wow.
+- Wow. I lost my virginity to a girl named Grunka.
+- Filthy, filthy lady.
+- Hard to believe she was a grandmother.
+- Oh...
+- That's just gross, babe.
+- She was gross.
+- Sticks in the head.
+- We should really rethink the name.
+- Actually, I'm pretty happy with my choice.
+- Sorry to interrupt.
+- Were you guys talking about that famous Armenian serial k*ll, Grunka Kassabian?
+- What? Serial k*ll?
+- Yes. Yes, we were.
+- Don't think I don't understand what you're doing here, Devon.
+- I'm gonna go wait in the car.
+- Mission accomplished.
+- Grunka, huh? Love that name.
+- I haven't even told you the name yet.
+- Right. Ask first, then say my line.
+- Sorry.
+- Hi, um... uh, yeah.
+- Uh, so what are you naming your baby?
+- (sighs)
+- Yuri.
+- So good to see you.
+- Mr. Volkoff.
+- I love working with this man.
+- We have a long and storied history.
+- You know, when you were captured, I was at a complete loss.
+- My safety compromised.
+- The one and only agent with complete access to my Hydra database, under lock and key.
+- I am sorry.
+- Oh, don't apologize.
+- (chuckles)
+- I'm not angry.
+- Just disappointed.
+- Disappointed?
+- Well, a little disappointed.
+- No. Very disappointed.
+- (sh*t fires)
+- (body thuds)
+- (raspy chuckle)
+- Sorry.
+- I have a hard time with disappointment.
+- Chuck: It feels weird, coming back from a mission without Sarah, doesn't it?
+- A little bit.
+- Could just be indigestion, though.
+- We ate a lot of cake.
+- You know, Sarah and I just, uh... kind of started this ritual.
+- After a rough mission, we'd order a pizza and play a board game, just unwind, you know?
+- I guess that's not gonna happen for a little while now, is it?
+- Hey, did-did we record The View?
+- Oh...
+- sh**t, I don't know if I... did that or not. But, you know, it's funny that you should mention the whole board game thing.
+- 'Cause we were just talking about how we were itching to-to play a classic board game.
+- Weren't we, Casey?
+- We were.
+- We were.
+- So...
+- Great!
+- Alexei, what did you do?
+- He's the only one who knew about Hydra.
+- No, Yuri didn't know about Hydra.
+- Yuri was Hydra.
+- (squishing)
+- (grunts)
+- Oh...
+- Just a moment.
+- (squishing)
+- (pop)
+- Oh! Got it.
+- (raspy laugh)
+- I hired Yuri to carry this device on him at all times.
+- It cost him an eyeball, but earned him an unparalleled place in my corporation.
+- But Yuri got careless, got himself captured.
+- So the Hydra device had to be extracted.
+- So this is your database.
+- Much more than just a database.
+- This is how I communicate with my people.
+- None of them knows each other.
+- None of them are aware of what part they play in my puzzle.
+- Hydra allows me to see everything.
+- Hydra is the heart of Volkoff Industries.
+- But, the fact that you're even seeing this proves that it has a flaw.
+- Human error.
+- Yuri's shortcomings made me realize what a risk the eye was.
+- So you just destroyed the whole system?
+- (laughing)
+- Of course not.
+- I just downloaded all the data to a more secure backup location.
+- Good. No more complications.
+- Now, good work, Sarah.
+- But before I reward you, there is one small issue that we still have to take care of.
+- Come.
+- The jet's ready to depart.
+- Actually, no.
+- There are two issues.
+- We've got a dead body on the floor.
+- Phyllis, cleanup!
+- World domination never gets old.
+- Guys, thanks for keeping my spirits up.
+- I really appreciate it.
+- Yeah. Of course. If there's anything else you feel like talking about, feel free.
+- You know I'm a good listener, and Casey's...
+- Casey. Yeah, I get it.
+- It's hard, you know. I wish I could bottle my feelings up and not be so vulnerable.
+- Well, maybe you should tell that to your armies in Australia.
+- You've got to be kidding me.
+- (imitates expl*si*n)
+- Okay.
+- (cell phone beeps)
+- Who is that? Is it Alex?
+- 'Cause, uh, maybe if we're all in this sort of caring mood, you could send her a little text that says, "I love you. "
+- You know, which would be nice for the both of you.
+- It's Walker. She needs to meet.
+- She didn't use the secure line?
+- Well, okay. Fine Let's go, then.
+- No, She said, "Come alone. "
+- Volkoff must be in the vicinity.
+- Ca-- No, no. Casey, forget that.
+- She needs us. Bartowski, this is a delicate situation. Volkoff knows who you are.
+- You stay put.
+- Trouble comes up, I'll be in contact.
+- When you broke the Gobbler out of prison, did you, by any chance, happen to run into this man?
+- I was using him.
+- He's still loyal to me, so why not take advantage of that?
+- Good answer.
+- Now, let's prove that it's true.
+- I took the liberty of posing as you and summoning him here.
+- All I want you to do is go up to the ninth floor, and k*ll John Casey.
+- Frost will go with you to make sure it all happens correctly.
+- Oh! By the way!
+- I'll be watching.
+- So let's make it exciting.
+- Have fun with it.
+- How the hell am I supposed to make this look real?
+- I don't know.
+- But if you find a way, give him this.
+- I will.
+- Buy me some time if Volkoff comes up here.
+- Buddy, I can't take it anymore.
+- I got to figure out where Casey is meeting Sarah.
+- Dude, I know you miss your girl, believe me, but Casey said that we had to stay put.
+- No. No, Morgan.
+- This is not about me missing her, okay?
+- What if they're in danger? What if they need the Intersect?
+- I'm going to Castle. Maybe I can hack into Casey's phone.
+- Trident Tower, ninth floor.
+- What?
+- Trident Tower, ninth floor-- that's where they're going.
+- I happen to be really good at the quick-look-at-your-phone when-you-get-a-text-but you-didn't-know-I-looked look.
+- You're angry at me because I withheld information.
+- I get it, but, dude, I... (door closes)
+- I thought I did it for your own good.
+- And, by the way, I didn't even... know that you were gone, so-so that's interesting.
+- I'm just pretty much here talking to myself.
+- My turn.
+- (sighs)
+- (gasps) What you doing, Walker? Hmm?
+- (grunting)
+- That a girl.
+- (grunting)
+- What are you doing?
+- I'm supposed to k*ll you.
+- Volkoff is watching.
+- Look. (grunts)
+- (grunting)
+- Good. Now follow my lead.
+- (both grunting)
+- Chuck: General, something's up.
+- There are guards in front of the building.
+- Casey was contacted off the secure line.
+- I'll call you when I have eyes on him.
+- (g*n cocking)
+- Chuck, you're just in time.
+- Just in time for what?
+- There's a particular moment when an agent makes the decision to stop pretending, and to take the leap to join the other side.
+- It's a game-changing step.
+- Your mother made it all those years ago.
+- And now, if you'll come with me, we'll see if Sarah's going to make the same step.
+- I think she will. Come on.
+- (both grunting)
+- I can't leave here without k*ll you.
+- How do we sell this?
+- Duck. (gasps)
+- Oh! I'll let you retrieve your w*apon, you sh**t me in the shoulder. (both grunt)
+- I'm not going to sh**t you.
+- Look who I found!
+- Chuck!
+- What are you doing here?
+- Well, I thought we had a truce, but I like a little rascal who doesn't always listen.
+- Truce, huh?
+- You have an interesting way of keeping your end of the bargain, Alexei.
+- (both grunting)
+- Okay, then.
+- (grunts)
+- Throw me out the window.
+- What? !
+- The window.
+- (both grunt)
+- Look, there's a little platform down there.
+- It's only 40 feet.
+- I've done 60, easy.
+- (both grunt)
+- I'll be fine, I promise. Okay. But you better be fine, or else I'll really k*ll you.
+- Okay.
+- I'm here to find Casey. Where is he?
+- I'll show you.
+- When you get back to Castle, give this to Chuck.
+- Huh?
+- Okay?
+- (both grunting)
+- Quite a brawl.
+- (both grunting, blows thudding)
+- Chuck: Sarah?
+- Volkoff: I notice your g*n's gone missing.
+- You want me to finish him?
+- No.
+- (panting)
+- Volkoff: k*ll him, Agent Walker.
+- Is that all you got? Huh?
+- (both grunt)
+- No!
+- No, Casey!
+- No!
+- (grunts)
+- (groaning)
+- (laughs)
+- (sighs)
+- (creaking)
+- Whoa!
+- (yelling)
+- (gasps)
+- It's done.
+- Why... ?
+- Why?
+- Why?
+- Don't you see, Charles?
+- She did this all for you.
+- (Sarah panting)
+- Volkoff: Bit of paternal advice.
+- You might want to give her a little bit of space.
+- Taking a leap like this is painful for all involved.
+- But congratulations.
+- You're one step closer to the woman you love.
+- Chuck...
+- Chuck?
+- You ready to go?
+- (sighs)
+- I'm ready.
+- Good.
+- Captain: I'm sorry.
+- Maybe involving Chuck's cronies wasn't the best idea.
+- Okay, it was the worst idea.
+- Look, not having the baby named is making me a little anxious, and I understand if you don't like that name, but you haven't liked any name.
+- What? ! I've liked names.
+- Like what?
+- Like, um...
+- Like Clara.
+- Well, I like Clara.
+- Really?
+- Yeah.
+- Clara.
+- Is that her name?
+- I mean, this is a huge decision.
+- One that'll set her path the rest of her life.
+- Devon, we are gonna have to make a million decisions like this.
+- This is called being a parent.
+- I know, but this is the first one.
+- I think I've been stalling just because I want to get it right.
+- Okay, I'll make it easy for you-- Clara or Grunka?
+- Clara it is!
+- (laughs)
+- Little Clara Woodcomb.
+- I can't believe you thought I was gonna name our baby Grunka.
+- Grunka-- the name of the spoons that I bought at Ikea.
+- I had you going there for a minute, though.
+- Spoons? Mm-hmm.
+- From Ikea? That's right.
+- ♪ ♪
+- It gets easier.
+- How?
+- Distance.
+- Volkoff: Ladies... invigorating work back there.
+- Let's get home.
+- How, Morgan?
+- How could she do this?
+- Oh, my God-- Dad.
+- He looks awful.
+- I barely even know him, and I already love him so much.
+- I know.
+- Well, he's going to be okay.
+- I promise.
+- And he loves you, too.
+- Trust me.
+- More than you know.
+- ♪ ♪
+- (phone vibrating)
+- (sighs)
+- (whispers): Distance.
+- (sighs)

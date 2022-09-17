@@ -1,0 +1,722 @@
+# Chuck Versus First Class
+
+- The old heated doorknob. Nice try.
+- Lester, you still giving me the silent treatment?
+- Okay.
+- Everybody, good morning.
+- Good morning.
+- Your coffee, sir.
+- Ah, Jeffrey, thank you so much.
+- Mm-hmm, mm-hmm.
+- You know, call me old-fashioned, but...
+- I just... I prefer cream over laxative.
+- I need everybody's attention.
+- I know some of you are unhappy that I'm running the Buy More.
+- I'm sorry.
+- But all your little tricks and your tactics...
+- I know them all.
+- I taught you them.
+- So listen up.
+- No more sabotage.
+- Thank you.
+- Lester, you're in my chair.
+- If there's one thing I learned in Hawaii, is that I'm good at this, men.
+- I am good at the Buy More.
+- Do me a favor and grab Chuck for me?
+- Could somebody grab Chuck for me?
+- Hey, Jeff, can you send Chuck back here for me?
+- Chuck!
+- Casey, I want to ask you about a Beastmaster.
+- Really?
+- No, not really.
+- Hey, have we got any more info on you-know-who down in Castle?
+- Shaw?
+- Yeah, yeah, Shaw.
+- I'm busy here, Chuck. Why don't you talk to him yourself? He's living there.
+- Living in Castle. What? What? !
+- Casey, what's going on?
+- Is he really in charge of our team?
+- Shaw's a special agent for the CIA.
+- He can do pretty much whatever he wants.
+- Even more special than me?
+- It gets worse.
+- Whenever a special agent takes over an operation, they conduct a review.
+- Sarah's in there with him right now.
+- What do you think they're talking about?
+- Is Chuck Bartkowski a real spy?
+- Yes, of course he is.
+- I mean, his training has been irregular and he was a civilian only two years ago.
+- Well, these mission reports tell a different story.
+- Sometimes he sounds like Bond, and other times it's like a Jerry Lewis movie.
+- I need to know, is Chuck a liability?
+- Wait. The review's about me? !
+- Shouldn't Shaw be asking me about me?
+- Where's the fun in that?
+- Look, I am never gonna be able to escape this ridiculous cover if Shaw thinks I'm some moron civilian who just got unlucky enough to get a computer dumped in his head.
+- Fine.
+- Help.
+- Morgan, did you get glued to a chair?
+- Yes. Yes, I did, okay?
+- The whole store's coming after me, dude.
+- Lester went mute and refuses to talk to me.
+- Maybe 'cause you fired him?
+- I don't know.
+- They've teamed up and formed, like, an evil cabal of tricksters.
+- I haven't had an untainted cup of coffee in days.
+- I need my free coffee, dude.
+- You know, you give me five minutes running this popsicle stand, and we'd be ready.
+- Ready for what?
+- The Russians.
+- Hey. Hey-hey-hey-hey.
+- Guys, a little help.
+- Is that... is that Shaw?
+- Listen, I'm an integral member of this team, okay?
+- My voice should be heard.
+- Oh, your prepubescent little girl screams are gonna be duly noted.
+- Actually, right now. He wants to see you.
+- Look, Shaw, I'm quite certain that things have been said about either myself or my abilities as a spy, and while I concede that there are more traditional or professional spies out there...
+- Chuck, this is my meeting.
+- Right. Sorry.
+- Please continue.
+- I think we can all agree that this team has been dysfunctional the last two years.
+- And I think I know what the problem is.
+- The problem is them.
+- What?
+- What does that mean?
+- It means he's a moron.
+- Chuck, they coddle you.
+- You could be a great spy, but they won't let you evolve.
+- Really?
+- I mean, yes, yes, really. He's right.
+- Let me be a spy.
+- Let me out of the car. I'm ready.
+- No, Shaw, he's not.
+- Duly noted... and ignored.
+- Chuck, you're going on your first solo mission Undercover in Paris.
+- Are you ready?
+- Absolutely.
+- Um, so what are we doing here exactly?
+- Since your Intersect k*ll can be glitchy, you'll need some basic spycraft for this mission.
+- Have you ever used one of these?
+- A pen?
+- KGB-model tranq pen.
+- Oh, yeah, Casey's got one of these.
+- Aim it at your target's food or drink, and it's bedtime for bad guy.
+- You want me to tranq Jeff?
+- I can't do that.
+- I've read everyone's file.
+- Jeff Barnes will be just fine.
+- Come on, Chuck, are you up for this?
+- Yeah.
+- Hey, Jeffy-Jeff.
+- How's it hanging, brother?
+- Everything okay?
+- Yeah.
+- Um, what do you mean, "okay"?
+- What are you doing?
+- You don't usually check up on me like this.
+- Did I do something wrong?
+- No, no, no, no, buddy.
+- Everything's fine.
+- You're fine, work's fine, you know.
+- This is more of a checking in.
+- Just making sure that you're feeling okay.
+- Just a little human- to-humanoid interaction, so...
+- Good.
+- Thanks, yeah. Little bit of a rocky start, but I think I finished strong. What's next?
+- Let's go.
+- You're ready.
+- Wh... whoa. I am?
+- I'm ready after 20 seconds?
+- After two years.
+- I just wanted to talk to you privately, Chuck.
+- Listen, you've been on more missions than most spies have been in a lifetime.
+- Trust me, you're ready.
+- Ah...
+- Freshly brewed, untouched by Jeff's lips.
+- Checkmate, Lester. Checkmate.
+- As assistant manager, I claim this cup of coffee for me.
+- Mmm.
+- Okay, that's what I'm talking...
+- You guys got to understand something.
+- You got to get up pretty early to get... a CIA contact will meet you in Paris.
+- You're traveling as Carmichael, a successful businessman.
+- Itinerary and passport.
+- Guys, it's all good. I'm ready, okay?
+- What are these?
+- Nunchakus.
+- You know very well that I don't like carrying g*n around.
+- But I thought it wouldn't be such a bad idea to have some kind of offensive w*apon, you know, just to have with me just in case.
+- And they're supposed to be in the Intersect, so...
+- Casey, can I have a second?
+- Hmm? Yeah.
+- Listen, I know you want this to work and you want to impress Shaw, but this is crazy.
+- Okay, fine, the nunchakus are a little crazy.
+- You weren't supposed to see those.
+- But Shaw... an honest-to-God, real-life special agent for the CIA...
+- Thinks that I'm ready.
+- He thinks that I can do it, and I want to prove to him that he's not wrong about me.
+- I'm not saying that you can't do this, but please...
+- Please just don't go now.
+- Okay? You need more time.
+- He's going.
+- Beckman agrees with me.
+- We set up a subnetwork on your phone.
+- You'll be able to text and call from the plane.
+- Your ticket, and your car's waiting outside.
+- You'll receive further instructions in Paris.
+- Oh, daddy!
+- First class!
+- That is... probably what you do for everybody.
+- Okay, well, see ya later.
+- I hope.
+- Thank you.
+- Welcome to first class, sir.
+- May I take your jacket?
+- You want to take my jack...
+- Oh, yes, of course. Yes, sorry about that.
+- There we go.
+- Oh, actually, you know what?
+- If I can just... Gotta get my phone and writing utensil. Okay.
+- Lucky pen?
+- Huh?
+- Lucky pen?
+- No, uh, no, just a... just a regular ol' pen-pen.
+- Okay.
+- I'm Chuck, by the way. I mean, Charles.
+- I mean, my name is Charles, but my friends call me Chuck.
+- I'm Hannah. Just Hannah, Chuck.
+- Good, that makes it easy.
+- Nice to meet you.
+- Nice to meet you.
+- Yeah.
+- May I offer either of you a drink?
+- Ooh, uh, no. You know what?
+- I'm on business, but thank you.
+- Me, too. I'll have his.
+- You know, on second thought, I think I will then.
+- Thank you.
+- Thank you.
+- For you. Uh-huh.
+- Thank you.
+- Sure.
+- So what do you think of our fellow passengers here in first class?
+- I'm thinking Syrian dignitaries over there, couple of nuclear physicists, but that bunch, I don't know about them.
+- That bunch over there?
+- Uh-huh.
+- Yeah, I'm gonna go with Yale fencing team without a doubt.
+- Spot-on.
+- Oh, thanks.
+- Now what about you, Charles-but-my-friends-call-me-Chuck?
+- Uh...
+- What about... what about me?
+- Um, I'm in retail, very high-end merchandise at a very prestigious store.
+- What the... ?
+- Come on! Get me out of here!
+- This is not...
+- Hey, Casey.
+- Oh, thank you.
+- See that?
+- See that? How do you do that?
+- You command respect. I...
+- No.
+- I take it.
+- Shaken, not stirred, sir.
+- Thank you.
+- You don't fly first class often?
+- Well, uh...
+- No, no, of course I do. All the time.
+- LA to Paris.
+- Paris to LA.
+- What about you?
+- Well, I, uh, I work for a private investor.
+- Essentially, he just flies me around the world, and I fix problems for him, IT stuff.
+- Computers, mainframes. It's terribly boring.
+- And stress, a lot of stress.
+- But I get to travel.
+- And live in Paris.
+- I have a view of the Eiffel Tower.
+- No way. Really?
+- Yeah. Have you been?
+- To the Eiffel Tower? Yeah. So many times.
+- Can't even count how many times.
+- I know everything there is to know about it.
+- Mr. Muscles?
+- Let me take a gander.
+- I'm thinking professional wrestler, maybe.
+- I don't know. Tough to tell.
+- Kind of nondescript, really.
+- Don't you think?
+- Would you excuse me for just a second?
+- I got to use the little boys' room.
+- Yeah.
+- I'll be right back.
+- Okay.
+- Okay.
+- Hey, guys, you there?
+- Chuck, have you flashed yet?
+- Yeah. How did you know I'd flash?
+- Because your mission's not in Paris, Chuck.
+- Your mission is on the plane.
+- What do you mean, my "mission is on the plane"?
+- What do you mean, "the mission is on the plane"?
+- Hugo Panzer, the man you flashed on.
+- He's a ring agent.
+- He's moving a CIA crypto key to Paris.
+- He'll have put it in cargo.
+- You'll need to get his claim ticket, go to the cargo hold, find his bag, get the key.
+- Yeah, I'm only seeing problems with that plan right now.
+- Hugo Panzer is a bit on the large side.
+- Chuck, I gave you the pen for a reason.
+- You can do this.
+- The pen. Of course.
+- The pen. Tranq him, get the ticket.
+- No problem.
+- Chuck, please be careful.
+- Hugo Panzer is very dangerous.
+- He is a master at close-quarters combat.
+- Sarah, don't you worry.
+- I will have that key back before they serve the lobster.
+- And by the way, I'm quite looking forward to that.
+- Hello?
+- You should have told me.
+- And this is why I didn't.
+- Chuck is not ready for Paris and he's certainly not ready for a mid-air mission.
+- I mean, we can't even go in and help him.
+- Well, now we find out if your asset is a real spy.
+- Who are you, agent Shaw?
+- Because, you know, I have never heard of you, and neither has Casey.
+- You're a very well kept secret.
+- I do like my secrets. Don't you?
+- Being the daughter of a con man teaches you that.
+- You really do read everybody's files.
+- Of course.
+- And I have a few questions for you.
+- Seven months ago, when Chuck was in Prague, you went off grid for three days.
+- This is a surveillance photo of a hotel in Lisbon.
+- This is you.
+- Beckman ordered you to stay in contact, but you ran. Why?
+- It's not what you think.
+- I don't know what to think.
+- Are you a double agent?
+- A ring operative?
+- Or is this about Chuck?
+- Excuse me, sir?
+- Sorry to bother you.
+- The woman that I'm sitting next to is a bit of a nuisance.
+- Will not shut up.
+- So I was kind of wondering if I could plop down here, if that's okay.
+- Fine.
+- Thanks. Awesome.
+- Yeah, you know, I think she's an upgrade.
+- It's such a bummer, too, because one of the things I love about first class is the opportunity to really socialize and rub elbows with people that are, you know, like-minded, and not the rabble. Don't you agree?
+- Excuse me.
+- Oh, yeah, sure. Do your thing.
+- Crossword time!
+- One across, "ecru".
+- It's the air pressure.
+- What? Huh?
+- Pens don't always work on planes because of the pressure change.
+- That... that's fascinating.
+- Let me try.
+- Oh, no, please don't...
+- Sorry. Sorry about that. Sorry.
+- That wasn't ink.
+- Sir, this is first class.
+- Who are you?
+- Nobody.
+- Who are you?
+- KGB.
+- Yeah?
+- Any updates on Chuck?
+- Relax, Casey. He's doing fine.
+- Hey, John.
+- Uh, do you have a second?
+- I need a favor.
+- Not interested.
+- Oh, I hate to pull rank here, uh, John, but I am your superior.
+- What?
+- I need you.
+- Okay, please help me.
+- I don't know what they'll do next...
+- Mute Lester and his gang.
+- They've taken over the store.
+- They set booby traps for me everywhere.
+- I'm going crazy here.
+- I can't fight them by myself anymore.
+- They don't follow any rules.
+- Insurgents?
+- I hate insurgents.
+- Then this will work out, I think.
+- Hey.
+- Hey, guys.
+- I'm in the cargo hold, and it's friggin' freezing in here.
+- Good job.
+- Look for the matching ticket, find the key, get back to your seat.
+- Come on.
+- I'm right, aren't I?
+- I should tell you, I'm always right.
+- It's annoying, but true.
+- Why don't you tell me what you're right about so I can tell you that you're wrong?
+- My theory about you and Chuck.
+- Most spies push their assets to perform.
+- That's what I do.
+- You protect him.
+- You care for him.
+- You followed him to Lisbon.
+- That's not true.
+- Come on.
+- I was right about this mission, and I'm right about you.
+- You know, Chuck isn't home free yet.
+- What do you got, Chuck?
+- I found it.
+- It's a casket.
+- Smart. The ring knows that customs won't check the body.
+- Open it up.
+- Find the key.
+- That's kind of disgusting.
+- Get it done, Chuck.
+- Oh!
+- Hi.
+- Sorry about this.
+- Where are you? Where is its? Ooh!
+- Oh, dead hands. Dead, cold hands.
+- Dead, cold... . Oh.
+- Here we go.
+- Ooh, that's disgusting.
+- Gah! Dead skin, dead skin, dead skin.
+- Jackpot.
+- It's Chuck.
+- Don't answer.
+- He's taken care of Hugo. All he has to do is find the key.
+- He shouldn't need to call.
+- Sarah, pick up. Pick up your phone.
+- And what if he's in trouble?
+- Go ahead, answer it.
+- Just know that if you do, he'll never be a real spy.
+- And one day, that will get him k*ll.
+- Sorry. Sorry, old man.
+- Sorry, old man.
+- Don't freak out.
+- Casey! Casey!
+- Listen, I'm in a little bit of a pickle right now.
+- I am currently trapped in a coffin with a recently deceased elderly man and a very large bad guy trying to find me.
+- Aren't you still on the plane?
+- Right, yes, I forgot to mention that part.
+- The mission is on the plane.
+- I have the key, but the ring operative is right outside.
+- What do I do?
+- You get taken.
+- What? !
+- The ring agent's gonna find you, because you picked the single dumbest place to hide.
+- Oh, gee, thanks. Criticism is always welcome.
+- When he does, you act like your little girlish self.
+- You scream like a banshee, so he doesn't think you're a threat.
+- When he pulls you out, you find a w*apon and then flash.
+- Well, what if I don't flash?
+- Then you're dead... So flash.
+- C... Casey...
+- Chuck! Chuck!
+- Yeah, Casey?
+- Walker, Bartowski's in trouble.
+- The ring operative has him.
+- What? Chuck's been taken.
+- I'm opening a line to his phone.
+- I sincerely hope that that's not your father.
+- Oh!
+- You should've taken my watch.
+- My employer demands a certain heart rate when I'm on the job.
+- Got a little present for you.
+- They really are a fencing team.
+- Why don't you just come here?
+- I'll do this clean.
+- Easy.
+- No pain.
+- Please be in the Intersect.
+- En garde.
+- Point.
+- What's the matter with you?
+- You know you're gonna die.
+- You missed.
+- A lot.
+- Chuck, Chuck, what's happening?
+- Hey, guys, I'm still alive, and my first solo mission was a success.
+- Buckle up, Buy More-ians, it's gonna be a bumpy ride.
+- Meet my new lieutenant... Assistant Manager, John Casey.
+- You guys know John from appliances.
+- Or maybe you remember him from the volleyball incident at last year's employee picnic.
+- Either way, for those of you who are willing to abandon the plot to sabotage me in my assistant managership, you're free to go.
+- Well, well, well, lookie what we have here.
+- This is a no-smoking store.
+- Thanks, Jeff.
+- Do you know what, my lieutenant has the right to smoke a cigar if he wants.
+- Or he can put it out.
+- Mr. Casey.
+- Anyone else want to leave?
+- Anything you got to say, big guy?
+- Lester says this... isn't over.
+- Does he?
+- And I know it sounds outrageous, but the Eiffel Tower's most amazing engineering feat is the elevator itself...
+- And with that, I realize I'm the most boring person in the world.
+- No, no, that was an amazing story.
+- And-and I really like your model.
+- Thanks.
+- It was a... gift from my dad.
+- Can I ask you a personal question?
+- Sure.
+- Have you ever been to Paris, Chuck?
+- Of course.
+- That's a...
+- No, I haven't.
+- It's just that you talked about it with such wonder, like someone who's always wanted to go.
+- No one in first class ever wants to do anything that badly.
+- You're different; you stand out.
+- Thank you.
+- This is all kind of new to me.
+- I think I just wanted to fit in, you know?
+- Why? What's your secret, Chuck?
+- Uh, the truth is, I work at the Buy More in Burbank.
+- You know, the...
+- Uh, in the Nerd Herd department.
+- I did a home theater install at this guy's house in LA, and, uh, he liked it so much that he wanted me to do the same thing in his home in Paris.
+- So here I am.
+- His ticket... I'm just along for the ride.
+- I don't really belong in Paris, or... first class, for that matter.
+- That's not true.
+- Do you want to know my secret?
+- Is it scary?
+- No. Um...
+- I just got fired from my job.
+- I thought I'd actually convinced them to let me stay, but...
+- I am now officially flying to Paris to empty out my office.
+- I'm so sorry.
+- It's okay.
+- Meeting you almost makes it worth it.
+- Mama?
+- Uh-uh-uh, you're not here, you're still sleeping.
+- You're still in bed.
+- Just relax.
+- Just watch the red dot.
+- This is your boss.
+- Morgan is your boss.
+- Morgan is your boss.
+- Morgan is your boss.
+- Morgan is my boss.
+- Morgan is Lester's boss.
+- Morgan is Lester's boss.
+- That's right.
+- You're happy that Morgan is your boss.
+- Wait.
+- This Morgan person is real?
+- This store you work in, it actually exists?
+- Yeah, oh, yeah. Yes to both of those things.
+- Although, even personally, I have quite often wondered if the Buy More was really an insane asylum, but yeah.
+- What is it?
+- Uh...
+- Uh, that-that, uh, that drink, I don't remember... ordering it.
+- It just kind of appeared out of nowhere.
+- A... and you drank it.
+- Are you okay?
+- Yeah.
+- Yeah, yeah, yeah, I'm fine, I'm fine.
+- Just tasted a little... a little funny.
+- Yeah, you look like you've been poisoned.
+- That's crazy.
+- Chuck? Is something wrong?
+- I've just been poisoned!
+- Someone just poisoned me!
+- I think it was Hugo. I tied him up downstairs in the cargo hold, but somehow he escaped!
+- What did it taste like?
+- It was very complex.
+- It had a strong nose, with hints of apple, and then a very sour finish.
+- He's right, it's poison.
+- Chuck, you have to throw up.
+- That's disgusting.
+- Just do it right now.
+- Busy!
+- It's Hugo... He is coming for me.
+- Sir, are you okay?
+- Do you need any help?
+- Sorry, Mexican food.
+- You do not want to come in here.
+- Scream, and you're dead.
+- Chuck?
+- I am so writing a letter to the airline about this.
+- Shut up. There's only one antidote for that poison, and I have it.
+- Now, right now, you're feeling queasy.
+- In an hour, you'll be in more pain than you could possibly imagine.
+- Okay, fine. What do you want?
+- The key! Now!
+- What key?
+- Ooh! Oh, th... the key.
+- You have it; I want it.
+- Give it to me.
+- And don't lie.
+- I'll k*ll you right here.
+- I have the key, but I don't have it on me... I hid it down in the cargo hold.
+- Go on.
+- Oh.
+- Hi.
+- Ooh!
+- Isn't poisoning me enough?
+- Now, where's the key?
+- Antidote first.
+- Is this your first mission?
+- Maybe.
+- You led my agent into a mission with two ring operatives?
+- He's going to make it.
+- How?
+- Watch.
+- This is Blackbriar to Crystal Palace.
+- Do you have me, Palace?
+- Copy that. I need to initiate an executive office override.
+- Put sentry satellite into inverse orbit over Millennium Atlantic flight 3923.
+- Standing by for 3923...
+- What are you doing?
+- Four years ago, we launched a satellite designed to take control of enemy fighters.
+- Surprisingly, the thing actually works.
+- You're a pilot, right?
+- You're gonna take control of that plane?
+- That's a 747.
+- I hope you're a quick learner... Captain Walker.
+- Call Chuck.
+- All right, I work for the CIA, okay?
+- And that's my boss.
+- I cannot give up the key without his authorization first.
+- Answer it. On speaker.
+- Hi, guys.
+- If you're wondering, I'm doing just dandy.
+- Aside from being captured, poisoned and repeatedly socked in the gut!
+- I have your agent.
+- Order him to give me the key.
+- Who is this?
+- I work for a third party, and my employer doesn't tolerate failure.
+- Now, your man...
+- Oh, Chuck. Seat 2B.
+- ... Chuck here will be dead in an hour.
+- But I'm in a rush, so he gives me the key or I k*ll him now.
+- Okay.
+- O... okay?
+- Did he just say... Did you just say... ?
+- I think you meant to say, "Please don't k*ll my good friend Chuck".
+- What type of poison are you using?
+- I'm not bluffing. This is a cyanide hybrid.
+- Cyanide hybrid!
+- You've used it before in Berlin.
+- What?
+- Serena, you used that same poison to take out the Syrian ambassador, and I know you work for the ring.
+- How do you know this?
+- Don't worry about that.
+- Do what I say. Give my agent the antidote, and I'll let you and your gorillas slide on this one.
+- Who are you?
+- Serena, you can do this.
+- Let him go.
+- I can't. You know my employer.
+- Your agent is alone and he's going to die.
+- No, my people are never alone. Now.
+- Disengaging yaw damper.
+- Inducing negative Gs.
+- We've run into a patch of turbulence.
+- Please return to your seats right now.
+- You sh*t a g*n on a plane? ! Are you crazy? !
+- Sarah, level off the plane now!
+- Got it.
+- Ah...
+- Ah!
+- Hey, I'm alive and I have the key.
+- Unfortunately, I did not get to use my nunchakus.
+- This is Blackbriar to Crystal Palace.
+- Disable link on my mark.
+- Copy that.
+- Three, two, one. Break.
+- Uplink terminated.
+- Thank you, Palace.
+- Well, the flight crew will never even know we were there.
+- Just another day in the office.
+- I do everything I can to protect my people.
+- I lost one spy.
+- It was my fault.
+- And it will never happen again.
+- Why were you in Lisbon?
+- I went to bury Bryce, my partner.
+- He wanted his ashes there.
+- Lisbon was our first mission.
+- I knew I wasn't supposed to leave, but I promised him that I would take care of it, so I did.
+- If you want me out, just tell Beckman and she will reassign me.
+- Why would I do that?
+- I need you.
+- I just had to be sure that the ring hadn't gotten to you already.
+- And now do you believe me?
+- Every word, Sarah.
+- How are you feeling?
+- Um, much better, thanks.
+- Sorry about that whole airsickness episode.
+- It wasn't my finest hour.
+- No, it's okay.
+- Chuck, I'm gonna be here for a couple of days clearing things up.
+- I would love it if I could show off the Eiffel Tower to you.
+- What do you say?
+- Absolutely. That would be amazing.
+- Great.
+- Oh.
+- Hello.
+- Chuck, our Paris station is taking over custody of the ring operatives.
+- They send their compliments.
+- Fantastic. That is great news.
+- Another thing, stay on the plane. We need that key back in Burbank ASAP.
+- Uh...
+- Really? I can't... ?
+- Mission's over, Chuck. Time to come home.
+- What is it?
+- Um, the install job I was gonna do here in Paris has been canceled, so Buy More needs me back immediately.
+- I have to stay on the plane.
+- What about Paris?
+- Don't worry about it. It's... it's no big deal.
+- I'll get back here eventually.
+- And, uh, and furthermore, uh...
+- Hannah, if, um, if you ever find yourself in Burbank, and I don't know what the chances of you finding yourself in Burbank are, but if you do find yourself in Burbank, and you're still without a job, my assistant manager owes me about a million-and-a-half favors.
+- Although, I have to warn you, you will be terribly overqualified for the job.
+- Thank you.
+- Oh, you're welcome.
+- It was a pleasure to meet you, Hannah.
+- It was great to meet you, too, Chuck.
+- Bye.
+- Au revoir.
+- Lester, dude, what are we going to do?
+- About Morgan and his new goon?
+- Morgan?
+- Yeah. How are we gonna get back at him?
+- Morgan Grimes is the kindest, warmest, most understanding human being I've ever known in my life.
+- Whoa, that is too cool.
+- How did you do that?
+- Don't ask. Plausible deniability.
+- Plausible deniability.
+- Yeah, of course, of course.
+- Your key, sir.
+- Very good, Chuck. Your first solo mission.
+- I am impressed.
+- Well, thank you, but I would be dead if it wasn't for you guys.
+- All right, who wants to see if this key works?
+- What is it, a w*apon?
+- No, it's a lockbox.
+- Belonged to a spy I had inside the ring.
+- It's all of the intel the agent had.
+- With this we might stand a chance.
+- And one of our best didn't die in vain.
+- What's in the envelope, Shaw?
+- She was k*ll by a ring agent five years ago.
+- Her name was Evelyn Shaw.
+- Eve.
+- We both made the same mistake, Sarah.
+- We fell in love with spies.
+- What's with the looks?
+- He gave me a raise.
+- Inflation, buddy. See what happens when you go away for a two-day install?
+- Everything changes.
+- Ah, I don't know.
+- Sometimes I think everything just stays the same.
+- But maybe that's just me.
+- Chuck, what happened on the install?
+- Nothing, buddy.
+- Nothing at all.
+- Bored now.

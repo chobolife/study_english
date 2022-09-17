@@ -1,0 +1,654 @@
+# Chuck Versus the Balcony
+
+- [DOGS BARKING]
+- [PANTING]
+- [MEN SHOUTING IN FRENCH]
+- [GRUNTS]
+- [MEN SHOUTING IN FRENCH]
+- [POUNDING ON DOOR]
+- Good year.
+- [GRUNTS]
+- [IN FRENCH] The chip isn't here.
+- [MEN SPEAKING IN FRENCH]
+- [SIREN WAILING NEARBY]
+- [CHUCK CLEARS THROAT]
+- Cheers.
+- Cheers.
+- Mm.
+- Chuck, are you feeling okay?
+- Fine. Good. Great. I'm great.
+- Heh, great. Why do you ask?
+- You seem a little nervous.
+- Me nervous. No, I'm not.
+- I don't feel nervous at all, I don't think.
+- Just... It's just this is a very... It's an incredibly romantic restaurant.
+- I'm just taking it all in.
+- Chuck, you can talk to me.
+- Is this about your mom?
+- No.
+- Um, I've realized something. After all the stuff... with my mom and Volkoff and...
+- I realized that, you know, I haven't really been thinking about us.
+- You and me, heh.
+- I've been so wrapped up in all the things I couldn't control... that I forgot to focus on the things that I could.
+- Like tonight.
+- What about tonight?
+- Um...
+- I've been dragging my feet on this. I've been waiting for the right moment... to talk about what it's gonna be like for us and our future and...
+- Chuck, don't even worry about it. I know you've got so much going on.
+- You've had so much happen to you in the last few months.
+- Uh, besides, I've got such a bad history with proposals.
+- [GAGS]
+- No. No, not me. My parents had a nightmare proposal.
+- I'm sure it can't have been that bad.
+- No, it was bad.
+- My mother's family had a restaurant. It was similar to this and they loved it... so my dad wanted to propose there.
+- God, he had the champagne and the flowers... and the band and the balloons and...
+- I mean, it was chaotic. It was so over-the-top... and in all the confusion, somebody knocked over a candle... and it lit the rug on fire.
+- Luckily, my mother and her family got out with only minor burns.
+- Minor burns. You don't say.
+- Yeah.
+- So please take your time, Chuck. Heh, no rush.
+- [CHUCKLES]
+- Um, that's an awful story. I mean, that's really, really awful.
+- I'm sure they had a great laugh about it on their wedding day, right?
+- No. They took it as a sign and they postponed the wedding.
+- My dad always said it was the beginning of the end of their relationship.
+- What was that noise?
+- Uh, noise? What noise. Oh, my jaw. I have a cracking jaw.
+- Can you hear that? I thought I told you about that.
+- When we're kissing or whatever?
+- If you would just excuse me, I'm just gonna, ha, ha...
+- I'll be right back.
+- Morgan, Morgan, abort.
+- Damn it, I knew it.
+- Not enough balloons.
+- You bought the whole store. No.
+- No balloons. The proposal is off.
+- We can't have it in an Italian restaurant.
+- Is she on a no-carb thing?
+- No, we can't have it in any restaurant. That's how her parents' proposal went.
+- We gotta shut it down, gotta shut it down now.
+- I can't shut it down.
+- Why? What are you talking about?
+- The champagne, the string quartet, the caballeros.
+- The caballos?
+- Whatever, man. It's all in motion.
+- We are in too deep here.
+- [GRUNTS]
+- Excuse me. Hey. Hi.
+- The champagne, let's cancel that.
+- The bottle's already open. Um, who's gonna drink it?
+- I... Ugh, this lovely couple. Please, my treat.
+- Oh, no, we don't indulge.
+- Says who?
+- [WHISPERS] What?
+- [CHUCK STAMMERING]
+- Get out. Go.
+- Man: All right.
+- Oh, Beckman called. We've got a mission.
+- Oh, gosh. That's really a bummer. I wanted to...
+- Well, duty's duty, right?
+- [NEIGHS]
+- No. Take a hike.
+- Let's take the side exit. It's really scenic, huh?
+- Morgan: My balloons.
+- BECKMAN [OVER MONITOR]: Agent Rosenbaum, one of our finest... was g*n down earlier today while transporting a nanochip... containing the secret locations and blueprints... of our CIA black sites in Europe. This is the chip.
+- [COMPUTER BLEEPS]
+- A nanochip can be injected into an agent if in trouble.
+- And then extracted back at Langley.
+- None of that sounds very pleasant.
+- I'm sorry, general.
+- Some moron was clogging up Ventura with a horse and carriage.
+- Beckman: At ease, colonel.
+- Agent Rosenbaum's body was returned to us... yet our tests show no trace of the nanochip's presence.
+- We believe the chip is somewhere within this chateau.
+- Uh, don't tell me this mission is in France.
+- Beckman: Pierre Melville, a French radical turned t*rror1st... is also searching for the nanochip.
+- Um, one of Volkoff's men?
+- Not every criminal works for Alexei Volkoff, Chuck.
+- Agents Walker, Bartowski... you'll attend the wine-tasting gala at the chateau tomorrow.
+- Colonel, you will be posing as Agent Bartowski's personal manservant.
+- [SIGHS]
+- Casey: Colonel in the Marine Corps demoted to manservant for a nerd.
+- [CHUCK CLEARS THROAT]
+- Hey, um, I'm sorry about dinner.
+- Hey, no, it's just dinner, you know, heh.
+- I should, uh, go check in with Morgan.
+- [COMPUTER BLEEPS]
+- General, I know why Chuck was asking about Volkoff.
+- He's concerned for his family.
+- And I wanna make something absolutely clear.
+- I will do anything to help bring back Chuck's mother... and to eliminate Volkoff and his organization.
+- I understand your commitment, Agent Walker, and I commend it.
+- But we must wait for the right opportunity.
+- Morgan: It was just dinner.
+- It's hard enough asking a super spy to marry you... but I have to propose to a super spy with proposal issues.
+- Hey, buddy, we will bounce back. I was thinking...
+- No, we're not gonna bounce back.
+- What happened to Sarah's parents became a symbol for everything in life.
+- I need the perfect proposal. And, of course, we have a new mission.
+- You are going to a chateau in the French countryside.
+- Moats and wine and the woman of your dreams.
+- What are you proposing?
+- What am I... ?
+- Come here. Sub-mission.
+- Your assignment: To ask Sarah Walker to marry you in the Loire Valley.
+- It is known as the Garden of France. You know that?
+- The best part of this whole idea is the CIA is footing the bill.
+- I need to think about my team and the objective.
+- Not to mention I'm a horrible multitasker.
+- No sub-mission.
+- I respect that.
+- And respectfully disagree.
+- We have exhausted all Burbank proposal options.
+- What we need is a marital miracle, and I think this is it.
+- Why is everyone so obsessed with marriage?
+- I don't wanna talk about it.
+- You should take care of that.
+- Morgan: Me?
+- No, no. That's why I have my fixer. Uh, Michael?
+- Mike: Talk to me, Patel.
+- You seem more angry and unhappy than usual, which is tough.
+- You're a curmudgeonly little guy.
+- I just wanna be free, Big Michael. But my control-freak parents... have arranged a marriage for me.
+- [SIGHS]
+- First generation woes. Tough stuff.
+- They're stuck in the ways of the old country. Dated traditions... obsolete dietary restrictions. I keep telling them... I live in the United States of America now.
+- I'm not in Canada anymore.
+- You mean India, right?
+- What? No.
+- No, I'm from Saskatchewan. The Hinjews of Saskatchewan.
+- Some believe that we were a cult of sorts.
+- I see.
+- Lester: Anyway, they don't get it.
+- I've embraced America and its great traditions... like online dating.
+- Which, FYI...
+- [SING-SONGY] ... I am k*ll it.
+- Ha, ha, I've been there.
+- I've had three dates already today.
+- During work?
+- They come to me, man.
+- Not great, uh, individually, but solid fours.
+- Three fours? That's a 12.
+- Exactly, man. No Saskatchewan bride could ever top that.
+- And the worst part is, my parents are sending her here.
+- What the hell am I gonna do?
+- How about the truth, son? The truth shall set you free.
+- Brilliant. But let her down easy.
+- The truth can be harsh. Let's... Let's be kind about this.
+- Thanks, bud.
+- The nanochip emits an encrypted signal that only our CIA trackers can detect.
+- Need to get close enough to pick up the signal... recover the chip before Pierre and his men.
+- Check. Let's go.
+- Casey: Yeah.
+- [WHISPERING] Hey, hey, hey. Where are you going?
+- Time for the real mission. The sub-mission.
+- No, no, Morgan, we've talked about this.
+- Listen to me. Everything is in place for a perfect proposal, okay?
+- I've pinpointed potential proposal locations.
+- Here, balcony overlooking the countryside... rose garden, quaint stone bridge.
+- When searching for this nano-whatever, choose whichever location you like.
+- I don't care, but watch Sarah. She'll show you to the spot.
+- And remember something. You can do this.
+- Morgan, I've already told you, no sub-mission.
+- Well, at least you're keeping an open mind about it, so...
+- [CROWD CHATTERING]
+- No sign of Pierre yet.
+- Keep your eyes open.
+- Right. I'm on it.
+- Is this place amazing or what? It feels so...
+- Romantic.
+- Yeah.
+- I know.
+- MORGAN [OVER PHONE]: Chuck.
+- Morgan.
+- You were so right. This place is magical.
+- I knew it. I knew it.
+- Listen, you can do this. I put the ring in the right pocket... earpiece in the left pocket, and then mints in both pockets.
+- And also, listen, I will be here at base... quarterbacking the whole way. So you are good to go, bro.
+- This is crazy.
+- But you're still gonna do it, right?
+- Look sharp. This nanochip isn't gonna find itself.
+- I wanna be out of this French hellhole and back stateside for lunch tomorrow, hmm.
+- [CASEY CHUCKLES]
+- Casey: All these fancy frogs.
+- Forget it. I'm not gonna be able to do anything with Casey being... well, Casey.
+- Chuck, bubbeleh, come on, Casey is your manservant.
+- Let him man-serve you.
+- [IN BRITISH ACCENT] You there. Jonathan.
+- Have you unpacked the lady's luggage, yet?
+- Call me Jonathan, I'll break your leg. CHUCK [IN NORMAL VOICE]: Cover.
+- Remember your cover.
+- You are supposed to be searching underground... while Sarah and I search above ground with all the wine and cheese.
+- [IN BRITISH ACCENT] Oh, one more thing, Jon-Jon... could you put my slippers out for tonight?
+- That'd be very helpful. Thanks so much. Off you go. Chop-chop.
+- Heh.
+- What was it we were do... ? Oh, yes, this is where we were.
+- We should be looking for the nanochip, huh?
+- Yes. Yes, we should.
+- Not getting a signal here. Search upstairs?
+- Shall we?
+- Still no signal.
+- Where is this thing?
+- Wow!
+- Chuck, look at where we are. It's beautiful.
+- We're gonna have a sub-mission location confirmation.
+- Western-facing balcony. I'm in.
+- Yes.
+- I knew you could handle a mission with a sub-mission. All right, let's go.
+- CASEY [OVER RADIO]: Bartowski. Good call on sending me down to the cellar.
+- I got a signal on the nanochip.
+- [WHISPERING] Hold up, hold up.
+- Is everything okay, Casey?
+- Pierre's down here. Looks like he's using the party as a cover as well.
+- MAN 1: Sir.
+- I found this beneath the racks.
+- bl*od.
+- Excellent year.
+- It's an '86 Chateau Le Franc.
+- Must have injected it into one of these bottles.
+- Find every bottle of that vintage.
+- The nanochip is in a bottle of '86 Chateau Le Franc.
+- [BEEPING]
+- Casey: Signal is weaker. Bottle's on the move.
+- Okay, Casey. We're on our way.
+- [CLEARS THROAT]
+- [TRACKER BEEPS]
+- Someone is here.
+- No one leaves this room alive.
+- You told Casey to go to the cellar?
+- Yeah, yeah.
+- [TRACKER BEEPING]
+- Wait, wait, wait. I'm picking up a signal.
+- I think the bottle's outside.
+- Okay. You get the wine, I'll get Casey.
+- How's it going, buddy? What is the sub-mission status?
+- On hold, buddy. I'm busy chasing a priceless '86 Chateau Le Franc.
+- [TRACKER BEEPING]
+- [SIGHS]
+- Oh, Morgan, flag on the play. I've lost it.
+- I've lost the bottle.
+- Right. Right.
+- Chuck, the '86 Chateau Le Franc is a peppery Pinot... stable on the label, stork on the cork.
+- Chuck: Copy that.
+- Wha... ? What? It was a peppery Pinot, right?
+- With cork on the stork and label on the stable?
+- No. It's a stable on the label and a cork on the stork.
+- Dude, it's... No, it's not. What did you say?
+- [GASPS]
+- [SIGHS]
+- Casey, I'm outside the cellar door.
+- CASEY [OVER RADIO]: This place is crawling with French bad guys.
+- [BEEPS]
+- Sarah: Oh, it's so bright.
+- [GRUNTS]
+- Hello? Anyone here?
+- Oh, God. I'm... Heh, oh, God.
+- I'm so sorry, I've, um...
+- I'm just a little bit lost. I've had just a bit too much wine.
+- I'm so embarrassed. I just... I...
+- I broke my heel and my...
+- My ankle, it just kind of really hurts right now.
+- [SARAH GRUNTS]
+- [SILENCED g*n]
+- [MEN GROAN]
+- I can't stand this country.
+- [TRACKER BEEPING]
+- A stable on the label and a stork on the cork.
+- Oh.
+- Gotcha.
+- It's a fine vintage, isn't it? It's peppery.
+- Well-structured for aging. Lots of tannins.
+- Chuck, Casey's okay. Do you have the bottle?
+- Uh, the nanochip has been poured into somebody's glass.
+- Find the right glass. I'm on my way.
+- Fine. I'm all over it. Meet you on the balcony.
+- Looks like Pierre is MIA.
+- Come on.
+- [TRACKER BEEPING]
+- [TRACKER BEEPING RAPIDLY]
+- Sir. Hi. Sir, hi.
+- Excuse me. Um...
+- I'm sorry, but there's been a mixup downstairs.
+- You received the wrong glass of wine. That's the g*n from Bordeaux... with the coil on the foil and fork on the cork.
+- Does not make sense, they are both regions.
+- This is the peppery Pinot... with the stable on the label and the stork on the cork.
+- In fact, I have been waiting to taste this exact bottle... for two decades.
+- Chuck: Don't...
+- I didn't wanna have to tell you this, but there is something in your wine.
+- Yes, there is something in the wine.
+- Two hundred years of French history.
+- The bl*od and sweat of my ancestors. The pride of lords and peasants alike.
+- You, sir, wouldn't know the difference between this... and a glass of Two Buck Chuck.
+- Chuck: First of all... I happen to like Two Buck Chuck. Great bang for your buck. Second of all, you are danger-close to becoming a walking cliché, sir.
+- Goodbye. My pinot.
+- Stop. Give me the glass of wine.
+- You mean this glass of wine?
+- [GRUNTING AND SHOUTING]
+- What's happening? Talk to me.
+- I've got the nanochip.
+- Sub-mission on?
+- The sub-mission is so on.
+- Yes. Fantastic. FYI, sunset is in three minutes, okay?
+- And everyone looks good at golden hour. Everyone.
+- [SIGHS]
+- Chuck: Where's Casey?
+- Getting the car. Nanochip?
+- One peppery Pinot with a hint of nanochip in the finish.
+- Sarah: Good work, Chuck.
+- Look at that.
+- Just in time for sunset.
+- It's amazing, isn't it?
+- It's perfect.
+- Good.
+- There's, uh... There's something I've wanted to...
+- [METAL CLANGS]
+- What the... ?
+- Casey: Chuck, Sarah. Move it.
+- That's our ride. Let's go.
+- Huh?
+- [SPEAKING IN FRENCH]
+- [SIGHS]
+- [DOOR OPENS]
+- General Beckman?
+- I have decided to debrief the team in person.
+- The CIA has analyzed the nanochip. The secret locations and blueprints... of our European black sites are now safe.
+- But your mission isn't over. You're going back to France.
+- Not again.
+- Not you, colonel.
+- A couple in love are more believable turncoats.
+- Agents Walker, Bartowski... using back channels, we have contacted Pierre Melville.
+- He now believes you're rogue CIA agents who want to sell the chip back to him.
+- Pierre believes we're traitors. But how does that help us?
+- You're gonna sell him a different chip.
+- Beckman: Spot on, colonel.
+- The chip suspended in this liquid is a long-range tracking beacon.
+- Return to the chateau, swap cases with Pierre... then our Paris office will track him and root out the entire t*rror1st cell.
+- Is that clear?
+- Chuck: Yes, ma'am.
+- Good, because you leave tonight.
+- Agent Walker, a word.
+- [DOOR OPENS]
+- I want you to be the one to make this drop.
+- This operation is highly sensitive. It must go smoothly.
+- Of course, general.
+- Dismissed.
+- Lester: Stick to the plan. Jinsana should be here any minute.
+- [DOOR OPENS]
+- Damn.
+- Lester Patel, you lucky little Canadian.
+- Oh, my God. She's a 12.
+- It's the stuff of legend. A flawless Hinjew specimen.
+- I want her as my own. Change of plans. Marriage is on.
+- Stop Big Mike then stall her. I got three fat girls to break up with.
+- You must be Jinsana.
+- Yes, I am. Do you know where Lester Patel is?
+- Uh, look, Jinsana. I know you've traveled a long way... but I'm supposed to give you some bad news.
+- Uh, hi. Mr. Patel needs to, uh, reschedule.
+- His calendar has him free in, uh... half-hour?
+- Okay. Guess I'll come back.
+- Let me...
+- Come on, Chuck, it's okay.
+- It was so perfect. Everything. The sunset, the balcony.
+- You cannot b*at yourself up. You were on a mission.
+- There were distractions, things out of your control. Let's move past that.
+- What is the only thing better than a sunset?
+- Things going right for a change?
+- No, no.
+- Moonlight, okay?
+- Don't give up on me. You know the perfect spot now.
+- You're going back to the chateau with Sarah. Come on, this is fate.
+- The proposal is gonna work, dude.
+- It's lovely to see you again, Jinsana.
+- Mr. Lester Indira Golda Patel awaits.
+- Jinsana: Thank you.
+- This way, please.
+- Lester: Welcome to my domain.
+- Jinsana Gupta, please come, sit.
+- Sit.
+- Look, Lester, I'm just a normal...
+- Shh.
+- I accept you.
+- It is written. Jeffrey, please.
+- With the poutine and the Manischewitz.
+- Lester, you're obviously much more traditional than I am.
+- And the truth is, this is freaking me out a little bit.
+- Just, please, Jinsana. Just look, I, ugh...
+- I am not traditional at all, actua...
+- [SITAR PLAYING]
+- Look, this isn't the real me.
+- All right? Please just give me a chance to show you who the real Lester Patel is.
+- I promise, I make a fantastic... third impression.
+- [CHUCKLES]
+- So this wasn't really you?
+- No, no. I was trying to impress you.
+- Aw, that's kind of cute.
+- Okay. We can give it another sh*t.
+- So it is written.
+- Ha, ha, no, no, it's not written, Jeffrey. Not written.
+- Maybe we pencil it in.
+- [WHISTLES]
+- [MORGAN YELLS]
+- Hi, Morgan.
+- Oh, Sarah, mental.
+- We need to have a conversation.
+- You just scared me to death. I thought you could've been somebody deadly.
+- I am somebody deadly.
+- Hmm.
+- And I know everything.
+- The balcony, the moonlight. Does that ring a bell?
+- These bearded lips are staying shut. I know nothing.
+- Chuck is planning on proposing at the chateau and I want your intel.
+- [CLEARS THROAT]
+- Okay. Don't you wanna be surprised?
+- I'm a spy. I hate surprises.
+- Okay. Chuck told me about your parents' proposal.
+- It'll be better than that.
+- Oh, God. I should never have told him that stupid story.
+- Probably not. Probably not.
+- But you did and it's the reason we called off our restaurant proposal.
+- What? Wait.
+- Chuck was planning on proposing at the restaurant?
+- What is wrong with me? I cannot keep my mouth shut.
+- No. No, it's good. It's good that you told me.
+- Look, Sarah, the whole reason Chuck is doing this proposal... is to wipe the slate clean, all right? It's all for you.
+- And it's gonna be amazing and romantic.
+- It's gonna be everything that you want.
+- Okay.
+- I am taking control of this operation now.
+- Morgan, you will now be working for me.
+- Okay. Kind of like a, uh... Like a double agent.
+- Exactly. We're gonna make this proposal happen for Chuck's sake.
+- Yeah.
+- And for mine.
+- Chuck: We got a couple of French t*rrorists... a briefcase full of cash, and a nanochip... so no more terrifying than usual.
+- Although, if we get done early, we take a stroll around the chateau.
+- That does sound lovely, Chuck.
+- But, ugh, listen, I have this weird feeling about this mission.
+- I don't know, I just can't shake it. Something feels off.
+- MORGAN [OVER RADIO]: Sarah, it's Morgan. We're totally on a secure line.
+- Okay, listen, up, the proposal is a go on the western balcony.
+- All right, lunar calculations are complete. We are banking on a full moon proposal.
+- That is a full moon proposal.
+- Copy that. Now listen, if anything goes wrong... you are to tell me about it immediately.
+- Of course. I am on it. You can count on me.
+- CHUCK [OVER RADIO]: Morgan.
+- Oh, hold on a second.
+- I have to scram because, uh, Chuck is on two.
+- Hey, Chuck, how's the man? How's the myth? How is the view?
+- Does Sarah seem jumpy to you? I mean, do you think she's on to us?
+- What? No. No. Sarah? Onto us? Come on, buddy, get real.
+- Keep your head in the game, though. Focus.
+- If I can give you one piece of fatherly advice, I'd...
+- [CLICKING OVER RADIO]
+- You futzing with the ring box?
+- No.
+- I can hear you futzing with the ring box.
+- Keep futzing with the ring, you tarnish the sheen.
+- Are you nervous? You get all sweaty.
+- Relax, okay? Okay? Buddy, I got it. I...
+- Yeah. I gotta go, I gotta go. We got company.
+- Please go smoothly. Please go smoothly.
+- It rains in Paris, ma cherie.
+- But only in the spring.
+- Sarah: It's done. That was easy.
+- We're done? Seriously? Great. Good, we're done.
+- Bravo. Excellent work. Fantastic.
+- Um, meet me at our balcony and we'll celebrate with a glass of wine.
+- I'll meet you there.
+- It's time to come clean.
+- This girl is about to meet the real Lester.
+- And Jeff.
+- Let's just keep the focus on me, okay, buddy?
+- [SIGHS]
+- Hey, Jinsana, listen.
+- I am sorry that I pretended to be somebody that I'm not.
+- So behold the real Lester Patel.
+- Uncut, unabridged, in living color.
+- Should we go get a drink or something?
+- Something.
+- Jeffrey, hit it.
+- [BAND PLAYING WHITESNAKE'S "IS THIS LOVE"]
+- Man: Hey, Patel, what are you doing?
+- This one's for the lady.
+- [SINGING] I find I spend my time Waiting on your call How can I tell you, baby My back's against the wall...
+- Shake out the butterflies.
+- Shake them out, shake them out, shake them out.
+- Sarah...
+- Is this love I know that you have some issues with proposals.
+- Is this the love What am I talking about? I can't... I can't mention her parents.
+- Don't talk about the parents. Clean slate. Here we go, start over.
+- This must be love Do a knee thing? Probably have to do a knee thing.
+- Which knee... ?
+- Chuck, how's it going?
+- The mission went great. They never go this smoothly.
+- It's got to be a sign.
+- [CHUCK GRUNTING]
+- Morgan: God, Chuck.
+- Did you think I would let you two walk away with my money?
+- [GRUNTING AND SHOUTING]
+- Holy... Who was that guy?
+- Dude, are you okay?
+- Yeah, yeah.
+- Yeah, buddy, I'm fine. I got my jacket a little dirty, though.
+- Right. Tide to Go sticks, left jacket pocket.
+- Morgan, you are genius.
+- Morgan: All right, you hide the bad guys, I'll check in on Sarah.
+- Is this the love That I've been searching for Lester, that was...
+- Shh.
+- I know, baby. I know.
+- The most uncomfortable five minutes of my life.
+- But wait, wait, wait. I wanna get married.
+- Try the Internet.
+- Is that the chateau security feed?
+- Maybe.
+- Well, in case you hadn't heard, the mission is over.
+- They made the exchange.
+- Wait a minute. Are you conducting a sub-mission?
+- He's gonna pop the question to Walker, isn't he?
+- How'd you know that?
+- Because I'm a spy, not a moron.
+- But you're right, he's gonna need all the help he can get.
+- Sarah, you just stopped. What's the matter?
+- Sarah: I don't know.
+- I think, for the first time in my life, I'm... nervous.
+- Oh, my God. Oh, my God.
+- You got butterflies. She has butterflies.
+- That's completely natural, it's... Everybody gets butterflies.
+- I don't get butterflies.
+- Morgan: That's not what I'm saying.
+- What I'm saying is that's Chuck Bartowski out on that balcony.
+- You know, he is the best friend that I've ever had.
+- [WHISPERS] No offense.
+- [IN NORMAL VOICE] I know you aren't, uh, asking and maybe it's a little silly... but, uh, you have my permission to marry him.
+- He's all yours, so...
+- Take care of him.
+- Thank you, Morgan.
+- Uh-oh.
+- We have a problem.
+- No. Sarah just has butter...
+- Look, moron. Look. The ring.
+- Walker, check your 6, by your feet.
+- Bartowski dropped the ring.
+- Oh, my God. Pick it up, pick it up.
+- Look at the moon, Chuck.
+- It's perfect.
+- [CASEY SIGHS]
+- [MORGAN CHUCKLES]
+- [CHUCKLES]
+- I've been to so many places around the world... but never been to a place as beautiful as this.
+- Chuck: I have.
+- Every day.
+- Every morning I wake up and I look at you.
+- When we brush our teeth, tandem style.
+- [CHUCKLES]
+- When we watch TV together. Whatever, anything, always... every time I look at you... it's the most beautiful place I've ever been.
+- I just... I feel I should be James Bond right now, you know?
+- The guy who is standing on this balcony with you in this moment...
+- I didn't fall in love with James Bond. I fell in love with you.
+- Here we go. Yup, yup.
+- She is good.
+- Sarah, I'm...
+- I'm gonna ask you a question right now, so please don't freak out, okay?
+- I won't.
+- I wanna spend the rest of my life with you.
+- Going on missions and saving the day and being heroes.
+- But mostly, though, I just wanna be with you.
+- At your side, always.
+- [CHUCKLES]
+- Sarah... will you... ?
+- AGENT 1: Freeze. Don't move. CIA.
+- Chuck: Whoa, whoa, what's going on here?
+- We're on a mission. Stop. No.
+- It's legit.
+- AGENT 2: Agent Sarah Walker, you're under arrest.
+- For what? AGENT 2: Treason.
+- What?
+- What? No. No.
+- No, hey, hey.
+- Sarah: Chuck.
+- Wait.
+- Chuck: Stop. This is all wrong.
+- Sarah: Chuck?
+- How could anyone possibly think that Sarah is a traitor?
+- I mean, look at this stuff. Look at this stuff, Casey.
+- She was making the drop That was our mission.
+- Sit down, Bartowski. You're making me dizzy.
+- I was gonna propose to her, Casey.
+- You know, I proposed once.
+- To Kathleen.
+- We had plans to go to Niagara Falls. I was about to ship out.
+- We were young, and I was stupid, and things got screwed up.
+- So I ended up proposing in a Buffalo bus station.
+- Not exactly the most romantic spot in the world.
+- But I'll always have that day. I'll always have that look on her face.
+- There's no such thing as a perfect moment... or a perfect spot.
+- So forget about the balcony, Bartowski.
+- All you need is the girl.
+- General, please, please, please.
+- Go ahead, Chuck. You two have some things to discuss.
+- I don't need a balcony, a sunset. We have each other... and that's all that matters.
+- Chuck, I'm leaving.
+- What?
+- What? Where are they taking you?
+- They're not taking me, Chuck. I'm going.
+- Beckman never thought that I was a traitor. It was a setup.
+- The perfect opportunity to establish my cover as a double agent.
+- Chuck, we have so much together.
+- We have a real life and a future.
+- But I need to go back to being the old me... just for a little while longer... if I plan on surviving this.
+- Surviving what? Where are you going?
+- I'm going undercover into Volkoff Industries.
+- Take them down from the inside.
+- No.
+- No. No, you're not. That's exactly how I lost my mom.
+- That's how you're gonna get her back. I'm doing this for you.
+- I'm doing it for us.
+- Why does it have to be you?
+- Chuck, you have to trust me.
+- For Beckman's plan to work, it has to be me.
+- I'm sorry.
+- Agent Walker, it's time.
+- I love you.
+- I love you too, Chuck.
+- I'm not gonna come back without your mom.

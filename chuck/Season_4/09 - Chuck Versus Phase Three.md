@@ -1,0 +1,688 @@
+# Chuck Versus Phase Three
+
+- Hey, I'm Chuck. Here's a couple of things that you might need to know or maybe you just forgot:
+- This isn't a code, Devon, this is a real car.
+- My dad must have left this for me.
+- Your father never wanted you to see this.
+- See what?
+- Come on, flash!
+- Sarah, my mom did something to me with that device.
+- I can't flash. The Intersect is gone.
+- Agent Carmichael's coming with me.
+- Surrender or die.
+- What do you want?
+- I want the Intersect.
+- It's gone.
+- I lost it.
+- The less you resist, the less painful this will be.
+- ♪ ♪
+- You know what I really want?
+- This could be a very good "show me, don't tell me" situation, I think.
+- I want you to flash.
+- What?
+- I want you to flash for me.
+- Come on, do it.
+- Show me.
+- But I-I can't.
+- You know that I can't.
+- The Intersect's not working.
+- Why are we even talking about this right now?
+- Are you sure that you can't flash?
+- Well, yeah.
+- Yeah, pretty-pretty sure.
+- But we-we could do other stuff, you know.
+- We could, uh, we could kiss more.
+- Or... talk.
+- No. Never mind.
+- Why? No, no.
+- Hey... Hey, you, hey.
+- Hey.
+- You know, there's pills for this.
+- Easy.
+- Easy, buddy.
+- This is all in your head.
+- You have got to get over this.
+- I mean, come on... you really expect to keep a girl like that without flashing?
+- This doesn't make any sense.
+- Why are you here?
+- I shouldn't even be here.
+- I- I was on a mission.
+- In Switzerland.
+- I was on a gondola.
+- I was taken by a Belgian.
+- What is going on? !
+- Why isn't this working?
+- He knows he's in a dream.
+- Lester was the wrong choice.
+- Intensify the current.
+- Try something else.
+- I just need to figure out the right combination of people from his life to use.
+- He calls this Ellie a lot.
+- I can't believe something's blocking the Intersect.
+- You've got to dig it out.
+- I can sell the secrets in his head for more money than you can ever imagine.
+- Telling me again isn't going to make this go any faster.
+- Agent Carmichael's brain will access the Intersect if it's properly motivated.
+- It was clear from his interrogation that anxiety is his strongest motivating emotion.
+- God knows he is a neurotic man.
+- When we find the right mix of people from his life to pressure him, he will become so anxious about not having the Intersect that his brain will be forced to flash.
+- But this woman, she will do most of the work.
+- Nothing makes him more anxious than this Sarah Walker.
+- Five countries in three days and nothing.
+- Where's Chuck, Casey?
+- Got every agent in Castle out looking for him.
+- We'll find him.
+- Let's regroup with Beckman; she'll have something.
+- We have nothing. The Berlin team had an address for one of the Belgian's lieutenants, but by the time we got a search warrant, he was onto us and had disappeared.
+- The same thing happened yesterday in Caracas.
+- And our target dropped behind North Korean lines where we couldn't follow.
+- General, all that I'm hearing is that a lot of bureaucracy is keeping us from finding Chuck.
+- I know, but we have to work with our allies here.
+- Why don't you get a couple of hours of sleep.
+- I'm not going to sleep, General.
+- Chuck is out there without the Intersect with people who think that he has it.
+- He's never been more helpless.
+- I know.
+- And be assured that the Intersect is a huge priority to the U. S. , as is finding the Belgian before he sells our secrets.
+- Forget the secrets!
+- This is about Chuck!
+- General, I'll make sure we get some rest.
+- We'll check back with you later.
+- Don't. I know.
+- You know, being a worried girlfrie isn't gonna help him at all.
+- You need to be a spy, professional.
+- Fine.
+- Where do we look next?
+- Is she off?
+- Yeah.
+- Welcome back.
+- And Daddy got something.
+- Daddy likes.
+- Daddy...
+- I'm Daddy.
+- You guys were kind of-
+- Okay, well, you were just looking at me like-
+- This is from our Swiss field op, which, by the way, I just love saying.
+- His name is Anand Chanarong, okay?
+- And he's an aide to the Thai ambassador, but he's also a known associate of one...
+- Guys, come on. Baddie t Belgian.
+- He handles all the Belgian's dirty work- extortion, kidnapping.
+- And he's in L.A. , at the Thai embassy.
+- Which is Thai soil.
+- It's not in our jurisdiction.
+- We don't have jurisdiction, Walker.
+- Come on, Casey, be a spy.
+- Who told you to bring this in here?
+- This is the ugliest rug I've ever seen.
+- We're looking for the Belgian.
+- Who are you?
+- He's taken somebody.
+- Charles Carmichael. Goes by Chuck.
+- What do you know about him?
+- You have no right to be here on Thai soil.
+- Fine. Welcome to American soil.
+- Now, where's Chuck?
+- I'm asking you again. .
+- Where can I find the Belgian?
+- You know, you don't understand how high the stakes are here.
+- You're gonna tell me exactly what I want to know!
+- Listen, Casey, I think Sarah's about to go all k*ll Bill on this dude.
+- And rumor has it that Beckman knows somebody stormed in the embassy and stole a national.
+- Now, I know I'm the new guy here, but I think that's kind of international incident-y, isn't it?
+- Walker knows what lines not to cross.
+- Walker!
+- A word, please.
+- Well, can it wait?
+- No.
+- He's not talking.
+- And he's a smirker. You know, just 'cause I helped you bring him here doesn't mean I'm giving you free reign.
+- You need to cool down, get some rest.
+- I'm not going anywhere.
+- I was wrong about you.
+- You're not acting like a worried girlfriend.
+- No, you're acting like a spy I used to know, before Chuck.
+- Langston Graham's wild card enforcer.
+- I didn't like that Sarah Walker. You know why?
+- 'Cause she was unpredictable.
+- Now, you're gonna go home.
+- I insist.
+- You insist? How are you gonna do that?
+- I- I insist. I... I insist.
+- Hey, hey, listen to me.
+- Look, Sarah, we all nt to find Chuck, okay?
+- But I think we could all use a little rest, too, right?
+- I know I'm super cranky if I get under nine hours, so let's-let's calm down and-a let's go get a few winks.
+- Then you go back to your manhunt.
+- Nice and well-rested.
+- Okay?
+- You have two hours.
+- Whoa.
+- Man, that was scy.
+- I do okay?
+- I was kind of shaking there.
+- I- I know it's not scary for you, but...
+- Hm...
+- I can't believe you have a 36-hour shift.
+- You're pregnant; it's not okay.
+- Honey, the nurses reserved me my own broom closet.
+- I have a very nice cot.
+- I will steal some winks.
+- Between these long shifts at the hospital and all the stressing about your family, I'm worried about you, and the baby.
+- Listen, I promise to take care of myself.
+- You need to be calm and peaceful.
+- I will be calm and peaceful.
+- Not too calm.
+- And don't go falling asleep at the wheel.
+- Speaking of, can't you take theew Sienna?
+- I like my dad's ride.
+- Did your dad's ride get five out of five stars in side-impact protection?
+- What is this?
+- Whoa.
+- What is this thing?
+- I've never seen anything like it.
+- I don't know.
+- I thought that I found everything of my dad's that there was to find.
+- Do you think it's spy stuff?
+- I don't know.
+- Uh, we could try and turn it on and figure out.
+- Righ I don't want it to be spy stuff.
+- You do it.
+- Okay.
+- Nothing.
+- sh**t.
+- I'm late.
+- I can't believe that I have to work for two days.
+- This is all I'm gonna think about the whole time. It's gonna k*ll me.
+- Babe, remember, we're staying calm.
+- Okay? You go to work and you don't worry.
+- Maybe I'll just call Chuck and we'll figure it out.
+- No. No Chuck, okay?
+- If this is spy-related, it's gonna reel him back in.
+- I want to keep him safe.
+- Chuck, listen to me very closely.
+- If you don't access the Intersect, forget about Sarah, Ellie, Morgan and this Awesome character.
+- No one will love you.
+- You'll be nothing.
+- You will lose them all. niffs)
+- ♪ ♪
+- How you holding up?
+- Not great.
+- Yeah... no. Me, either.
+- I've had this awful taste in my mouth ever since Chuck disappeared.
+- Which makes me think, wherever he is, he's probably eating something icky.
+- Strange twin thing.
+- Do you know what this is?
+- No.
+- No. No, I've never seen it before.
+- I really miss him.
+- Fine, okay? I-I fold.
+- It's Chuck's proposal plan. hate myself.
+- Chuck was planning on proposing?
+- Yeah.
+- See, it's a combination of... of things that are important to both of you, and... and some of it is just from when he was little.
+- So, here is where he was going to drive up in his DeLorean.
+- Of course.
+- That would be you, coming down on a wild stallion.
+- You meet here.
+- And then, from there, you guys were going to hop in this Lamborghini and take off down the coast.
+- This actually, though, might be an older draft.
+- You know, it's been revamped since puberty.
+- When was he planning on doing this?
+- I don't know. You know, I mean, ever since he lost the Intersect, the proposal plan got put on hold.
+- Why?
+- Did he think that I wouldn't want to marry him without the Intersect?
+- Is that how I made him feel?
+- No. No, Chuck knew that...
+- Chuck knows that you love him, Sarah.
+- Okay, it's just, you're kind of a big fish, you know, and to a regular guy with no supercomputer in his brain, I got to think that that's pretty intimidating.
+- But that's not the reason why I love Chuck.
+- I do want to spend the rest of my life with Chuck- with or without the Intersect.
+- That's fantastic. That's great.
+- Yeah, and he knows that, right?
+- Because you told him that.
+- Oh.
+- So you'rcertain you know nothing about the whereabouts of the Thai aide, Anand Chanarong.
+- Haven't heard a word, ma'am.
+- How mysterious.
+- I want you to keep an eye on Agent Walker.
+- I think she might be... on the edge.
+- What are you doing back here, Walker?
+- Is the surveillance camera in Chanarong's cell is still out?
+- What's in the bag? You should go.
+- You're not going to want to be here for this. I'm not going anywhere.
+- I insist.
+- Do you feel like talking yet?
+- An American agent in a government facility would never use any of that.
+- I'm not afraid.
+- You're right.
+- Normally, I wouldn't threaten a subject with death by ammonia injection- burning somebody from the inside out.
+- Doesn't sound like something that's in the Geneva Convention, does it?
+- But this man that I'm looking for- he loves me.
+- He wants to marry me.
+- I see.
+- It's amazing what a woman will do to find a husband.
+- Even the toughest spies in the world are just racing against that biological clock.
+- Tick, tick, tick, tock.
+- You got me.
+- I'm just a needy, love-crazed girl on a husband hunt... who's trained in over 200 ways to k*ll you.
+- Afraid yet?
+- The Belgian has a hideout in the jungles of northern Thailand, near the Burmese border.
+- That jungle is filled with nothing but k*ll.
+- I'm going with you.
+- You're not going where I'm going.
+- I'll do anything to get him back, and I'm not going to take you down with me.
+- You were right.
+- I'm different without Chuck, and I don't like it.
+- You let me out of here. You need me.
+- No. I need Chuck.
+- Walker!
+- Who's got a screw loose?
+- That has two meanings.
+- Hey, guys, thanks for coming.
+- I'm kind of hopeless in tech land, and I was hoping to get this computer fixed before Ellie got home from her monster shift.
+- Well, lucky for you, my Tuesday trapeze class was canceled, so we're all yours.
+- You have a Roark 7?
+- Yeah, guess so.
+- Oh, one other thing- this little project has to stay a secret fm Chuck.
+- Can we do that?
+- Yeah, yeah, absolutely, we can, my large, chiseled, dulce de leche colored friend.
+- But we want a little... something from you, if you know what I mean.
+- No, I actually have no idea what you mean.
+- Four words: my abscess, Lester's gout.
+- Medical consult for tech expertise.
+- You in?
+- Yeah, uh, anything for Ellie.
+- Good. Fabulous. Fabulous.
+- All right, now, let me look at the computer while Jeffrey takes off his pants.
+- Yeah, I... I need to get my kit.
+- Hey. I'm so sorry. I'm so sorry.
+- I closed my eyes for a minute, and then she was gone.
+- She's so sneaky. She must make an awesome spy.
+- Walker went AWOL. Open the door.
+- I kind of figured she'd do... something crazy like this.
+- I might be responsible.
+- I told her about Chuck's plans on proposing.
+- What? ! You threw gas on the fire.
+- Can't you ever keep your mouth shut?
+- I'm sorry, Casey, okay?
+- I overshare to connect. I'm a connecter.
+- Open the door. Yeah.
+- Okay, I...
+- What? I want in.
+- Okay? No, listen to me.
+- Chuck is my best friend, and I want to do more than just sit behind some computer to try to find him.
+- Absolutely not. Chuck's in the jungles of hell.
+- It's way too dangerous for you.
+- Well, fine.
+- I mean, you want out, I want in.
+- All right? Come on, I'm ready to go.
+- I have a backpack.
+- Casey, it's Chuck.
+- Fine.
+- Deal? Deal.
+- No b*ll*ts for you. What?
+- Come on. We're going to Thailand. Ow!
+- You can talk to me.
+- I heard the Belgian has a hideout here.
+- Is this true?
+- First, sit down.
+- Relax.
+- Join me for a drink.
+- He has my boyfriend.
+- Where is he?
+- Maybe I can be your boyfriend.
+- Anyone else want to be my boyfriend?
+- Sarah, no.
+- I can't lose you.
+- Please don't go.
+- I'll do anything!
+- You say that, but then you don't flash.
+- You clearly don't want me enough.
+- I do.
+- But I... but I can't flash.
+- I know you wouldn't do this.
+- I know this is just a dream, but please come back!
+- It's not working.
+- He's still aware enough to suppress the Intersect.
+- Look at this.
+- I'm stimulating the hippocampus as much as I can without causing permanent damage.
+- Don't take this the wrong way, Mueller, but you are boring me.
+- Push harder.
+- Then we are in phase three.
+- We wipe out everything in his head but the Intersect.
+- We lobotomize him.
+- So, there would be no personality, no memories, no thoughts in the way of the Intersect.
+- All right.
+- Let's do it.
+- That was very impressive.
+- I'm guessing you are the woman who has been fighting her way across Thailand.
+- The people have been talking much about the giant blonde she-male.
+- Can you tell me where to find the Belgian?
+- He's taken somebody very important to me.
+- I don't like the Belgian, so I will tell you where he is.
+- But first, a little fun.
+- I will give you the information if you can b*at my best fighter.
+- It's been months since he's had a good match.
+- He k*ll too fast.
+- I think you might make things entertaining.
+- So... yes?
+- This ends now!
+- I definitely know how to use this, dirtbags!
+- Smart move.
+- Good move, gentlemen.
+- Nice beard. Nice beard.
+- Sarah!
+- Morgan?
+- Yeah, yeah. Are you okay? Hold on.
+- Using this?
+- Here, water.
+- Some water.
+- How did you find me? How did we find you?
+- Half of Thailand is talking about the giant blonde she-male that's tearing through their town. Are you kidding me?
+- But it's okay now. Casey and I are here.
+- Oh, my God! Scary snake! Scary snake!
+- King cobra!
+- Walker, what are you doing here all alone?
+- This is nothing but scoundrels, assassins and warlords.
+- The scum of the Earth.
+- Ah, Mr. Casey, your usual?
+- Come on. Let's get out of here.
+- A deal's a deal.
+- The fight's not over.
+- I b*at your guy, you tell me where the Belgian is.
+- I'm gonna finish this.
+- Seriously, does no one care? There's a cobra in there!
+- Oh, whoa, whoa, whoa, whoa.
+- You are not getting b*ll*ts for a long, long time.
+- There's a lot of b*ll*ts.
+- Tons and tons of b*ll*ts.
+- I can't work with this. Nando!
+- Posidrive screwdriver, stat!
+- What is this? This is not a pos...
+- Are you gonna earn your lanced boil or aren't you?
+- Agh! You know what? Just go!
+- Jeffrey! Hey, rise, man! We only got a few hours left till the end of Ellie's shift and I can't make heads or tails of this thing.
+- Can't anne upstairs help?
+- Whoo, what a relief.
+- So I just insert the softener and...
+- Yep, that should do it.
+- I really appreciate your help.
+- I know you're a heart doctor, and don't often deal in the darker corners of the human body.
+- No, no, sure don't.
+- Now, you have a part that Lester needed?
+- Sure do.
+- Here you go.
+- Thank you.
+- Nice thing you're doing for your lady, by the way.
+- Thanks. I'm gonna go wash up.
+- ♪ ♪
+♪ ♪
+- Yeah!
+- Hello? Hey! Finally got you.
+- I haven't seen you in a few days. Ellie...
+- Ellie, Ellie, listen, I don't know how to tell you this, but I'm in major trouble.
+- What's going on?
+- Listen, listen, okay, look I'm sorry. Please don't be mad, but I've been spying again, and I've been taken, okay?
+- I need you to call Sarah, I need you to call Casey.
+- Hah!
+- Oh, yes.
+- Now where's Chuck?
+- I am somewhere in the jungle in Thailand and I am running for my life.
+- Can't you flash? Well, no, I can't.
+- I think you can.
+- Ellie, you don't sound very upset.
+- Well, I just know you could flash if you really tried.
+- This is all a dream, too.
+- I can't get out of here, can I?
+- No, Chuck, you can't.
+- My name is Dr. Mueller.
+- I'm the one doing this to you.
+- If you don't access the Intersect, I will be erasing everything that is you: your thoughts, your memories, your life.
+- You're real.
+- I'm very real.
+- Now, Chuck, do you want to disappear or do you want to give me the Intersect?
+- I can't.
+- Look, I'm sorry about Castle, but Chuck...
+- No, no, it's all right.
+- The moron told me he blabbed about the proposal.
+- I'm not leaving until I find him.
+- Neither am I.
+- Wow. It's like your g*n is your soul.
+- Your metaphorical "yes" to a question she couldn't possibly bring herself to ask.
+- Okay, emotion later. Tonight we find Chuck!
+- Rear with the gear. You ride in the back.
+- Tonight I ride in the back.
+- Initiating phase three.
+- How long will it take?
+- To wipe his mind clean? It varies.
+- But look at this section here.
+- It's beginning.
+- Good-bye, Chuck.
+- Hey, Chuck? Chuck?
+- Hey, hey, wake up, buddy.
+- Hey, son. Get on up.
+- You've been sleeping for a long time, man.
+- I know... I know that this is still just a dream, but you are all very real.
+- Of course we're real.
+- No. No, no, no, no, no, I- I-I was taken.
+- And I almost escaped.
+- No, that was a dream, too.
+- Like The Manchurian Candidate or that episode of either Family Ties or Hogan's Family.
+- I don't know what you're talking about, buddy.
+- But we sure would like it if you were to flash.
+- Ah!
+- See? See? I told you this is just a dream.
+- A dream that hurts. Ow.
+- Here. Okay.
+- Here's my pitch: What if you we didn't use g*n this time, okay?
+- If you guys don't use g*n, they don't use g*n.
+- If they don't use g*n, we have this lovely little mission where nobody gets sh*t.
+- You see what I'm saying?
+- Hmm, a diversion instead.
+- A magnet.
+- Ready, Morgan?
+- g*n. Let's use lots of g*n!
+- What do you think it feels like to watch your life disappear?
+- Chuck?
+- Hey, Chuck.
+- Morgan?
+- It's me, buddy, yeah.
+- I'm right here, okay? Now just flash.
+- Right, this is a dream.
+- This is only a dream.
+- Chuck, over here.
+- I need ya to flash, son.
+- Okay, I'm ready to wake up now.
+- I mean, remember when Sarah left you?
+- Oh, my God.
+- That was, that was funny.
+- I mean, man.
+- Chuck.
+- I'm on TV.
+- What's it gonna be, Bartowski? Huh?
+- You want to be a nerd or you want to be a spy?
+- Flh or become expendable, Agent Bartowski.
+- Flash, okay?
+- Flash now, Chuck.
+- This is your last chance. Do it, Bartowski.
+- What's the matter with you? Don't you love your country?
+- Can I get out?
+- Come on! Flash!
+- Do you want to be more than just a nerd? I want to get out.
+- No! No, I can't!
+- I can't!
+- You need to flash!
+- Hey. Hey, be care-
+- Hey, only you can prevent forest fires, man.
+- This is daerous.
+- Be careful.
+- Is this a hostel?
+- Or is there, is there a hostel nearby because... ?
+- It's-It's a book.
+- Just a book.
+- Oh, man.
+- Help me out here, guys.
+- Hey, you!
+- Shut up.
+- Get on your knees.
+- Who brought their dad to the party?
+- ♪ ♪
+- I have some friendship bracelets.
+- All right, this-this is, like, a violation of my civil rights.
+- Looks like we didn't need the g*n after all.
+- What is up with this she-male thing?
+- Chuck, it's okay.
+- Ellie... Ellie, help me.
+- Help me.
+- I know you're not real.
+- But help me wake up.
+- Chuck, I'm right here.
+- We all really need you to flash though.
+- No. No, I can't!
+- No. Get away from the door!
+- Stay with me!
+- Help me!
+- Marco! Tomas!
+- What's going on out there?
+- None of the guards are answering.
+- Let's get out of here.
+- I've been looking for you.
+- Chuck!
+- It really is no use.
+- He's almost completely gone.
+- Shut up!
+- Chuck?
+- Chuck!
+- Oh, my God.
+- Chuck, come on, please wake up.
+- Chuck, listen to me. I'm here.
+- Chuck, I'm here.
+- Chuck, I'm here.
+- But you're not.
+- You're not real.
+- This is a dream.
+- I came to rescue you.
+- I'm right here, Chuck.
+- Chuck, please, come on.
+- Hey. Hey, hey, hey.
+- Tell him what you told me before, okay?
+- He'll hear that, I know it.
+- This is your chance. Don't-Don't be Sarah Walker the spy, be Sarah Walker the girlfriend.
+- Chuck, please.
+- Chuck, I love you.
+- Please wake up.
+- I have so much that I want to tell you.
+- I found your proposal plan.
+- No, no, no, no, no.
+- This is my mind playing tricks on me.
+- You don't know anything about my proposal plan.
+- You we gonna do it on the beach in Malibu.
+- Where we watched the sun rise after our first date.
+- There were several race cars involved.
+- I revised that.
+- Chuck, I want to spend the rest of my life with you.
+- I don't care if you have the Intersect or not.
+- Without you, I'm nobody.
+- I'm nothing but a spy.
+- Come back to me, Chuck.
+- I want to marry you.
+- ♪ ♪
+- Chuck.
+- He's okay. He's okay.
+- Yeah, he's fine.
+- Hi.
+- Bro, are you almost done yet?
+- Ellicalled three times, see if I figured this thing out.
+- Well, I'll examine anyone's dark places for that woman.
+- I'm at the end of my rope.
+- Not to worry, my supple yet hard-bodied friend.
+- All right, you really n't need to call me th.
+- Okay, people, gather, gather, gather, humans!
+- You, uh, you minions ready to see what your broken bodies have wrought?
+- Do it.
+- Here goes.
+- Nice work, amigo.
+- You did it.
+- Hmm.
+- Needs a password.
+- "Knock knock. "
+- It's an impenetrable riddle.
+- I could hack it.
+- Take me about 12 hours, and, uh... maybe I should try a colonoscopy.
+- Okay, everyone o now.
+- Let's go.
+- We're done.
+- Thank you. That's no to the colonoscopy?
+- Congratulations, team.
+- The Belgian is in custody, and America's secrets are safe once more.
+- Oh, yeah, that's what I did today.
+- Agent Bartowski, I trust you are feeling better.
+- Yeah. Uh, yeah.
+- I- I feel fine.
+- I'm a little hazy on... everything.
+- But I'm much better, thank you.
+- And, Agent Walker, you are back to normal?
+- Yes, uh... yes, I am, General.
+- Very good, because we have something important to discuss: Agent Bartowski's position in the agency without the Intersect.
+- Excuse me? The government still wants me?
+- The Intersect appears to be buried for good, but we'll find a use for you.
+- You're an asset with or without it.
+- Yes, he is.
+- One last thing.
+- You're absolutely certain that, even though the Belgian and Chuck were both found in Thailand, that you had nothing to do with the kidnapped Thai official who woke up in his own bed this morning, with no recollection of where he went for two days?
+- Hmm?
+- No, ma'am.
+- Crazy coincidence.
+- Welcome back.
+- I agree.
+- Welcome back.
+- Thank you for coming with me.
+- Beckman knew, right?
+- I- I think she knew.
+- Okay, so I still spy.
+- More importantly, you're home.
+- Hey, um... you should know that the proposal plan that you found- just a rough draft.
+- So you do remember what happed?
+- Yeah, maybe a little.
+- Uh, a scoche.
+- But don't think you know all the surprises that I got hidden up my sleeves, becae my sleeves are chock-full of surprises.
+- You know, I'm surprised I could even get in here with all the surprises that are in my sleeves.
+- I got magic coming your way, baby.
+- Okay? Magic.
+- Magic.
+- I've got no magic.
+- You ruined my life.
+- What? I saved your life.
+- I took a Thai leech for you.
+- But-But now I can't use my proposal plan, buddy.
+- Come on. I need something new.
+- I ne to surprise her, but how can I surprise a super spy?
+- Hey, listen, it's fine.
+- Team Chuck and Morgan have a new mission: To plan a oposal that'll blow Sarah's mind.
+- And by the way, you should've seen Sarah without you.
+- Man, I mean, maybe it was a good thing that you lost the Intersect, 'cause now you know that girl loves you.
+- I mean, she will do anything for you.
+- Thanks, buddy.
+- Yeah, no, seriously, anything, okay?
+- I had to pick a Thai tooth out of her arm.
+- Ow.
+- I got people who'll take teeth and leeches for me.
+- I'm a lucky guy.
+- It's good having you back.
+- I'm so happy to be home.
+- Mm.
+- And I am so happy to tell you that you have nothing left on your plate today.
+- Okay.
+- Hi.
+- Your husband has fixed this computer.
+- Really?
+- Oh, you're amazing.
+- All we need now is a password.
+- The prompt is "Knock knock. "
+- Know what it could be?
+- It's not "Who's there. " I alrey tried that one.
+- I know what it is.
+- When I was a little girl, I would always mess up the "Knock knock" routine.
+- My dad would say "Knock knock" and I would say "I'm here. "
+- It made him laugh so hard I never wanted to do it right.
+- Oh, my God.

@@ -1,0 +1,707 @@
+# Chuck Versus the Kept Man
+
+- Hi, I'm Chuck. Here are a few things that you might need to know.
+- Come on. Carmichael Industries. The independence and freedom to do what we want when we want.
+- I had no idea I had such strong feelings for him.
+- I have to disappear for a while.
+- All members of Carmichael Industries have a position open to them at the CIA.
+- If we go back, it's just gonna be missions and secrets.
+- I don't want to go back.
+- Okay.
+- All we need is each other.
+- So, Mr. Carmichael, tell me, how do you feel like dying today?
+- Honestly? You're gonna make me decide?
+- I find it says a lot about a man.
+- I-I, you know, I don't know.
+- Can't you just pick something?
+- I've got a lot on my plate right now.
+- Like what?
+- Running your own company.
+- It's just, you know, there's a lot of responsibility that comes with that.
+- Not that I don't care about recovering spent nuclear fuel rods, 'cause I do, but you got to keep your eye the bottom line.
+- And with missions, the bottom line is cash, man.
+- You know, with all these private security firms out there, I-I think maybe I'm coming at this the wrong way.
+- Maybe Carmichael Industries needs a new hook, you know?
+- Sarah: Almost there, Chuck.
+- You're very good at talking.
+- Exactly.
+- Any spy can sneak into a building and-and snap a few necks.
+- But what are we doing right here, right now, the two of us?
+- We're talking about our hopes and our dreams.
+- So you're spies that care?
+- You're a genius. That's inspired. I'm gonna use that. Can I use that?
+- I'm glad I could help you, Mr. Carmichael, but I think I'll start by cutting out your tongue.
+- That would be a horrible idea.
+- I would not want to do that.
+- Especially with such a blunt object.
+- Stop it, baldy!
+- Oh, my God.
+- Chuck, are you okay?
+- I think we just had a breakthrough, honey.
+- Do you think it's okay to touch that without a radiation suit?
+- Shouldn't be any worse than a couple dozen X-rays.
+- We'll be fine, as long as no one's pregnant.
+- (laughs)
+- (chuckles) Okay, Casey, I'm gonna let you take that. Let's go.
+- Don't tell me you're getting sentimental.
+- "Welcome back, Gertrude. "
+- "Good to see you, Gertrude. "
+- "I missed you, Gertrude. "
+- Just nod your head if you agree with any of this.
+- Didn't hear you come in.
+- That's because I took off my heels.
+- Among other things.
+- I guess you heard you're not wanted for m*rder anymore.
+- Beckman put a lid on that whole Decker thing.
+- Turns out, he was just a patsy, just...
+- I didn't fly halfway across the world to be debriefed.
+- Uh-uh.
+- That's your job, John.
+- Mm...
+- I thought you said you were coming to bed.
+- Have you been up all night long?
+- That bad guy got me thinking.
+- The one who tried to cut your tongue out?
+- Our mission statement, our mission statement.
+- We spend so much time focusing on spy missions, that we've lost sight of the-the, you know, uh, "what are we doing, why are we here" mission.
+- Are you feeling okay?
+- I think that pizza that Morgan left in the fridge is starting to turn.
+- I have never thought more clearly in my life.
+- Oh, "the things we feel but do not share. "
+- What can we, Carmichael Industries, offer our clients that other security firms can't? Go.
+- Discount electronics?
+- We care, Sarah.
+- We care.
+- C-A-R-E.
+- Clandestine Agents Relating Emotionally.
+- Get it?
+- (groans) You hate it.
+- No, I think it's very interesting.
+- I just, uh, I just feel very queasy suddenly.
+- Huh.
+- Maybe the pizza was bad.
+- Who told you you could get dressed?
+- It's a work day, remember?
+- First of all, I have something for you.
+- Hmm?
+- Open it.
+- It's a... sweater.
+- Why's it so soft?
+- It's cashmere.
+- Doesn't feel flame-retardant.
+- It's the perfect weight for a winter night in South Beach.
+- What's in South Beach?
+- The second part of your surprise.
+- You and I are going to Miami for three nights at the Maya.
+- In the middle of the week?
+- I can't just take off and sun my buns in Miami.
+- No, no, no.
+- I have a job.
+- Two, technically.
+- Right, right.
+- I get it.
+- I'll, uh, call you later.
+- Okay.
+- Good.
+- Hey.
+- Don't forget your new sweater.
+- Why are we looking at surveillance footage from this morning?
+- I don't know... yet.
+- Ever since I got my brain cleaned, I've had this suspicion that something's happening behind the scenes here.
+- Wait a minute.
+- Is that... ?
+- Bingo.
+- John Casey wearing a deep V-neck cashmere sweater.
+- Who are you, John Casey?
+- And what's he doing sneaking around the Buy More hours before his shift starts?
+- Maybe he's here to meet somebody.
+- Jeff: Those two.
+- Of course they're in on it.
+- In on what? They're probably just doing it in the home theater room like I do.
+- Not likely.
+- I'm gonna need some three-by-five cards, stat.
+- Okay.
+- Stat!
+- Ooh!
+- I got to say, I'm grooving on that deep V, Casey.
+- What do you got here?
+- "Clandestine Agents Relating Emotionally. "
+- (snaps fingers) CARE?
+- Mm-hmm.
+- You really think this is what our clients want, private security firm that holds their hands, builds their self-esteem, tells them they're special?
+- Isn't that what everyone wants, Casey?
+- And it's no coincidence that we booked our first client in forever, hours after I put my CARE statement on our Web site.
+- We have a Web site?
+- Who's the client?
+- Hey.
+- I told you I was working.
+- So am I.
+- You're the cl-- She's the client?
+- May I remind you that you have your own personal security firm.
+- My personnel are stretched a bit thin.
+- Besides, your company offers a level of service that other companies just don't offer.
+- You care.
+- (mouthing)
+- And I intend to take full advantage of that.
+- See? Mission statement working already.
+- ♪ Chuck 5x09 ♪
+Chuck Versus the Kept Man
+Original Air Date on January 6, 2012
+- ♪
+- (tires screeching)
+- ♪ Na-na na-na na- ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Rocky Falcone, cologne wearing scumbag He's m*rder his way into becoming one of the biggest arms dealers in Miami.
+- We have some business that he insists on conducting face-to-face.
+- You'll act as protection.
+- Where's the meet?
+- Miami.
+- Mm, what a coincidence.
+- Is it okay if I make the retainer fee payable to Carmichael Industries? Sure.
+- Actually, I'm gonna pay the whole fee right up front.
+- We haven't said yes to running...
+- Yes. Yes.
+- Meet you on the runway bright and early.
+- That way, we can catch some pool time.
+- Chuck: Sounds good.
+- See you in the a. m.
+- What is your problem?
+- Yeah, seriously, what is your problem?
+- That was not very caring, Casey.
+- An above-board arms deal in Miami?
+- Sounds like a vacation.
+- Haven't you had enough kidnapping, torture and bloodshed?
+- Chuck: Besides, we haven't made a cent in months, and your girlfriend has deep pockets.
+- She's not my girlfriend.
+- Whatever you want to call her, she's our new client.
+- Pack your bags, lover boy.
+- We're going to South Beach.
+- Are you going out of town?
+- Yeah, something came up.
+- I have to leave for a couple days.
+- Movie night.
+- It's okay, we'll do it next week.
+- And don't worry, I have already chosen what we'll watch.
+- "Downton Abbey. worry, I have already chosen An upstairs/downstairs costume drama in early 1900s England. "
+- Yeah, something tells me, not gonna be a lot of explosions in that one. Are you kidding?
+- What about the b*mb they drop on Edwardian convention?
+- (scoffs)
+- Uh, listen, I-I-- yeah.
+- It's okay, you don't have to explain.
+- You're my hero.
+- Please pardon the speculative nature of my research.
+- This is just the first stab at what I think our coworkers are really up to.
+- Okay.
+- Obviously, some of my deductions are quite tenuous, but if you'll bear with me for just a moment...
+- You think they're spies?
+- Casey and Sarah?
+- Yes. Probably NSA or CIA.
+- Chuck is some kind of asset.
+- The only thing left to figure out is this.
+- There's a fourth member of their team.
+- He's their secret w*apon.
+- What are you guys doing?
+- He's seen too much. Grab him!
+- Morgan: Guys! Guys, guys, guys, guys.
+- Jeff: You see how he slipped out like that?
+- Maybe he's our mystery agent.
+- (scoffs)
+- Wait, wait, easy. Easy there, Jeffrey.
+- I was with you on the whole conspiracy theory thing, but seriously, this loser, a spy?
+- I mean, come on. Come on. Yeah, I mean, come on.
+- Either way, he's gonna tell Chuck we're on to him.
+- Fine. We'll k*ll him.
+- What? No. Guys, I'm not gonna tell Chuck squat, all right?
+- I've been conducting my own investigation, and you guys are absolutely right.
+- You nailed it, all right?
+- There is a mystery agent. I've tracked him down.
+- And, uh, I got him.
+- You... are you, uh... you're gonna... this is gonna blow your mind.
+- You're gonna be, like, "What? There's no way he's, you know. "
+- But boom, there he is, all right?
+- If that's not James Bond, I don't know what is, right? Of course.
+- ♪
+- Hello, darling.
+- Oh, garcon, another daiquiri for me. And you?
+- Just another sparkling water, please.
+- You heard the lady.
+- And you can put that on Ms. Verbanski's room.
+- Thank you very much.
+- CASEY (over comm): Chuck, Sarah, stay focused on the mission.
+- Gertrude, you have a bogey closing from your 9:00.
+- Walker, you have a positive I.D. ?
+- That's a negative on Falcone, but there could be another one of his heavies.
+- Your call, Casey.
+- I'll handle it.
+- Package for Ms. Verbanski...
+- Whoa!
+- Thank you.
+- A little jumpy, John?
+- I thought he was one of Falcone's men. Didn't know what he had.
+- It's a little something that I found for you in the lobby.
+- What the hell is it?
+- It's a swimsuit, John.
+- Your job is to blend in around here, and I'd like you to put it on, please.
+- Change room right there.
+- Oh, God.
+- You know, look, I mean, honestly, Falcone is not gonna be showing his face down here.
+- You wanna go take a little dip in the hot tub with me?
+- No. No, I don't think that's a good idea.
+- No booze, no Jacuzz, what's gotten into my wife?
+- Look, why don't you just stay put and take care of the client?
+- I'm gonna go check on Casey, okay?
+- Casey.
+- (hushed): Just a minute!
+- Oh, God, I'm coming in.
+- I can't do it, Walker.
+- Sometimes Gertrude, she doesn't even listen to what I'm trying to tell her.
+- I can sympathize.
+- Thank you.
+- But you're putting on that bathing suit.
+- Like hell.
+- This is a dream mission, Casey, and I'm not gonna let you screw it up.
+- Do you how many skimpy outfits I have had to put on for this team?
+- Did you hear me complain when I had to put on a cat suit or seven-inch platform high heels or a belly dancing outfit?
+- Belly dancing?
+- Okay, that was private.
+- Look, just put on the banana hammock and stop whining.
+- You okay, Walker?
+- You seem a little emotional these days.
+- Shut up.
+- Guys, I lost Verbanski.
+- What? What do you mean, you lost Verbanski?
+- Falcone musta scoped our Mickey Mouse security.
+- Verbanski? Verbanski?
+- She's not responding on comms.
+- Her signal is still transmitting.
+- I'm showing her at the far west corner of the hotel.
+- Verbanski: Casey, I need your help!
+- We're coming in.
+- Let's go, let's go, let's go.
+- Falcone must be holding her in the Presidential Suite.
+- (door opens)
+- Where's Falcone?
+- We're meeting him for dinner, John.
+- In the meantime, I suggest we work up an appetite.
+- I'll show you what's under mine if you show me what's under yours.
+- You've been a naughty, naughty colonel.
+- What is it?
+- Sarah, what's wrong?
+- Everything.
+- It's all wrong.
+- (Casey sighs)
+- Well, very smart, Ms. Verbanski: meeting in public, bringing your own security team.
+- It's like you don't trust me. (chuckles)
+- (chuckles)
+- (g*n cocks) Easy, Casey.
+- This is my price.
+- And this is mine... provided the merchandise meets my specs.
+- Some woman, your boss.
+- I have a private w*apon range.
+- Meet me there at midnight.
+- And don't forget your checkbook.
+- Are you seriously considering going to an unsecured location?
+- John, I want those g*n.
+- And when I want something...
+- Any... (clears throat) Anyhoo, I'd like to, uh, on behalf of our team, propose a toast to you because honestly, kudos. I like how you do business.
+- Know what I mean?
+- This op is top-shelf.
+- Well, you know, at Verbanski Corp we have a work hard, play hard philosophy.
+- Here's to playing harder.
+- Excuse me. I'll be at the bar.
+- Don't worry. I got this. I got this.
+- Put it on your tab, Mr. Verbanski?
+- Mind if I give you a little advice?
+- If you use the word "care, "
+- I'm gonna take this glass, shove it down your throat and punch you in the stomach so it shatters, hmm?
+- Okay. It's not spy advice.
+- It's actually relationship advice.
+- She doesn't want a relationship.
+- She wants a lackey, a lapdog, a beefcake.
+- What is Verbanski really trying to tell you, John, huh?
+- Because even tough women like Gertrude and Sarah, they're constantly giving out these secret signals that you need to be sensitive to.
+- I know we spend so much time sharpening our spy senses that we forget to use this, this guy, the heart.
+- You know what I'm talking about.
+- And you need to learn how to listen with your heart.
+- Come on. I'll show you how it's done.
+- Are you all ready to order?
+- Oh, uh, I think I might need a couple extra minutes.
+- Mmm, you just kind of... gonna have to listen to her, listen to her, okay?
+- I know what she wants before she knows what she wants.
+- Observe.
+- Actually, I'd love to order for my lady.
+- If you don't mind, hon.
+- I think to wet her whistle, she'll start with a glass of your Barolo.
+- I'm so wrong. We're on vacation.
+- Vodka martini up.
+- Thank you very much.
+- Entree: bone-in rib eye extra rare, I'm talking blue or as blue as you can find. as in mooing on the plate. (moos)
+- That's bad-- I don't do a good cow. (chuckles)
+- She's like a book, and I'm an emotional speed-reader, my friend.
+- What's going on, bro?
+- Devon, you have been targeted.
+- Targeted? What? Who?
+- Jeff and Lester.
+- They think that you're some sort of international super spy.
+- (chuckles) Those idiots? Why?
+- Because I told 'em.
+- Maybe it's because Jeff is no longer an idiot, I don't know.
+- But those two stumbled upon our actual spy operation.
+- You see?
+- Gotcha. You need me to throw 'em off the scent.
+- Hey... now you're thinking like a spy.
+- Here's the key question: Can you act like one?
+- Can I go formal?
+- I've secured the U-238.
+- This device will make you more powerful than you ever dreamed.
+- Location forthcoming.
+- Wait, wait, wait.
+- Are you sure you don't want us to do a little recon before it's too late?
+- It's not my first arms deal.
+- I'm good for my half.
+- And you?
+- Ms. Verbanski, do you always dress your security this well?
+- Looks soft.
+- Just show us the g*n, huh?
+- Yeah.
+- I present to you... the Aegis.
+- Please, have a try.
+- Casey, don't we need ear protection or something?
+- Huh, not bad.
+- Not bad.
+- Verbanski Corp will take full delivery.
+- Three million dollars.
+- No deal.
+- Actually, I'll take your money.
+- But you can leave me your g*n.
+- (g*n cocking)
+- Casey, why aren't they dead?
+- Rocky: What your boss didn't tell you, is that the Aegis has a safety feature.
+- Each g*n can be coded so that it can't be fired at someone carrying an Aegis with the same code.
+- It's a way of preventing friendly fire.
+- (laughing)
+- Ingenious, no?
+- Quite.
+- Except my team's w*apon don't have that safety feature.
+- And it would be a shame if someone got sh*t.
+- The price just changed, Rock. How does free grab you?
+- Okay, would someone like to please explain to me what the heck is going on?
+- So this was your plan all along. We were the loser team you hired so Rocky'd think you were vulnerable.
+- Nice. No. I still need you, John.
+- Rocky is just the first piece of the puzzle.
+- The real mission starts now.
+- I'm out.
+- Casey, wait.
+- Whoa, hey... Whoa, whoa, whoa.
+- Team meeting, team meeting.
+- Casey, you can't just walk away.
+- If you quit now, we'll be lucky to see the retainer.
+- Besides, what did we talk about at the restaurant, huh?
+- What did we talk about?
+- Are you using this?
+- I think you owe it to our client.
+- Listen to her signals. What is she really telling you?
+- You think I need to be more sensitive?
+- More in tune with my girlfriend's emotions, hmm?
+- You're one to talk.
+- What's that supposed to mean?
+- It means you've got your head so far up your new CARE manifesto you don't even realize your own wife thinks she's pregnant and is hiding it from you.
+- What are you crazy? There's no way...
+- There's no way she could be pregnant.
+- I'd have to be the most clueless, insensitive, uncaring...
+- Uh, Chuck...
+- Sarah, I'm sorry. I didn't exactly pick up on your signals.
+- No, I'm sorry. I should have just told you.
+- It just felt like if I said it out loud, it would suddenly become real.
+- It's changing, it's changing, it's changing.
+- What is that-- an equal sign, an arrow?
+- A peace sign? Is that an option?
+- Um...
+- Uh, okay, that means no.
+- I'm not pregnant.
+- Okay, all right.
+- And you feel... ?
+- Strange.
+- Maybe a little relieved.
+- Same.
+- Same.
+- But this whole thing has gotten me thinking about our lives, our future. Chuck...
+- I mean, honestly, Sarah, is the spy lifestyle really where we want to be raising our kids, you know, putting ourselves in danger every day?
+- Chuck... Yeah?
+- You're spiraling.
+- Mm-hmm.
+- I need you back in immediately.
+- I was telling Casey the truth.
+- I leveraged Rocky Falcone to give up his supplier.
+- Pedro St. Germain is notorious.
+- All g*n and narcotics that come up from the South flow through him. He has an enormous FBI bounty on his head if I'm not mistaken.
+- And that's where the real mission comes in.
+- The FBI hired me to find St. Germain.
+- And Falcone kindly gave up his exact location in the Everglades.
+- We're in. We'll be in Miami by nightfall.
+- Actually, honey, I think we should discuss this.
+- Discuss what?
+- I don't think it's safe for prospective parents to be in a situation like this.
+- I've been toying with cutting back on the grunt work.
+- That's cute. I just figured you'd want to finish the mission you started and take some of the proceeds...
+- Un momento.  I was just saying maybe we should talk about... And she hung up.
+- Chuck, stop spiraling.
+- I'm-I'm not spiraling. You're spiraling.
+- Ooh, yeah, cashmere, nice.
+- Do you mind? I have a tailor who can make me two sweaters out of this bad boy.
+- Rough mission?
+- I don't want to talk about it.
+- Okay, that's no problem. Tons to talk about.
+- Lot of stuff going on at the Buy More.
+- Verbanski wasn't bringing me a mission.
+- It was an all-expenses-paid vacation.
+- Sun, sand, sex.
+- The nerve of that woman.
+- I'm not a kept man. I'm a spy, damn it.
+- Don't I know it.
+- Trust me.
+- In fact, I might have a little spy work for you.
+- What kind of spy work do you have?
+- Hmm.
+- I'm making the drop now.
+- I have my eyes on the drop spot.
+- Ten-four. Let's go.
+- Okay. It's oddly comfortable running in heels.
+- Perfect. Come on.
+- Just so you know, I'm keeping these shoes.
+- Calm down, Jeff.
+- We strike from the east entrance.
+- Take St. Germain alive.
+- Figured it was only a matter of time before that rat Falcone sold me out.
+- You waving that g*n around for show or are you going to use it?
+- (laughing)
+- (cell phone ringtone)
+- Yeah? I take it this is an apology.
+- I got your girlfriend, so you might want to listen up.
+- (sighs)
+- You got her all tied up, do you?
+- Uh, yeah, yeah, she is.
+- Uh-huh. And she needs her big, strong boyfriend to come rescue her, right?
+- Again, correct.
+- And bring $10 million cash.
+- That's a nice detail.
+- Look, you tell Verbanski she fooled me once-- she's not going to fool me again, got it?
+- She said you'd be playing hardball.
+- Don't pay him anything, Casey!
+- I can handle it myself!
+- Didn't I tell you to shut up? !
+- Gertrude? Gertrude?
+- So $10 million by tonight or she dies.
+- Okay.
+- 10 mil to go.
+- Think they'll check to see if it's counterfeit?
+- Oh, I'm pretty sure they will. If all goes according to plan, they're not going to be in any condition to check anything.
+- Undetectable if the case is searched.
+- Walker, when I say the code word "CARE, " you start picking off the guards so I can get to my w*apon.
+- And my job would be?
+- You're getaway driver.
+- Trust me, Chuck, you don't want to have anything to do with this.
+- It's going to be a bloodbath in there.
+- You just be ready for extraction when the time comes.
+- Okay, let's do it. Oh, hey, Walker, listen.
+- You sure you're not, uh... ?
+- I'm not pregnant.
+- Okay.
+- Because this is going to be dangerous... I know.
+- I get how dangerous it is. Let's go.
+- Stop. I'm unarmed.
+- I'm here for a trade with St. Germain.
+- There's a guy here who says he wants to make a trade with St. Germain.
+- Copy that.
+- What if we had a baby at home?
+- Excuse me?
+- What if we had a baby relying on us to come home, and something happened?
+- Something? Something, anything.
+- I don't know, we didn't come home.
+- Who would raise the kids?
+- What-what would happen then?
+- Honey, we don't have a baby, let alone babies plural.
+- Not now, but we will.
+- Maybe you're right-- spying and parenting just don't go together.
+- Sarah, you're spiraling, okay?
+- Take a deep breath.
+- Everything's going to be fine, I promise.
+- Okay.
+- Are you sure?
+- Yeah.
+- We need to split up.
+- Your knight in shining armor has arrived.
+- Let's see what you brought me.
+- I'm almost to the compound, Casey.
+- (twig crunches)
+- (grunting)
+- Ah!
+- Chuck: Sarah! I'm coming!
+- (grunts)
+- Ah... Sarah, are you okay?
+- Yeah. I'm fine, I'm fine, I'm fine.
+- It was just a flash grenade. But I-I can't see.
+- I could've handled this myself.
+- I couldn't leave you out here in the swamp.
+- Because I care.
+- Okay, that's Casey. You've got to go.
+- Are you crazy? I'm not going to leave you here alone. No. I'll be fine in a minute.
+- Please, just take my g*n in case something goes wrong, okay?
+- I'm not gonna need it, I have the AEGIS.
+- I love you.
+- Be safe, okay?
+- I said, I care.
+- Ah, maybe I care too much.
+- (sighs)
+- I've been working so hard on my spy senses, too.
+- My eyes, my ears, my fists...
+- What I should've been working on is this.
+- John, stop. Stop.
+- Please stop.
+- No, I can't, Gertrude... because I love you.
+- And I need you to know how much I care.
+- I care a lot.
+- I don't know who you're trying to signal, man, but it all stops right now.
+- Sorry I'm late.
+- I've got the Aegis. They can't hit us.
+- We need to get to cover!
+- I am the cover!
+- Move, move, move! Ah, ah...
+- Move!
+- I heard your speech!
+- It's great that you're opening up your heart like that!
+- Yeah.
+- Move, move!
+- ST. GERMAIN: Good show!
+- Very entertaining.
+- But g*n don't have safeties.
+- Don't worry. I wore my seatbelt.
+- Hey.
+- Hey.
+- Everything all right?
+- Yeah, I'm just doing some thinking.
+- Uh...
+- I have a small confession to make: part of me was kind of hoping that I was pregnant.
+- I've thought a lot about that, too.
+- And... yeah, I think it'd be kind of exciting.
+- I mean, it's not like I want a baby right this second, but it's not the worst idea in the world.
+- No. No, it's not.
+- Listen to us, talking about kids, and a house, and a real family.
+- Did you think we'd ever be talking about stuff like this?
+- Nope.
+- Especially not with such a huge nerd.
+- Ah ha ha...
+- ♪
+- Thought we were past this.
+- Just open it.
+- Stops anything this side of a . 30-06.
+- I saw you eyeing that guard's vest in Miami.
+- Look, I'm...
+- I'm sorry for dragging you on a glorified vacation.
+- I... I guess it was just my misguided way of saying that I... want to be close to you.
+- Thanks.
+- I feel the same.
+- I know Miami wasn't really your scene.
+- But my next mission is in a much better place.
+- Dresden. Ah... Dresden.
+- Harsh, cold.
+- Come with me. Two months, real danger.
+- Who knows? We could both get sh*t.
+- You know I'd love to.
+- But, um, two months is a long time to be away from here.
+- Mm, well... when you're ready, I'll be there.
+- Unless, of course, you have another woman behind the scenes.
+- No.
+- Not exactly.
+- So, I have this friend.
+- She's out of town right now, but I'd like... for you to meet her sometime.
+- "Friend"?
+- Like a girlfriend?
+- Nah... not like a girlfriend.
+- Okay.
+- Yeah, actually, like a girlfriend.
+- Well, I would, uh... love to meet her.
+- Perfect.
+- Oh, no. What?
+- The housemaid is laying out coffee spoons with the dinner service.
+- There is going to be hell to pay at Downton Abbey tonight.
+- So...
+- Devon Woodcomb-- who, last time I checked, was an extremely handsome medical doctor-- and you think he's building a nuclear b*mb?
+- We know the location of the b*mb.
+- We don't just think it; we know it!
+- Voilà!
+- That's a Outback coupon.
+- So it is.
+- Voilà!
+- Come with us.
+- Let's blow this thing wide open.
+- Yeah, fine.
+- I've only walked . 53 miles today.
+- Another few steps wouldn't hurt me.
+- You, sir, are an American hero.
+- He's up to something.
+- What on earth?
+- After we open this door, there's no going back.
+- Let's do this.
+- I'm still at 1, 500 steps.
+- Oh, careful, careful. Careful.
+- (Lester clears throat)
+- Ahem.
+- What are you guys doing here? How'd you find this place?
+- Uh, the better question is, what are you doing here?
+- Really, what are you doing here? I'm-I'm confused.
+- Ellie doesn't like my workout equipment around the house, so...
+- I figured this would be perfect.
+- Chuck told me about this abandoned basement.
+- But... the U238.
+- It was being delivered here.
+- You mean this?
+- About to make my biceps go nuclear.
+- Then why all the secrecy?
+- Well, some of these exercise techniques aren't exactly... legal... in the US.
+- If you catch my drift.
+- Are you two happy?
+- Let the statuesque man work out in peace.
+- Is that a pedometer?
+- Got a whole box of them upstairs.
+- (whistles) Sweet.
+- Big Mike: I'll work you out a deal.
+- Captain: Yeah, we got to work out sometime, Big Mike.
+- I like your style.
+- Big Mike: Do a lot of working out.
+- It's too easy.
+- (spluttering)
+- Well...
+- The whole search... worthless.
+- There's no spies, no secret base.
+- Nothing.
+- Ah, Jeffrey, you know... maybe this wasn't a search for a secret spy base.
+- Maybe this was a search for friendship.
+- How do you mean?
+- I don't know.
+- I just wanted to say something to cheer you up.
+- Would you just come here?
+- Okay, buddy? Okay?
+- All right, let's get out of here.
+- Thank you. This place reeks.
+- What the... ?
+- It's still wet.
+- Oh. Oh, yeah.
+- Remember when I was at Pine Ridge?
+- The, uh, mental institution? Yeah.
+- It was so dreary, they'd actually put fake backdrops in the windows.
+- That's pretty cruel.
+- I always knew it was fake.
+- Um, where are we going with this, buddy?
+- I guess what I'm trying to say is... it's not always easy to trick a mental patient.
+- Jeff: I knew it!
+- We were right!
+- Lester...
+- Jeffrey!
+- Oh... crap.
+- I mean, we got a problem. Yeah, yeah, I'd call it that.

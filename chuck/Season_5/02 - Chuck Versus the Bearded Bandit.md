@@ -1,0 +1,798 @@
+# Chuck Versus the Bearded Bandit
+
+- Hi I'm Chuck. Here are a few things that you might need to know.
+- Let's dance.
+- (grunting)
+- Hello, Chuck.
+- Decker froze Bale's accounts.
+- Castle and the Buy More are the only things that aren't frozen.
+- All of our money? We have nothing?
+- Payback's a bitch.
+- The Buy More.
+- We take Buy More's profits, put them into Carmichael Industries until both companies can make money.
+- My name is Charles Carmichael, and I have one final question for you.
+- Have you ever needed to subdue a Basque t*rror1st on a Swiss train?
+- Or fight your way through the jungles of Southeast Asia?
+- Or take out an arms dealer with a penchant for m*rder and ice cream?
+- Well, we have.
+- So, while considering your security needs, when lives are on the line, I implore you to consider us...
+- It's not that one.
+- It's not that...
+- Carmichael Industries.
+- Thank you.
+- (scattered applause)
+- You did great. That was great.
+- Mm-hmm.
+- That was good.
+- All right, we have one more team presenting.
+- They should be here, uh, in any minute.
+- (helicopter approaching)
+- What's happening?
+- (people gasping, screaming)
+- Wait, this is not a real attack, is it?
+- No, this is our competition.
+- 300 agents from all over the world-- CIA, KGB, Mossad and Interpol.
+- My name is Gertrude Verbanski, and we are Verbanski Corp.
+- And if we can get to you, we can get to anyone.
+- (applause)
+- Verbanski.
+- Yeah, Verbanski.
+- Sorry, kind of got carried away there.
+- I thought-- this is not a bit that we're... ?
+- Right.
+- Uh, go ahead.
+- Who is she?
+- One of the KGB's most ruthless spies till the fall of the Soviet Union.
+- (spits)
+- Then she went into the private security game.
+- And how do you know her?
+- Minsk, 1995.
+- I was being a patriot, she was being whatever she was paid to be.
+- Wow, 1995.
+- (chuckles): I was still in middle school.
+- Anyway, we had an altercation.
+- I ended up with a Rosewell blade in my shoulder.
+- Made a nasty scar right over one of my favorite scars.
+- Well, Verbanski is good.
+- She took all of our potential clients today.
+- Awesome ditched rock climbing to help me with the presentation.
+- He is gonna be so disappointed.
+- What do you mean it didn't go well?
+- Did you give equal eye contact to all four quadrants of the audience?
+- It was, it was great, all of your advice was great.
+- Of course it was.
+- Same tactics I used to woo your hot sister.
+- Okay.
+- Um, look, we were just a little outmatched is all.
+- Well, at least you still have the Buy More, bro.
+- Still cash flow coming in there.
+- Right?
+- (crickets chirping)
+- (bird screeches in distance)
+- What?
+- Is that an actual tumbleweed?
+- Yeah. Yeah, we put in a new home and garden section to drum up business. Just actually glad somebody put out the tumbleweed.
+- (sighs): Oh, boy.
+- Anyway, how was the presentation?
+- Not good.
+- Not-Not good.
+- Verbanski Corp took all of our clients.
+- Told you, you put me out there, you don't have to worry about what other companies are doing.
+- Look, I know I seem like just an ordinary guy, but I am, in fact, the Intersect.
+- Multibillion dollar CIA asset turned w*apon!
+- Buddy, no one can know that we have the walking CIA database on our team, okay?
+- The Intersect is a secret w*apon for a reason.
+- That sucks, man.
+- I have all these powers and abilities, and how am I supposed to help people if I can't tell anybody about it?
+- Because, Morgan, if you do, it could get you k*ll!
+- Oh, I just zoomed.
+- What?
+- I just zoomed.
+- There's a bad guy in the Buy More.
+- Chuck: Are you sure?
+- Know what we got to do?
+- We got to take him down.
+- (stutters)
+- Just, let's take a breath here, okay?
+- We got to be subtle about this.
+- He's going for a w*apon. He's coming at us.
+- I'm in! I'm in! Ah...
+- Not good.
+- You just found out that the zoom is mightier than the sword, my friend.
+- Hey, hey, hey, hey. You okay?
+- Oh, man, I feel incredible.
+- (cell phone vibrates) Did you see that? Did you like that whole "the zoom is mightier than the sword? "
+- (mutters) Hey, Casey, thank God.
+- We have a little bit of a situation here.
+- Casey: Listen, Bartowski.
+- I just got a call and someone actually wants to hire Carmichael Industries.
+- He's coming to the Buy More to meet with us now.
+- We actually just met.
+- ♪ Chuck 5x02 ♪
+Chuck Versus the Bearded Bandit
+Original Air Date on November 4, 2011
+- (tires screeching)
+- ♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+♪ Na-na na-na na-na ♪
+- (whimpers)
+- Mr. Sneijder?
+- We are so sorry.
+- Please, take a muffin.
+- What's happening?
+- Welcome to Carmichael Industries.
+- Uh, I must apologize for your unnecessarily rough welcome, Mr. Sneijder.
+- Or, uh, shall I call you Karl?
+- You want a muffin or not?
+- He made them fresh this morning.
+- Um, I-I just have one, uh, little question for you.
+- Is there a reason why our, uh, partner thought that you were, I don't know, a criminal?
+- I do work in the diamond industry in South Africa.
+- We're not known for keeping our hands clean.
+- Hmm.
+- I don't eat bran.
+- Nobody does.
+- I told you.
+- Listen, I've come to ask for your help on something entirely legitimate.
+- We're listening.
+- My little brother Wesley was kidnapped by a buyer I may have wronged in the past.
+- I don't know where he's being held, but I do know he's being tortured.
+- My little brother-- he never wanted to have anything to do with my affairs.
+- He's a good man.
+- And they will k*ll him unless...
+- We save him.
+- Exactly.
+- Why should we believe these people actually took your brother?
+- They sent me this.
+- We gonna draw straws to see who opens that thing?
+- Oh.
+- Oh, my God.
+- Oh, my-- that's not even on ice.
+- I don't-- that's probably not gonna be able to be reattached.
+- Listen, I-I know it's not a lot of money, but I'm willing to offer you $200, 000 upfront, (coughs) and another 200, 000 when you deliver my brother to me.
+- And I know you don't want to help me, but please consider helping my brother.
+- No one else will.
+- If you don't mind, Mr. Sneijder, we'll take some time to consider your offer and check your facts.
+- Thank you. Thank you very much.
+- Oh, uh... is your friend with the beard going to be a problem?
+- No.
+- No.
+- All: No.
+- You know, what Morgan did today in the Buy More could've really blown our cover.
+- Look, the first couple of months with the Intersect are a big adjustment.
+- Scary and exciting, your hormones are totally out of whack.
+- You're really rediscovering your body.
+- It's a lot to take in, that's all I'm saying.
+- That's exactly why he needs a handler.
+- What?
+- Who, me?
+- You had Casey and me, Chuck, okay?
+- Morgan needs you.
+- Hey, buddy.
+- Hey, Chuck. Good.
+- Listen, I wanted to, uh... say sorry about what happened with Sneijder.
+- No, hey, buddy, you know, look, I-I totally get it.
+- It-It took me a while to be out there with the Intersect, too, so...
+- It's like, uh, Peter Parker.
+- The Amazing Spider-Man.
+- The thing is, it took him a while, like, over a week to kind of really harness in his powers, to really get ahold of his Spidey sense.
+- Right.
+- So...
+- Yeah.
+- Uh, which, interestingly enough, kind of brings me to something I wanted to talk to you about.
+- Um, I was wondering what you thought about me maybe being your handler?
+- I could show you the ropes just like Sarah and Casey did for me.
+- Yeah.
+- Great. Yeah.
+- And on missions, you know, you can still show off your... zooms.
+- But for now, you know, we really got to keep the Intersect under wraps and focus on the store.
+- Aloha, Chuck!
+- Hello, stepchild!
+- Hey.
+- Like my new threads?
+- I just got back from four weeks of sexual experimentation and snorkeling with my new wife in Hawaii.
+- So, what you boys been up to?
+- The Buy More seems... empty.
+- Are we observing International Pancake Day?
+- No, no, no.
+- Um, business has just, you know, been a little slow.
+- That's not gonna work for me.
+- I need this job.
+- Bolonia Grimes Tucker is not a cheap tigress, boys.
+- I think we're on the same page, Big Mike.
+- Not-Not having to do with your mother being a tigress.
+- I wouldn't know anything about that.
+- But we need something new, we need something big to save the Buy More.
+- Hmm.
+- I may actually have just the thing.
+- Say, Miss Lady, you need any help?
+- Yeah, Pops, I do.
+- Do you have Betamax?
+- Sho' nuff.
+- We even sell VCRs, depending of course on what you're into.
+- Woman: Ooh.
+- And it's on sale-- only two grand. (woman gasps)
+- That's a far out deal, Mister.
+- But come on now, you only buying that?
+- Why don't you...
+- Buy More?
+- ♪ ♪
+- Damn, I was skinny.
+- So I figure we just re-air this spot.
+- Brought in a lot of business at the time, if you know what I mean.
+- No offense, Big Mike, but it, it, it feels a little... dated.
+- I was thinking, you know, maybe we should come up with something that showcases some of our more current merchandise.
+- Morgan: Maybe what we're looking for is a, is a fresh face, uh, to kind of tell people that the Buy More, um, has something new to offer.
+- Hmm, yeah.
+- Right?
+- I hear you.
+- Everybody wants something new.
+- (chuckles)
+- The finger is a positive match, Casey.
+- It definitely belongs to Wesley Sneijder.
+- Yeah, got it.
+- You were right on the location, too.
+- Got eyeballs on Wesley.
+- He's being held in a guarded compound.
+- Well, let's just see how well protected you are.
+- (duck call)
+- (clears throat)
+- Whoa. What the hell do you think you're doing?
+- Hey, I'm just hunting waterfowl, that's all.
+- What are you doing?
+- You're on private property, man.
+- Oh, well, my bad, then.
+- (chuckling): Sorry, I didn't realize.
+- No harm, no "foul. "
+- Get it?
+- Okay, have a nice day.
+- I count at least 12 guards with their w*apon pointed straight at the entrance. We are definitely not going in the front door.
+- Well, there has to be another way in.
+- If there is, I'll find it.
+- Oh, I get it, he meant, he meant waterfowl.
+- (chuckles)
+- (phone vibrating)
+- Hello?
+- (grunting)
+- (woman speaking foreign languages)
+- Oh, please forgive me.
+- It's our busy season.
+- Hi.
+- Hi.
+- Oh, yes, not many people have disarmed Colonel Casey, but I like to remember all of my victories, even the little ones.
+- Have a seat.
+- Uh, you mind telling me what I'm here for?
+- You said you had some information.
+- Verbanski Corp has a job opening.
+- And?
+- And put simply, I want you.
+- Private security isn't a game you just try your hand at.
+- I have agents in 38 different countries under 15 separate Pentagon contracts worth over $2 billion annually.
+- Well, that's very impressive.
+- And what does Carmichael Industries have, other than a former colonel and a CEO with skinny arms?
+- What am I really doing here?
+- We both know that I'm not going to leave my husband's company.
+- Are you trying to recruit John Casey?
+- Is that his name on that second folder?
+- Let me be frank.
+- I'm talking to you because you're good, one of the best, but your company isn't going to last, Miss Walker.
+- You should switch while you can.
+- Well, first of all, it's Mrs. , and second of all, I'm disappointed.
+- I really thought this was going to be the beginning of a friendly cooperation between business associates, but if it's competition that you want, then I suggest you watch your back.
+- Oh, by the way, when this whole thing ends, don't expect me to mount anything of yours in my office.
+- It's just tacky.
+- Chuck: All right, Casey said he wanted something light.
+- He said that, but he doesn't mean it.
+- Is this really the best use of our time?
+- We could be doing so much more.
+- A little zim-zam-zoom, some chop-socky. Morgan.
+- I, I know.
+- I'm talking a lot about the Intersect, but you know... I finally get it, though.
+- For the first time in my life, I sort of feel as cool as you.
+- I can't figure out why I can't use what I have to make this, this dusty little rock that we all have to share, well, just a bit better for all of us.
+- It's a pretty good speech...
+- (man shouting indistinctly) (Morgan muttering)
+- Morgan, look.
+- My God.
+- I know.
+- This is it, this is what I've been waiting for.
+- What, what, what do you mean what you've been waiting for?
+- (gruffly): A chance for the Bearded Bandit to come out and play.
+- What are you talking about?
+- This isn't a game.
+- I know, but I can do this, Chuck, I can save the day.
+- Do you even know what "bandit" means?
+- It's like "robber" or, or "crook. "
+- No, I Googled it; it's a-a fighter aircraft...
+- What? I don't under... What did you say?
+- (in normal voice): I-- I Googled it.
+- It's slang also for "fighter aircraft, " so there's that.
+- This is not a good idea, Morgan.
+- Man: Open the register now... !
+- (gruffly): Wish me luck.
+- Morgan, M-Morgan, Morgan.
+- Oh, my God.
+- Are, are you a cop?
+- Not even close, sweetheart.
+- I'm the Bearded Bandit.
+- Oh, no, uh... take whatever you want.
+- Just don't hurt me. No, no, no... no, it's a slang term for fighter-- for...
+- Morgan.
+- Nice save, Chuck.
+- That's what I'm talking about, man, we could do this.
+- We could be superheroes.
+- Oh, my God, I'm the worst handler in the world.
+- Holy crap, Chuck, move, move, the fuzz, fuzz, fuzz.
+- Ooh.
+- (panting)
+- Explain.
+- I know, I-I know, it's just...
+- Chuck, we are a legitimate company, not a bunch of vigilantes running around, fighting crime at the Circle K.
+- I know that, I know, but his heart is in the right place-- I mean, that, that, that, that should matter for something, right?
+- Morgan is your responsibility.
+- He could have gotten himself k*ll and the store clerk yesterday.
+- That is what matters.
+- (sighs)
+- Look, we found the compound where Wesley is being kept.
+- We've already alerted Karl.
+- There's just one thing left we need to handle.
+- (sighs)
+- Morgan.
+- You're sticking me in the van?
+- Chuck, come on, dude, I am the Intersect, man.
+- Okay, all right, okay, look, y-you don't want to pitch me to a few potential clients, that's up to you, okay, but, but you got to use me on the missions.
+- Morgan, it's not that simple.
+- But it that simple, dude.
+- How is it not?
+- You're my friend.
+- (grunts, sighs)
+- Buddy, we got lucky at the Circle K, very, very lucky.
+- What you did was dangerous and letting you do that was my fault because I'm your handler now, not just your friend.
+- I need to protect you.
+- Man: Buy More commercial, take 28.
+- It's one line.
+- Can't you even deliver one line?
+- Why not...
+- Ugh.
+- ... Buy More?
+- Remind me of one of them troll dolls.
+- Man: Action.
+- ♪ Why not Buy More? ♪
+- Wow!
+- Man, I am so over this whole Jeffster! thing.
+- Me, too.
+- Cut!
+- Just stop.
+- My commercial was a hit because I was a hot piece of meat, a thing women and men wanted, which at the time was a lot less common.
+- People, the store's on the line here.
+- None of you have a face that'll bring in customers.
+- Sookie sookie.
+- ♪ ♪
+- Mike, you guys got any baby pads around here?
+- Yeah, uh, aisle three.
+- (chuckling): Okay.
+- Hello, friends.
+- (murmuring)
+- (whistles) That's a pretty man.
+- Sarah: Casey did some recon, and the house is impregnable from the front access road.
+- Yeah, and this cliff is impossible to free-climb.
+- See, I told you-- sounds like a job for the old Int... A job for real spies.
+- There, why don't you wait in the van?
+- Don't worry, buddy, you'll be with us on the next one.
+- Right.
+- Unbelievable.
+- Ready?
+- Absolutely.
+- "Wait in the van, Morgan. "
+- "Yeah, wait in the van, Morgan. "
+- (à la Casey): "Oh, oh, in the van, moron, hmm, grunt, grunt, grunt. "
+- Casey, we're on a private line.
+- I didn't want to worry Chuck, but I had a meeting with Verbanski yesterday.
+- What'd she want?
+- Apparently she wanted to recruit me, but I think she was really after you.
+- What do you mean?
+- Well, she has your g*n on display in her office-- the g*n from Minsk?
+- She kept my g*n?
+- Oh, God, oh, God.
+- Casey?
+- Casey, I'm slipping.
+- Casey!
+- (grunts)
+- Looking good, babe. You're doing good up there.
+- You're doing good up there. There you go.
+- Geez. What's up with you and Verbanski anyway?
+- Don't worry, Walker.
+- I got your back.
+- Still climbing.
+- Oh!
+- (sighs)
+- All clear.
+- (in high-pitched voice): All clear.
+- Yeah. About time.
+- Okay, Chuck, this is all you.
+- (beeping)
+- (g*n clicks)
+- Oh, my God. Who are you people?
+- We're here to save you.
+- What the hell are you talking about?
+- Oh, relax, Wesley. Your brother hired us.
+- He did what? !
+- Whoa, , whoa, whoa, wh, whoa. What are you doing?
+- We're here to protect you.
+- From who?
+- The only thing keeping my brother from k*ll me are the men I hired to guard this compound.
+- (alarm blaring) What? !
+- But your finger?
+- Yeah, who do you think cut it off?
+- I'm trying to make a deal with the Feds to testify against him!
+- Okay, this is a giant misunderstanding.
+- We're not here to hurt you.
+- Yeah, well, my men will be here any second.
+- Morgan, get the van ready.
+- Morgan, do you copy?
+- Morgan?
+- Get back!
+- Morgan: Have a drilling in the face!
+- (grunting)
+- Nice one! That's what I'm talking about!
+- Zoom!
+- (shouting)
+- (groaning)
+- What's up, team?
+- You guys need some help?
+- Yes and no?
+- Okay...
+- Mm. Okay, just zoomed.
+- Wesley's brother's not trying to save him. He's trying to...
+- CASEY, SARAH & CHUCK: We know.
+- Excuse me. I'm sorry.
+- Maybe if the Intersect wasn't stifled in the van, we would have all known that ahead of time, and I wouldn't have had to take out all of Wesley's guards.
+- Really sorry about that, dude.
+- It's...
+- (phone vibrating)
+- Hey, Karl.
+- Karl: My sat images show that you took care of the guards at the compound.
+- Nice work.
+- I have a team coming up the access road now to pick up my brother.
+- Do you? Do you? That's great.
+- That's great news.
+- We'll be right here waiting for 'em.
+- (laughs) Bye now.
+- Karl's men are gonna be here any minute.
+- Yes. (knuckles cracking)
+- Well, then I'm a dead man.
+- No. We came here to save you, and that's exactly what we're gonna do. Come on.
+- Morgan: What? ! No, no, no, no.
+- The Intersect runs from no man!
+- For now, he does.
+- Let's go, Morgan.
+- We had a deal.
+- Exactly.
+- You hired us to save your brother.
+- No, I paid you to extract him and bring him to me.
+- Except that we didn't know you were planning on k*ll him.
+- Nor did we know you were responsible for the finger cutting f*g. That's crazy.
+- Listen, you have exactly four hours to deliver Wesley to me. Otherwise, I'm coming after you, and trust me, that is something you will not enjoy.
+- And by the way, that comment card you sent with the contract?
+- Well, you can consider that...
+- (whoosh)
+- (sighs)
+- What are we going to do?
+- Well, we got a fingerless guy sitting in the game room, and his psychopath brother is threatening to come after us.
+- So we go to the source. Okay, we take out Karl before he gets to us.
+- With what army?
+- We don't work for the government anymore.
+- Sarah: Well, if we can get to Beckman, maybe she can help us put Wesley into protective custody.
+- No, there's no time for that. Guys, we have to act now!
+- We're not going into a firefight unprepared.
+- End of story. (grunting)
+- (grunting)
+- Kind of feel like a burrito.
+- Why don't you go on a food run for us, huh?
+- A food run?
+- Yeah.
+- Again, I am the Intersect.
+- Then act like it.
+- Okay, okay. Why don't I just go with you, buddy?
+- And we can get a little breather while we wait to hear back from Beckman, okay?
+- Don't forget the utensils.
+- Thank you. Must have had one too many piña coladas on the plane, and my bl*od pressure is just generally outrageous.
+- I'm just glad I was here for your dizzy spell.
+- So, listen, Devon, have you ever given any thought to doing something that involves less doctoring and more making a commercial for the Buy More?
+- What?
+- The Buy More needs a fresh face.
+- I appreciate you thinking about me, but I'm about to go on paternity leave to spend more time with my family.
+- Sure, I did some modeling for Abercrombie & Fitch back in college, but I hung up those cargo pants a long time ago.
+- Hold on, son.
+- I'm not talking about doing some teenage porno here.
+- Look around! This is your brother-in-law's place of business, and it's empty.
+- But your creamy skin and unusually high cheekbones could change all that.
+- And if you are taking time off to help your family, isn't Chuck your family, too?
+- (sighs)
+- Morgan: I can't believe Casey sent us out for burritos.
+- Burritos, Chuck? !
+- I'm so tired of running errands for that man's stomach.
+- Look, Casey means well.
+- Yeah, but it's not just Casey, dude, okay?
+- It's Sarah, too.
+- What is that supposed to mean?
+- It just means that isn't she the one who told you to be my handler in the first place?
+- Yeah, but...
+- Well, did it ever occur to you that she made you my little baby-sitter to distract you from the fact that you're being sidelined, too?
+- I don't know if you noticed, Chief.
+- You're on a food run with me.
+- Look, I'm not... (sighs)
+- Look, I love Sarah, I do, okay?
+- It's just, I want to make sure that she's not the one handling you.
+- She's not.
+- You just passed the exit for Dos Locos.
+- Yeah, we're not going to Dos Locos.
+- We're going to Karl Sneijder's corporate headquarters.
+- Oh, yeah. Zoomed on a file in Castle.
+- Oh, did you?
+- And why didn't you tell anyone?
+- Why would I, okay? We're going to take him down.
+- No. No, no, Bearded Bandit.
+- No, we are not. It is far too dangerous.
+- I'm gonna call Casey and Sarah. They can help.
+- They can... They can what? They can stick us both in the van?
+- No. Come on, Chuck. We don't need them.
+- We're here.
+- Hey, they don't understand that you and I are like Batman and Robin, okay?
+- Unless you don't want to be Robin, because let's face it, who wants to be Robin?
+- We'll just be Batman and Batman.
+- Either way, we should be out there saving the day, not running errands, or sitting around waiting for Beckman to get back to us.
+- Hey, hey, hey, Morgan, look, I-I get it. I know what it feels like to have the Intersect surging through you. It makes you feel like you can do... Anything.
+- Yes, yes, anything.
+- Save the day, be a hero, anything, but there's a way. What are you doing?
+- Here's the thing, though, Chuck.
+- You don't need the Intersect to feel that way, okay?
+- With or without it, you are a hero, so don't call them.
+- All right, we can handle this together.
+- Just come with me.
+- I need you.
+- (panting)
+- Morgan, no, no, no!
+- God. Aah! Oh!
+- Okay. Okay. Okay, okay.
+- (sighs)
+- (click)
+- Sarah: Chuck?
+- Sarah.
+- Sarah, hey, we're-we're at Sneijder's headquarters.
+- What? Don't go in there.
+- I know, I know, but Morgan just ran inside, and he's in trouble.
+- Actually, you know what? We're both in trouble, because I'm going after him. Chuck, no, you can't.
+- Please just wait for us, okay? Look, I'm Morgan's handler.
+- It's my job to take care of him, which is why I called you, which is why I have to go help him now.
+- You'd do the same for me.
+- Oh, God.
+- Chuck's doing a great job, handling Grimes.
+- The blind leading the blind out there.
+- Well, as long as we get to Sneijder's headquarters before something happens.
+- Casey, what is this?
+- Your team...
+- They're at my brother's building, right?
+- That place may look like an ordinary office, but as soon as Karl realizes something's up, he's gonna lock it down like a fortress.
+- No one's gonna be able to get in or out of there alive.
+- (sighs)
+- Oh! Ooh, ooh, ooh, ooh.
+- Oh, you came. Let's go.
+- No, no, no, no. Stop, stop, stop.
+- Right through that door-- that's Sneijder's office.
+- Okay, all we have to do is find proof that he's smuggling conflict diamonds, dude, and then we grab him!
+- What are you talking about? We have to go right now!
+- I'm not going anywhere...
+- No, no, no, no, no, no.
+- Yes, yes, yes, yes. Listen, you are the best spy that I know, and I would rather have nobody else watching my back, yeah?
+- Don't worry about it.
+- I'm gonna take it slow, okay?
+- Please don't.
+- (sighs)
+- Kamikaze!
+- (grunting)
+- See? Nothing to it.
+- It's great. Very good. Now what?
+- Casey: In the old days, we'd just call in the commandos for backup and be done with it.
+- Look, if you want to work for Verbanski Corp and have a fancy DOD contract, then why don't you just go ahead?
+- I don't want to work for her.
+- Look, I saw her Web site on your computer, okay?
+- How much is she offering you?
+- Nothing.
+- (engine revving)
+- The only thing Verbanski's interested in is me.
+- Physically.
+- (sighs) Sexually.
+- (horn honking) Whoa, Walker!
+- (tires squealing)
+- (grunting) Sweep the leg.
+- Nice.
+- (engine revving)
+- It was a long time ago.
+- It only happened once.
+- Seeing her again makes it... (groans) complicated.
+- Complicated how?
+- (exhales) Well... you ever, uh, have sex with someone who just tried to k*ll you?
+- It was incredible. Okay, I think we should focus on the mission now.
+- ♪ ♪
+- (grunting)
+- ♪ ♪
+- (grunting continues)
+- ♪ ♪
+- (shouting)
+- Wow. Good job, Indy.
+- Yeah.
+- Who?
+- (laughs)
+- Indiana Jones?
+- (shouts, imitates g*n)
+- You know. Cool.
+- Let's go get Sneijder. Wait, no, no, no.
+- Morgan, we have to get out of here right now.
+- Good rule about bad guys: if there's five to start with, then there's a hell of a lot more where that came from.
+- Chuck... Da-da-da-da.
+- Intersect. Handler.
+- But look what we did here, man.
+- Just like I said, right? Batman and Batman!
+- Look! Just because you have the Intersect in you doesn't mean you don't have something to learn still.
+- You have a lot to learn, and I'm not gonna let you k*ll yourself today.
+- I called Casey and Sarah...
+- What? You called them?
+- Karl: Mr. Carmichael?
+- (g*n cocks)
+- I do wish you would have called before dropping by.
+- Place is a mess.
+- So... did you bring me my brother?
+- About that...
+- Casey: Hmm...
+- Wesley was right.
+- The building's already in lockdown.
+- We have to get in there.
+- Chuck's not answering his phone; something is wrong...
+- Can't. su1c1de.
+- But we have to do something.
+- We're not gonna get in there now.
+- Place is a fortress.
+- The boys are on their own.
+- Well, that is not good enough.
+- I'm gonna do whatever it takes to get us in there.
+- Who are you gonna call?
+- I cannot believe that you called them.
+- By the way, I had Sneijder right where I wanted him.
+- Chuck: Morgan, we're not superheroes, we're not vigilantes, we're a team.
+- I thought this one... I thought this one was you and me.
+- Why are you so against Casey and Sarah all of a sudden?
+- 'Cause they-they don't believe in me, they don't trust me. And it's very clear to me now, neither do you.
+- Morgan... Shut up!
+- I can't listen to you schoolgirls babble on anymore.
+- Come to think of it, I only need one hostage to get my brother back.
+- (helicopter blades whirring) (gasps): What's happening?
+- (explosions)
+- Chuck: Oh! Oh, I know what's happening.
+- Put your w*apon down.
+- (g*n) (yells)
+- I'm sorry, one more time for clarity, and then I sh**t something that counts.
+- Put your w*apon down.
+- I got a couple of buddies in Moscow who would love to get you in a tiny, windowless room for a couple of hours.
+- You came.
+- Well, it wasn't cheap.
+- (laughs softly)
+- You know, some might say it's tacky hiring your competition to help you, but...
+- I... I think it takes balls.
+- Oh, and I'll have someone from our Burbank office drop off your bill.
+- We don't have a payment plan.
+- Always a pleasure, John.
+- (low grunt)
+- You guys all right?
+- Yeah. Thank you so much for coming.
+- We really needed you today.
+- Yeah, of course.
+- We're a team.
+- Hm.
+- What's with all these people.
+- Oh, God, do you think something's wrong?
+- Just tell me Jeff's not trying to bathe in the washing machine again.
+- So this is more than just a store.
+- This is my second home.
+- It's the 1080-P television that I watch the big game on.
+- The waterproof radio that I listen to in the shower.
+- It's the industrial blender that I use to make my protein shakes that help me look like this all day long.
+- It's like his eyes follow everyone in the store.
+- So yeah, I guess for someone like myself, who's a heart surgeon and a natural athlete, why not buy from the best?
+- Why not Buy More?
+- Well... I guess we're in a better financial situation than we thought.
+- Plus, Sneijder gave us 200 grand up front.
+- Yeah, well, we still owe Verbanski Corp $150, 000 of that.
+- Casey: Plus the 30 grand for the repairs on Wesley's safe house.
+- And the climbing gear.
+- The V-21 bolt g*n.
+- Gas for the Lotus.
+- What? Okay, fine, I'll cover that.
+- Hey, it's a start, and it's what we needed.
+- (sighs): Well, it's something.
+- Hey. (clears throat)
+- Chuck.
+- (sighs)
+- I feel like I should just say that, uh...
+- I'm sorry, you know, for what happened.
+- Buddy, me, too.
+- I'm-I'm sorry.
+- I called Casey and Sarah to protect you, not hurt you.
+- I'm trying to be the best handler I can be.
+- I'm just new at this, you know?
+- Sure. I get it.
+- So, I'm not gonna be a... a spy for a while, right?
+- That's kind of what I'm picking up, though. Yeah?
+- Look, you have all the potential in the world.
+- It just takes time, that-that's all.
+- And I promise you, I will be with you every step of the way, until the day that... that you are ready.
+- Yeah, I bet. I bet.
+- Someday, though.
+- Okay.
+- I got to get to Alex's place.
+- I got to see her.
+- Uh, you're still in for movie trilogy night tomorrow, right?
+- Sure, I'm in.
+- So, Star Wars or Die Hard?
+- I don't know. Dude, uh... you pick, man.
+- That's more your thing.
+- ♪ ♪
+- Intersect's going to his head, isn't it?
+- Yeah, uh...
+- Maybe. I don't...
+- He certainly doesn't seem like himself lately.
+- Today on the mission, it's like he had never even heard of Indiana Jones.
+- And just now with trilogy night...
+- (sighs) I don't know, maybe he's just distracted.
+- (sighs)
+- Grimes better get his head on straight.
+- And soon.
+- (panting)
+- (groaning in pain)
+- Hey, no, don't stop. Keep going.
+- It'll just get harder if you stop.
+- Sarah?
+- I thought you'd still be in bed-- it's so early.
+- No. No.
+- Come on, I'm used to this-- us spies without the Intersect have to find time to exercise.
+- Hey, hey, hey, hey. So, so, uh...
+- (chuckles): Quick question, since you're here.
+- Did you ask me to be Morgan's handler because... you were trying to handle me?
+- Because if you don't think I-I should be in the field, I just need to know that, you know? No, no, I asked you to be Morgan's handler because the job entails bringing out the best in somebody, and what better example for Morgan than you?
+- So, no, I'm not handling you.
+- A) Because you don't need a handler anymore; and B) because handlers can't do this.
+- Okay?
+- Come on.
+- That's not fair!
+- That's not fair; you can't just take off.
+- Oh, yes, I can.
+- ♪ ♪
+- Hello, Gertrude.
+- It's Colonel John Casey.
+- I'd like to have a meal with you.
+- My treat.
+- That was good.
+- That'll work.
+- (line ringing)
+- Verbanski: Hello?
+- ♪ ♪
+- (sighs)
+- Hello?
+- I'm sorry about that.
+- So I assume you're here about the job opening.
+- Let me assure you that I am more than ready.
+- See, uh... I have something I can offer you no one else can.
+- The Intersect.
+- Really?
+- Mm-hmm.
+- I've heard about that.
+- I wasn't sure it really existed.
+- Oh... (clears throat) believe me, it exists.
+- Well, I was wondering who... the real Luke Skywalker was on your team.
+- It's good to finally know.
+- I'll bet it is.
+- One question, though.
+- Who's Luke Skywalker?
