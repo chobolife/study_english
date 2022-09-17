@@ -121,14 +121,14 @@
 - Well, Bryce and I programmed our own version of it back at Stanford using a TRS-80.
 - Wow, you guys were really cool.
 - Yeah, if I could only remember what was in my hero's satchel.
-- The w*apon that I would use to k*ll the terrible troll.
+- The w\*apon that I would use to k\*ll the terrible troll.
 - Right. You know what, you're still really cool.
 - And, uh, you're going home.
 - Is it that time?
 - It's that time.
 - Right.
 - Pedal safe!
-- Thank you. attack... troll... with nasty kn*fe.
+- Thank you. attack... troll... with nasty kn\*fe.
 ***
 - Chuck?
 - Chuck.
@@ -151,7 +151,7 @@
 - A fender bender on the I-5, Santa Ana freeway, north bound, from 91 freeway to the I-...
 ***
 - So this morning I'm playing xbox.
-- And I'm like, dude, just let me get the sn*per r*fle, I'll take care of it, the guy won't give me the sn*per r*fle.
+- And I'm like, dude, just let me get the sn\*per r\*fle, I'll take care of it, the guy won't give me the sn\*per r\*fle.
 - I made him eat a frag grenade.
 - Morgan, Morgan, Morgan, Morgan.
 - As much as I would love to talk video games with you right now, I've got a really splitting headache and I... in fact, you know what? Can you do me a favor?
@@ -173,10 +173,10 @@
 - Fellow nerds, today is going to be a very bad day.
 - We've got a new computer virus on our hands.
 - They're calling this one the Irene Demova virus.
-- Yes, yes, it's named after the serbian p*rn star.
+- Yes, yes, it's named after the serbian p\*rn star.
 - Lonely dude call volume will be high.
 - This is a nasty one, kids.
-- It's a computer k*ll.
+- It's a computer k\*ll.
 - Last night, the display version of our prism express laptop was fried when someone... excuse me... decided to enter Mrs. Demova's web site.
 - Anna, close the eyes.
 - This is what happens.
@@ -196,7 +196,7 @@
 ***
 - Bryce Larkin was CIA, graham.
 - He was one of your agents.
-- And it was NSA's job to find him and to question him, not to k*ll him.
+- And it was NSA's job to find him and to question him, not to k\*ll him.
 - Thanks to rambo here, we've got nothing.
 - No, you got a dead CIA agent.
 - It's a gold star in my book.
@@ -254,7 +254,7 @@
 - You know, yeah. I mean, nerd herd.
 - Excuse me. Excuse me.
 - I have an emergency.
-- I don't know what I did wrong, but I sh*t the entire recital, but, um, now it... now it won't play back.
+- I don't know what I did wrong, but I sh\*t the entire recital, but, um, now it... now it won't play back.
 - Okay.
 - We'll just take a look and... you don't have a tape in here.
 - But it's digital.
@@ -262,7 +262,7 @@
 - Right. Yes.
 - But you still need digital tape.
 - Oh, no.
-- Her mom's going to k*ll me.
+- Her mom's going to k\*ll me.
 - Morgan, I need the wall.
 - It's yours.
 - I'm so sorry.
@@ -321,7 +321,7 @@
 - Nah, I've been through it.
 ***
 - It's dead. It's totally fried.
-- This hard drive was... m*rder.
+- This hard drive was... m\*rder.
 - What if you were the unwitting target of a ninja vendetta, and he returns tonight to strangle you with his nunchakus?
 - That's super, Jeff.
 - Thanks for thinking outside the box on that one.
@@ -359,12 +359,12 @@
 - A backup?
 - It's over, Sarah.
 - The NSA is stepping in.
-- Bryce was CIA, he was our guy, and he b*rned us.
+- Bryce was CIA, he was our guy, and he b\*rned us.
 - Casey's on his way out.
 - You're being recalled.
 - 'Cause of Casey?
 - He's a burnout.
-- He's a k*ll, Sarah.
+- He's a k\*ll, Sarah.
 ***
 - Cold school.
 - I want you to listen to me.
@@ -437,7 +437,7 @@
 - I don't know about this guy, Graham.
 - Nice guys aren't sent government secrets.
 - What should I do if he runs?
-- k*ll him.
+- k\*ll him.
 ***
 - So, yeah, I live with my sister and her boyfriend, captain awesome.
 - No!
@@ -489,7 +489,7 @@
 - Chuck Bartowski's your mark.
 - NSA director wants him with a pulse.
 - Till we find out who he's working with and what he knows, he lives.
-- CIA skirt... you can k*ll.
+- CIA skirt... you can k\*ll.
 ***
 - They're good.
 - Good! Good!
@@ -548,20 +548,20 @@
 - Is there an external drive?
 - It crashed a week ago.
 - Wait, wait, wait. Hold on. Was I not supposed to look at those pictures?
-- Okay, I may have to aim my g*n at you, so just don't freak out.
+- Okay, I may have to aim my g\*n at you, so just don't freak out.
 - Why?
 - It's late. I'm tired.
 - Let's cut the crap and give him to me now.
 - He belongs to the NSA.
 - The CIA gets him first.
-- You come any closer and I sh**t.
+- You come any closer and I sh\*\*t.
 - Sarah... I'm freaking out.
-- You sh**t him, I sh**t you.
+- You sh\*\*t him, I sh\*\*t you.
 - I leave both your bodies here, go out for a late snack.
 - I'm thinking may be pancakes.
 - Chuck, no!
-- They're gonna k*ll him.
-- k*ll who?
+- They're gonna k\*ll him.
+- k\*ll who?
 - Stanfield, the general. The General Stanfield, the NATO guy.
 - Look, something is wrong with me, okay?
 - I don't know what it is, but something is very, very wrong with me, and I'm remembering things that I shouldn't know.
@@ -569,8 +569,8 @@
 - I don't know. I don't know. For example, uh... there was, there was a Serbian demolitions expert at the Large Mart today.
 - That's kind of odd, wouldn't you say?
 - Look, last week the NSA, you guys intercepted some blue prints, blue prints of a hotel, that hotel.
-- And then the CIA, you guys found a file of schematics of a b*mb in Prague.
-- The b*mb is in that hotel!
+- And then the CIA, you guys found a file of schematics of a b\*mb in Prague.
+- The b\*mb is in that hotel!
 - He was working with Bryce.
 - No, he opened Bryce's e-mail.
 - Chuck, those pictures that you saw were encoded with secrets, government secrets.
@@ -582,10 +582,10 @@
 - What did you, what did you say? What does that mean?
 - Chuck, you have to listen to me. You have to tell us where...
 - What's happening to me?
-- You said there was a b*mb. Is there time to stop it?
+- You said there was a b\*mb. Is there time to stop it?
 - What? What? Are you crazy?
 - No, we're the good guys.
-- We get paid to keep b*mb from exploding.
+- We get paid to keep b\*mb from exploding.
 - Look, I can't, I can't help you, okay?
 - I really wish that I could, but I can't.
 - Call Bryce. He's the guy that can save the day.
@@ -594,7 +594,7 @@
 - Bryce is dead?
 - Yeah, and he's gonna have a lot of company unless you start talking.
 - So, pretty please...
-- Can we defuse the b*mb now?
+- Can we defuse the b\*mb now?
 - According to the schedule, general's already on the stage.
 ***
 - Was our mission to give our nation's diplomats the military perspective on world issues.
@@ -620,7 +620,7 @@
 - No, definitely a trap.
 - What the hell do you think you're doing?
 - Uh... ladies and gentlemen, we-we may have a cautionary situation here, so we'll take a short break.
-- Chuck, is there anything else you remember about the b*mb?
+- Chuck, is there anything else you remember about the b\*mb?
 ***
 - What's the situation?
 - Hi, Morgan.
@@ -637,13 +637,13 @@
 - I understand that. This is a prism express laptop, okay.
 - We sell this at our store. It has a DOS override.
 - I think I can do this. I can do this, please.
-- He's our best sh*t.
+- He's our best sh\*t.
 - Go.
-- Mr. b*mb, meet Mr. Internet.
-- He's searching for p*rn.
+- Mr. b\*mb, meet Mr. Internet.
+- He's searching for p\*rn.
 - You did it.
 - I did it. I did it.
-- I... I defused a real b*mb.
+- I... I defused a real b\*mb.
 - This was a real...
 - What if I was wrong?
 - Don't puke on the C-4, huh?
@@ -652,7 +652,7 @@
 - And what if it wasn't?
 ***
 - What if he can stop something bigger?
-- Fine, we drop him in a psych t*nk, let him stare at four rubber walls for a decade.
+- Fine, we drop him in a psych t\*nk, let him stare at four rubber walls for a decade.
 - He'll tell us what we want to know.
 - Casey, we don't know how this works and what triggers the memories.
 - He'll crack wide open.

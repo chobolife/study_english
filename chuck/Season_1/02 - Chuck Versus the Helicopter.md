@@ -16,14 +16,14 @@
 - I now present to you the magic... of Morgan. This is my best friend, Morgan. He is not a magician.
 - Voila!
 - See, everything changed when I got an e-mail from my old college buddy Bryce Larkin.
-- You see, Bryce had been working for the CIA when he stole a whole bunch of government secrets-- big important secrets, really scary, nasty, k*ll secrets.
+- You see, Bryce had been working for the CIA when he stole a whole bunch of government secrets-- big important secrets, really scary, nasty, k\*ll secrets.
 - Next thing I know, these secrets are downloaded into my brain, which means every moment of my life... is in danger.
 - I'm sorry. I'm sorry.
 - The NSA sent their top agent to protect me.
 - That's Casey. He's pretty scary.
 - He works at Buy More now, as a cover.
 - So now I must defend the country from assassins... no, Casey!
-- ... t*rrorists... ... and shoplifters.
+- ... t\*rrorists... ... and shoplifters.
 - Casey, Casey, Casey. No, no, no, no, no. No, no, no, no. It's just a video game, okay?
 - Lives are not in danger, and the country is still safe.
 - This guy's been here 24 hours and he's taking the job way more seriously than me.
@@ -40,7 +40,7 @@
 - Sarah, what, uh... what are you doing here?
 - I work here now, Chuck.
 - Oh, damn.
-- I b*rned another batch.
+- I b\*rned another batch.
 - Why are you working here?
 - Surveillance.
 - I can monitor the Buy More from here while you work.
@@ -93,7 +93,7 @@
 - He worked on the encoding process for the intersect, the computer that Bryce destroyed, the one that's in your head.
 - He's coming to examine you.
 - Uh-huh, uh, and-and does this examination involve, say, I don't know, needles or perhaps probing of some kind?
-- The doctor is our best sh*t at helping you.
+- The doctor is our best sh\*t at helping you.
 - It's what you want, right?
 - To get the secrets out of your head.
 - Yeah. Yeah, of course.
@@ -124,7 +124,7 @@
 - Ugly building.
 - Really beautiful woman at the beach.
 - Cardinal one is the top Moscow spy in the White House office of... the plot to assassinate president Carter was orchestrated by... northrop Davis voting computers has been approved by the DNC, RNC and CIA.
-- Oceanic flight 815 was sh*t down by surface-to-air... work on subterranean... beneath denver international airport has reached phase four.
+- Oceanic flight 815 was sh\*t down by surface-to-air... work on subterranean... beneath denver international airport has reached phase four.
 - Benedictine agents within the Vatican report... assassin still active... been approved by the DNC, RNC and CIA. Scenario five is...
 - Okay, well, that's just a picture of a turtle.
 - Your patient is phenomenal.
@@ -193,7 +193,7 @@
 - So, uh, this is the hand-held scanner.
 - Very expensive piece of equipment.
 - So is a stealth fighter and somehow I managed to fly that.
-- Right, uh, and the g*n, you know, kind of works like A... g*n?
+- Right, uh, and the g\*n, you know, kind of works like A... g\*n?
 - Uh-huh.
 - And it beeps when you scan the barcodes. well, if screamed out loud, I'd be right at home.
 - N't I do want you to have any more private meetings with Sarah, hmm?
@@ -215,19 +215,19 @@
 - Did he tell you the same thing?
 - Right, of course he did.
 - Hold on a second. Is something wrong?
-- The doctor from last night-- he was k*ll in an expl*si*n soon after he left us.
+- The doctor from last night-- he was k\*ll in an expl\*si\*n soon after he left us.
 - Wha-what?
 - The doctor who was supposed to fix me?
 - Tell me what this is.
 - A... a nasty...
 - NSA incinerator.
 - Special issue designed to eliminate all biological traces.
-- That's what k*ll the doctor.
+- That's what k\*ll the doctor.
 - And guess who works for the NSA?
 - Why... why, why would Casey...
-- He's a k*ll, Chuck.
+- He's a k\*ll, Chuck.
 - It's what he does for a living.
-- He tried to k*ll us, and he'll probably try to do it again.
+- He tried to k\*ll us, and he'll probably try to do it again.
 - Maybe it was orders.
 - Maybe he didn't like the way Zarnow looked at him.
 - Oh, that's nice. I feel much better now, Sarah.
@@ -256,7 +256,7 @@
 - Bye.
 - I love you.
 - What did you tell Chuck?
-- That you're a cold-blooded k*ll. Was I lying?
+- That you're a cold-blooded k\*ll. Was I lying?
 - No.
 ***
 - The way I figure it, the only two people that knew the doctor was coming are right here.
@@ -283,18 +283,18 @@
 - 142 Euclid?
 - Guess who called that in?
 - Oh, my god. It was you!
-- You k*ll the doctor, and now you're here to k*ll me! Are you out of your mind?
+- You k\*ll the doctor, and now you're here to k\*ll me! Are you out of your mind?
 - What... what... what... what happened to you?
 - Your girlfriend happened.
 - What, who, Sarah?
 - She's rogue, Chuck.
-- She k*ll the doctor, then she tried to k*ll me.
+- She k\*ll the doctor, then she tried to k\*ll me.
 - Is she okay?
 - Yeah, I'm golden. Thanks for asking.
 - No, no, no, why should I believe you?
-- She showed me the b*mb. She said you did it.
+- She showed me the b\*mb. She said you did it.
 - NSA incinerator, right?
-- It's a nice expl*sive easily purchased on the black market.
+- It's a nice expl\*sive easily purchased on the black market.
 - What do you really know about Sarah, Chuck, huh?
 - Think.
 - She's CIA.
@@ -383,8 +383,8 @@
 - Strange.
 - NSA ran a check on Sarah Walker to see what we had... two years ago, she posed as a French diplomat.
 - Infiltrated the inner circle of an arms deal.
-- k*ll the entire circle.
-- With a b*mb?
+- k\*ll the entire circle.
+- With a b\*mb?
 - We don't know.
 - Her alias was Elana Truffaut.
 - Eyth were poisoned.
@@ -427,13 +427,13 @@
 - Flamb?
 ***
 - Chuck!
-- Chuck, look, no matter how stressed out you are, it is never okay to m*rder a woman's soufflé?
+- Chuck, look, no matter how stressed out you are, it is never okay to m\*rder a woman's soufflé?
 - Um, you know what? Let me talk to him.
 - Casey, hey, maybe, uh... tell me exactly ey cas said.
 - Nothing. Everything's okay.
 - Makeup sex. Nice.
 - What did he tell you?
-- That you k*ll Dr. Zarnow and poisoned a bunch of French diplomats.
+- That you k\*ll Dr. Zarnow and poisoned a bunch of French diplomats.
 - They're blaming me for Zarnow?
 - If you're planning on hurting me, even to prove a point, I think you should know I have a very low threshold for pain.
 - And you believe Casey?
@@ -443,7 +443,7 @@
 - Chuck, do you really think that my name is Sarah?
 - I never asked you to believe me. I asked you to trust me.
 - This doesn't make sense.
-- If Casey didn't k*ll Zarnow, then...
+- If Casey didn't k\*ll Zarnow, then...
 - What are you doing?
 - I have to go right now.
 ***
@@ -525,7 +525,7 @@
 - Okay.
 ***
 - This is how this is gonna work.
-- I'm gonna go over there, rescue Sarah, and capture Dr. Zarnow, sh**t anybody who gets in my way.
+- I'm gonna go over there, rescue Sarah, and capture Dr. Zarnow, sh\*\*t anybody who gets in my way.
 - You, you're gonna stay here.
 - So, in this plan I basically do nothing?
 - Yep.
@@ -569,7 +569,7 @@
 - Who will I offer you to first?
 - Sarah... Sarah... don't worry, agent Walker.
 - I'll take good care of him.
-- No, Casey, don't sh**t. They have Chuck.
+- No, Casey, don't sh\*\*t. They have Chuck.
 - Proceed to bravo coordinates.
 - The ship will be waiting there.
 - It's about ten miles offshore.
@@ -579,15 +579,15 @@
 - I want you to land the helicopter right now.
 - It's heavier than you thought.
 - What?
-- The g*n.
+- The g\*n.
 - It's heavy.
 - Don't... don't!
-- Give me back the g*n.
-- I'm not giving you the g*n! you sh*t the pilot, you idiot!
+- Give me back the g\*n.
+- I'm not giving you the g\*n! you sh\*t the pilot, you idiot!
 - I didn't mean to do that.
 - What's happening?
 - Who's flying this thing?
-- You're going to k*ll us both.
+- You're going to k\*ll us both.
 - Come on, Chuck. let me go. get your hands off of me!
 - Get off of me! oh, god.
 - That's a crane.
@@ -712,7 +712,7 @@
 - So... Chuck, are you ready? good.
 ***
 - I hope we're not interrupting anything.
-- Uh... by the way, I thought we'd give that dinner another sh*t, maybe here.
+- Uh... by the way, I thought we'd give that dinner another sh\*t, maybe here.
 - We knew you'd forgive him.
 - Right, and you realize that you all have to eat my cooking.
 - Give me the 411 on the corn dogs.
