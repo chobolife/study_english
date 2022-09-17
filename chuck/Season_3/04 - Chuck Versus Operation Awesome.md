@@ -130,7 +130,7 @@
 - Uh, Chuck...
 - No, don't you understand?
 - I'm responsible for this.
-- I k*ll Captain Awesome.
+- I k\*ll Captain Awesome.
 - Oh, my God.
 - You're back.
 - Thank God.
@@ -165,7 +165,7 @@
 - There will be no using of him anymore.
 - Okay, no more fun spy games for him, forever.
 - Using Devon is our best option.
-- Sydney won't go to her superiors with his identity until she definitively knows whether she has turned him or b*rned him.
+- Sydney won't go to her superiors with his identity until she definitively knows whether she has turned him or b\*rned him.
 - When Sydney contacts him, he'll do what she says just long enough for us to track her, find her and bring her in.
 - You mean I have to do what she says?
 - No, you don't. No, he doesn't.
@@ -201,7 +201,7 @@
 - Another human's foot on your body?
 - The thrill of being alive.
 - What?
-- The electrifying sensation of pain coursing through my face was like an adrenaline sh*t to my soul.
+- The electrifying sensation of pain coursing through my face was like an adrenaline sh\*t to my soul.
 - It made me feel like a man, maybe for the first time since my bar mitzvah.
 - I've never had a bar mitzvah.
 - Chuck, please.
@@ -285,7 +285,7 @@
 - Jeff?
 - You got a second?
 - What's going on here, man?
-- I noticed everybody's a little b*at up.
+- I noticed everybody's a little b\*at up.
 - The first rule of fight...
 - Easy.
 - Our friend, Morgan, here is the assistant manager now.
@@ -332,7 +332,7 @@
 - Standard operating procedure.
 - Be at the crystal towers downtown in one hour.
 - Come alone.
-- Oh, and, Devon, the earpiece is also an expl*sive device.
+- Oh, and, Devon, the earpiece is also an expl\*sive device.
 - Remove it, or deviate from my instructions in any way, and I will detonate it, ruining that lovely face of yours.
 - Sarah: No.
 - Okay, well, that is not standard... at all.
@@ -365,7 +365,7 @@
 - Wasn't on the line long enough to get an exact location.
 - Need another call. Another call? !
 - No, we can't wait.
-- The guy's got an expl*sive earpiece stuck in his head!
+- The guy's got an expl\*sive earpiece stuck in his head!
 - Chuck, our target is Sydney.
 - We need to get her to save him.
 - Okay, fine, then you get her, and I'll get awesome up to the 12th floor. buddy, head inside the building and wait.
@@ -404,14 +404,14 @@
 - Trust me, I've been there.
 - That's not really what I mean.
 - Sure, it isn't.
-- (silenced g*n) (groans)
+- (silenced g\*n) (groans)
 - Oh!
 - Chuck!
-- You k*ll Julius!
-- What? k*ll? ! I would never do that.
-- It's a tranq g*n. (g*n firing, groans)
+- You k\*ll Julius!
+- What? k\*ll? ! I would never do that.
+- It's a tranq g\*n. (g\*n firing, groans)
 - That's preposterous.
-- k*ll someone.
+- k\*ll someone.
 - Come on. Bingo.
 - All right, he's going to be fine. Come on.
 - So, what do you think is up there?
@@ -423,7 +423,7 @@
 - (elevator bell dings)
 - See? Nothing to worry about.
 - Man: Hey, you're not allowed up here!
-- (silenced g*n)
+- (silenced g\*n)
 - (heavy breathing)
 - Look out.
 - Dude, you're incredible!
@@ -472,9 +472,9 @@
 - There's a man in the office at the end of the hall.
 - Chuck, Sydney says there's a man in the office at the end of the hall.
 - Find him.
-- And k*ll him.
-- Chuck, she wants us to find him and k*ll him.
-- Nobody's going to k*ll anybody, okay?
+- And k\*ll him.
+- Chuck, she wants us to find him and k\*ll him.
+- Nobody's going to k\*ll anybody, okay?
 - Just calm down and stay close.
 - Excuse me, sir?
 - Excuse me, I know this is a little awkward, but don't move.
@@ -493,48 +493,48 @@
 - Now, Sydney will be here any minute.
 - We've got to do this.
 - Syd-Sydney's coming here?
-- You know she wants me to k*ll you, right?
+- You know she wants me to k\*ll you, right?
 - But don't worry, I'm... I'm not gonna do that.
 - However, we do need a plan.
 - I've got one.
-- You're going to k*ll me, Chuck.
+- You're going to k\*ll me, Chuck.
 - What? No.
-- No, no, no, no. I don't k*ll people.
+- No, no, no, no. I don't k\*ll people.
 - Okay? I have rules against such things.
-- sh**t me. Here.
+- sh\*\*t me. Here.
 - Try to be precise.
 - Are you listening to anything I'm saying right now?
-- I don't k*ll people.
-- Therefore, I don't sh**t them.
-- Maybe with a tranq g*n. I'll tranq anybody you want.
-- But a g*n. I hate g*n.
-- Listen, if you don't k*ll me now, you and Devon are as good as dead.
+- I don't k\*ll people.
+- Therefore, I don't sh\*\*t them.
+- Maybe with a tranq g\*n. I'll tranq anybody you want.
+- But a g\*n. I hate g\*n.
+- Listen, if you don't k\*ll me now, you and Devon are as good as dead.
 - Well, I'm not gonna do it!
 - Chuck.
 - I have to die. Now.
 - The ring knows too much.
 - There's no other way.
 - So, just do it.
-- sh**t me.
+- sh\*\*t me.
 - (heavy breathing)
 - I... I... I can't do it.
 - I can't do it.
-- Afterward, put the g*n in Devon's hands, then hide.
+- Afterward, put the g\*n in Devon's hands, then hide.
 - When she's leaves, open this.
-- Truth is, I hate g*n, too.
+- Truth is, I hate g\*n, too.
 - Who are you?
 - (gasps, body thuds)
 - Chuck!
 - Huh? What?
 - What, no, I didn't... No!
-- That's not me, I didn't sh**t him, I swear!
+- That's not me, I didn't sh\*\*t him, I swear!
 - He's dead.
-- Chuck, this is not a tranq g*n.
+- Chuck, this is not a tranq g\*n.
 - (door opening)
 - (footsteps approaching)
 - Okay, listen to me.
-- Remember, you sh*t him.
-- g*n?
+- Remember, you sh\*t him.
+- g\*n?
 - Take off the watch.
 - Well done.
 - Cute and talented.
@@ -550,7 +550,7 @@
 - "Save me"?
 - Amiodarone.
 - Amiodarone stops your heart, only momentarily though.
-- If it's a clean sh*t I think I can save him.
+- If it's a clean sh\*t I think I can save him.
 - Here.
 - (gasping)
 - (groaning)
@@ -558,7 +558,7 @@
 - I would like to introduce you all to CIA Special Agent Daniel Shaw.
 - For the last five years, he has worked on nothing but taking out the ring.
 - From this point on, Agent Shaw has total command authority on any mission having anything to do with the ring.
-- Really? This guy? I have back issues of g*n & a*mo older than he is.
+- Really? This guy? I have back issues of g\*n & a\*mo older than he is.
 - Be that as it may, you should all know that I've been fully briefed on the details of the Intersect.
 - That's right. I know everything.
 - Thank you very much, general.
@@ -581,7 +581,7 @@
 - Casey, Sarah, please!
 - Explain the risks to him.
 - The risks are greater for Devon if we don't use him.
-- Sydney would sooner k*ll him than let him go.
+- Sydney would sooner k\*ll him than let him go.
 - Well, I don't care.
 - He's not a spy.
 - Well, Chuck, then I guess the question is, Do you have a better plan?
@@ -663,11 +663,11 @@
 - (beeping)
 - Sydney: How did you activate this phone?
 - Who is this?
-- I'm the spy who k*ll Agent Shaw.
+- I'm the spy who k\*ll Agent Shaw.
 - This is not Devon Woodcomb.
 - Yeah, well, you've been dealing with the wrong man.
 - Devon was a decoy.
-- I'm the one who put that b*llet through Agent Shaw's chest last night.
+- I'm the one who put that b\*llet through Agent Shaw's chest last night.
 - I'm the spy that you're looking for.
 - And I am in charge of this mission now.
 - Hey, hey, Sarah, uh, it's Chuck.
@@ -705,7 +705,7 @@
 - I'm going in.
 - So am I.
 - I'm afraid I'm going to have to ask you two to stand down.
-- I don't like g*n much, but when necessary, I will use them.
+- I don't like g\*n much, but when necessary, I will use them.
 - Finally, we meet.
 - In an electronics store.
 - Which is different.
@@ -731,25 +731,25 @@
 - (high-pitched, martial arts cries)
 - Get him.
 - That was his plan?
-- You know what? I'm going in. sh**t me if you have to.
-- (g*n chamber clicks)
+- You know what? I'm going in. sh\*\*t me if you have to.
+- (g\*n chamber clicks)
 - Casey: Hey!
 - (sighs)
 - You're fast.
-- Something else you should know about me... I love g*n.
+- Something else you should know about me... I love g\*n.
 - Good boy.
 - (grunts)
 - Go! I got these guys.
 - Sydney: Check the cage.
 - Oh!
-- (g*n chamber clicks)
+- (g\*n chamber clicks)
 - (groaning)
 - (grunting)
 - (groans)
 - (grunting)
 - (grunting)
 - (panting)
-- (g*n chamber clicks)
+- (g\*n chamber clicks)
 - (sighs)
 - (grunts)
 - Stop! Do not move!
@@ -759,7 +759,7 @@
 - (sighs)
 - Spies don't say please.
 - Now, Devon...
-- He would have had a b*llet between my eyes by now.
+- He would have had a b\*llet between my eyes by now.
 - All right, fine, your choice... Live or die.
 - (panting)
 - That's better.
@@ -769,12 +769,12 @@
 - You do want it, don't you?
 - Or if you can't think of a use for it, I'm sure I can.
 - I can make a phone call and have 50 operatives here.
-- Don't make me sh**t you.
+- Don't make me sh\*\*t you.
 - I don't think you can.
 - Sarah: Chuck!
-- (g*n)
-- (body thuds, b*llet casings clatter)
-- Like I said, I hate g*n, but it pays to know how to use one.
+- (g\*n)
+- (body thuds, b\*llet casings clatter)
+- Like I said, I hate g\*n, but it pays to know how to use one.
 - Suppose congratulations are in order, Chuck.
 - Devon's identity has been contained.
 - We got lucky this time, Shaw.
@@ -790,7 +790,7 @@
 - She'll tell you the same thing.
 - Sometimes it helps to know that you've got something to lose.
 - (rhythmic clicking)
-- (singsongy) * Morgan! *
+- (singsongy) \* Morgan! \*
 - ♪ Come out and play-ay! ♪
 ♪ Morgan! ♪
 ♪ Come out and play-ay! ♪

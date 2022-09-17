@@ -7,7 +7,7 @@
 - My father invented the Intersect.
 - No hug for your old partner?
 - I'm been looking for you for a long time.
-- Put him on the helicopter, and k*ll his son.
+- Put him on the helicopter, and k\*ll his son.
 - I overheard them say that they're moving your father to Black Rock.
 - Black Rock is a code name for a secret Fulcrum base in Barstow.
 - I'm shutting down this project. Chuck's going into lockdown.
@@ -31,9 +31,9 @@
 - Cute couple.
 - If anything happens to them...
 - What are you going to do?
-- You going to k*ll me? You going to b*at me to a pulp?
+- You going to k\*ll me? You going to b\*at me to a pulp?
 - I'm sure you can come up with something more creative.
-- No, you... you had it right. I'll k*ll you!
+- No, you... you had it right. I'll k\*ll you!
 - Forgot about that. I'm sorry. I'll tell you what.
 - As long as the new Intersect is operational by tomorrow night, your son will be fine.
 - Hold on.
@@ -69,7 +69,7 @@
 - I'm going to assume that that whole out of sight thing doesn't really apply now.
 - Right.
 - I'm at the motel a mile south of the base.
-- They just checked in. You want me to k*ll them?
+- They just checked in. You want me to k\*ll them?
 - Vincent, I may need them for leverage.
 - When the tests are complete, feel free to use whatever despicable acts of violence are in your nature.
 - You could eat them if you want.
@@ -105,7 +105,7 @@
 - Don't move.
 - Don't breathe.
 - Just stay there. Stay. Stay.
-- I'm going to k*ll you, Morgan.
+- I'm going to k\*ll you, Morgan.
 - Dead man walking.
 - What do you want?
 - I want to speak to Michael.
@@ -149,10 +149,10 @@
 - I'm not leaving without Sarah.
 - You drive or I end you.
 - End me? How're you going to do that?
-- You have no g*n.
-- You don't think I could k*ll you with my thumb or my elbow?
+- You have no g\*n.
+- You don't think I could k\*ll you with my thumb or my elbow?
 - Nerd bludgeoned by radiator?
-- You can't k*ll me with that radiator.
+- You can't k\*ll me with that radiator.
 - It is far too confined here for you to get the appropriate torque.
 - I could strangle you with the handcuff chain.
 - You could maybe do that.
@@ -164,16 +164,16 @@
 - Drop it!
 - Can't do that, John.
 - Guys!
-- Let's just take a b*at here. Remember, we are a team.
+- Let's just take a b\*at here. Remember, we are a team.
 - Stay in the car!
 - Technically, I still have one foot in the car.
 - How far you think you're going to get?
 - Until we rescue Chuck's dad.
-- You're out of b*ll*ts.
+- You're out of b\*ll\*ts.
 - It's over.
 - On the ground.
 - You two mind taking that outside?
-- We're in a b*mb shelter.
+- We're in a b\*mb shelter.
 - I'm sorry, Sarah.
 - You didn't do anything wrong, Chuck.
 - You trusted somebody who you thought cared about you.
@@ -250,7 +250,7 @@
 - Is that Awesome?
 - Ass Man!
 - We are under siege!
-- sh**t to k*ll!
+- sh\*\*t to k\*ll!
 - Well... Hey, there, Emmett.
 - It is a good thing I installed those emergency generators.
 - I underestimate you.
@@ -268,7 +268,7 @@
 - Well, no, John.
 - But this is not the answer. Okay?
 - You need help, bro. You need serious psychiatric help.
-- What are you doing, man? ! Put the g*n away, dude!
+- What are you doing, man? ! Put the g\*n away, dude!
 - Take another step and I will drop you.
 - Not bad for a frat boy.
 - Don't you move.
@@ -277,7 +277,7 @@
 - Don't freak out.
 - This is crazy. We've got to call the police.
 - We can't do that. Here, drink this.
-- He tried to k*ll me!
+- He tried to k\*ll me!
 - Why can't we call the cops?
 - Because I am the cops.
 - Moron.
@@ -373,14 +373,14 @@
 - Can you be Awesome for me?
 - Good.
 - You focus! Focus! I need your A game.
-- No g*n for me?
+- No g\*n for me?
 - No. You get to stay in the car.
 - The whole stay in the car bit? Aren't we past this?
 - I think I'm perfectly capable of handling myself on a mission.
 - What, Agent Imbecile?
 - Drop it.
 - You drop it.
-- No! I've come this far. If he stop me, he'll have to k*ll me.
+- No! I've come this far. If he stop me, he'll have to k\*ll me.
 - Beckman called an air strike. It'll be here in 20 min.
 - What? Casey, my father is here! You said you would rescue him.
 - You gave me your word.
@@ -430,9 +430,9 @@
 - I figure if I'm gonna die, I might see what all the fuss is about.
 - Keys.
 - Go! There's an air strike headed this way.
-- Three minutes to target, general. Prepping w*apon systems.
+- Three minutes to target, general. Prepping w\*apon systems.
 - "Gone to stop Roark. Be back in five. Chuck. "
-- I'm gonna k*ll him.
+- I'm gonna k\*ll him.
 - Don't worry, Agent Casey, we'll take care of that.
 - The prodigal son returns.
 - Thank you for saving me the trouble of hunting you down.
@@ -440,7 +440,7 @@
 - Move it.
 - Great, the gang's all here.
 - It's only fair that a son should see the results of his father's labor.
-- Of course if this doesn't work, I'm afraid I have to go back to that bit where I k*ll everybody.
+- Of course if this doesn't work, I'm afraid I have to go back to that bit where I k\*ll everybody.
 - If it does work?
 - If it does work, Same result, but, you should root for it.
 - I mean, nobody likes a cynic.

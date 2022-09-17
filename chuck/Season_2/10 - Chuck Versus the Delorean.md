@@ -152,7 +152,7 @@
 - If Agent Walker's uncomfortable, I'd be happy to make the arrest.
 - No one is getting arrested. Yet.
 - Amad's been on the CIA's terror watch list for years.
-- He's suspected of funding t*rror1st regimes in Afghanistan and Kenya.
+- He's suspected of funding t\*rror1st regimes in Afghanistan and Kenya.
 - We have no recent photos, and he goes by a number of different aliases.
 - Any information your father could provide about the sheik's financial holdings would be valuable intel.
 - General, my father is unaware of my CIA career.
@@ -406,7 +406,7 @@
 - I lent him that money to get an apartment, not blow it on some stupid car.
 - What? !
 - That money was for our apartment? !
-- I'm gonna k*ll him.
+- I'm gonna k\*ll him.
 - Get in line, Anna.
 - All right, here's the thing.
 - I beg both of you to reserve judgment until you've seen the plate.
@@ -600,7 +600,7 @@
 - Don't give it to him, honey.
 - If anything happens to my father...
 - What, you will con me out of more money?
-- No... I'll k*ll you.
+- No... I'll k\*ll you.
 - Then, bring me what is mine, and we won't have a problem.
 - Okay?
 - I'll call you in an hour.
@@ -652,15 +652,15 @@
 - Hey.
 - Yeah.
 - Nothing.
-- Don't sh**t! Don't sh**t!
+- Don't sh\*\*t! Don't sh\*\*t!
 - I have your money right here.
 - Hey, no!
-- Grab her g*n!
+- Grab her g\*n!
 - Mr. Lichtenstein, thank you for joining.
 - Here to sell me the DeLorean?
 - I have your money, okay?
 - And I can wire it to you right now.
-- If you're lying, I will put a b*llet in her head.
+- If you're lying, I will put a b\*llet in her head.
 - All I need is your account number.
 - Please. We're just a couple of bad con men who got in way too deep.
 - All right? All we want to do is give you your money back.
@@ -671,7 +671,7 @@
 - Of course I'll never tell him that.
 - There. You have your money.
 - Pleasure doing business.
-- Now k*ll them.
+- Now k\*ll them.
 - What?
 - OKAY.
 - Hold it right there!
@@ -690,12 +690,12 @@
 - Oh. I'm just the tip of the spear.
 - Rest of the crew's on their way up.
 - I've been following these grifters for months now.
-- You know, if you gentlemen would be willing to testify, I'm sure we can get the w*apon charges dropped, hmm?
+- You know, if you gentlemen would be willing to testify, I'm sure we can get the w\*apon charges dropped, hmm?
 - Drop it!
 - No, no, no, no, no, no, no, no.
-- You lower your w*apon, or I will k*ll your father.
+- You lower your w\*apon, or I will k\*ll your father.
 - If I did that to him, imagine what I'll do to you.
-- Drop your w*apon!
+- Drop your w\*apon!
 - Oh!
 - Amad's getting away.
 - Not at 22 miles an hour he's not.
@@ -750,8 +750,8 @@
 - DO NOT.
 - Well, it couldn't hurt to look, you know...
 - FOR SALE FOR SALE Aah! Ooh!
-- Boy, lucky you're a good sh*t.
-- But a good con man doesn't need a g*n, and he can leave...
+- Boy, lucky you're a good sh\*t.
+- But a good con man doesn't need a g\*n, and he can leave...
 - Leave town whenever he wants.
 - I know.
 - Uh, Dad, can you get me some Rocky Road?

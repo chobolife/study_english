@@ -152,7 +152,7 @@ Original Air Date on December 23, 2011
 - Get my drift?
 - Why are you doing this?
 - Because you put me in jail?
-- Because of our last fight, because you tried to k*ll me?
+- Because of our last fight, because you tried to k\*ll me?
 - So much history, Chuck.
 - It could be anything.
 - Fine. What do you want?
@@ -180,7 +180,7 @@ Original Air Date on December 23, 2011
 - Yeah, but he has the Intersect.
 - I mean, we're going to need a plan, a really good plan.
 - I've got the plan.
-- Daniel Shaw m*rder my father, and now he has my wife.
+- Daniel Shaw m\*rder my father, and now he has my wife.
 - He's gonna wish he never left that prison cell.
 - That plan's kind of vague. Morgan, I need you to reverse-engineer that virus. Use the nerds.
 - If they're focused, they're better than any computer expert in the CIA.
@@ -230,7 +230,7 @@ Original Air Date on December 23, 2011
 - I'm going into Castle, in through the ducts.
 - All right. Hey, be careful.
 - (clamoring)
-- It's a w*r zone.
+- It's a w\*r zone.
 - Some scrooge stole Christmas right out of the Buy More.
 - Mike, I'm really sorry to bother you.
 - Maybe we should just forget it.
@@ -240,7 +240,7 @@ Original Air Date on December 23, 2011
 - Damn hell!
 - What kind of monster steals a Santa suit on Christmas Eve, but leaves the eyebrows?
 - I am Eleanor Woodcomb.
-- Babe, don't worry, I'm calling in the big g*n.
+- Babe, don't worry, I'm calling in the big g\*n.
 - Chuck, there's been a robbery at the Buy More.
 - Brace yourself: the Santa suit is gone.
 - Chuck: Well, that's terrible.
@@ -260,9 +260,9 @@ Original Air Date on December 23, 2011
 - No, you're not.
 - If you were, you would've brought a coat, silly.
 - You're going into hypothermic shock.
-- Pretty soon, you'll be in and out of consciousness until finally your heart stops b*at.
-- Why don't you just k*ll me?
-- k*ll you?
+- Pretty soon, you'll be in and out of consciousness until finally your heart stops b\*at.
+- Why don't you just k\*ll me?
+- k\*ll you?
 - This is about you.
 - Why do you think I wanted you in Castle and I sent Chuck to the CIA?
 - We both know that you're the superior spy.
@@ -278,7 +278,7 @@ Original Air Date on December 23, 2011
 - I don't know what your plan is, but... it's not going to work.
 - Shaw's so handsome and smart.
 - I bet he reads lots of books.
-- You think you can b*at Chuck?
+- You think you can b\*at Chuck?
 - You're not half the man that he is.
 - You're not half the man that he is.
 - This isn't about Chuck, Sarah.
@@ -365,12 +365,12 @@ Original Air Date on December 23, 2011
 - But do you really think I want to spend the holidays with you?
 - That I wouldn't rather be with my family?
 - It's a trick question, Sarah.
-- Because you sh*t my wife in cold bl*od.
+- Because you sh\*t my wife in cold bl\*od.
 - You brought this all upon yourself.
 - (dull clanking)
 - (grunting)
 - (groans)
-- (g*n clicks)
+- (g\*n clicks)
 - (grunting)
 - Very disappointing, Casey.
 - (beep)
@@ -391,7 +391,7 @@ Original Air Date on December 23, 2011
 - What, like a Bar Mitzvah?
 - Or something that's a little...
 - What exactly are you...
-- (g*n click)
+- (g\*n click)
 - Santa!
 - Retreat immediately or I will see you court-martialed!
 - (huffs)
@@ -460,7 +460,7 @@ Original Air Date on December 23, 2011
 - (sighs)
 - It's Shaw.
 - He kidnapped Sarah.
-- Daniel Shaw, who k*ll Dad?
+- Daniel Shaw, who k\*ll Dad?
 - Um... what can I do?
 - I... I hate to say this-- just-just go home.
 - No, I want to help!
@@ -538,7 +538,7 @@ Original Air Date on December 23, 2011
 - And why would I trust you?
 - Look at the monitor.
 - Buy More is empty.
-- You can come up here and k*ll me.
+- You can come up here and k\*ll me.
 - As long as Sarah's safe.
 - Pitiful.
 - (whirring, blipping, powering up)
@@ -546,12 +546,12 @@ Original Air Date on December 23, 2011
 - You know what the ultimate revenge is?
 - Spending Christmas Eve with you.
 - I'm gonna let you live.
-- I want you to watch while I k*ll your husband.
+- I want you to watch while I k\*ll your husband.
 - (shuddering)
 - Chuck has a plan.
 - So do I.
 - And I've spent the last two years in prison, perfecting it.
-- You k*ll my wife.
+- You k\*ll my wife.
 - Now you're gonna suffer, just like I did.
 - You're gonna spend the rest of your life without Chuck.
 - (gasping)
@@ -567,7 +567,7 @@ Original Air Date on December 23, 2011
 - ... and I'm really sorry that I'm having to tell you this recorded on an electronic bear.
 - Electronic bear.
 - I'm unarmed.
-- You can sh**t me now, if that's your plan.
+- You can sh\*\*t me now, if that's your plan.
 - But for some reason, I don't think it is.
 - No, you're absolutely right.
 - It's very important that I enjoy this.
@@ -582,13 +582,13 @@ Original Air Date on December 23, 2011
 - I've been training for a while now.
 - Oh, really?
 - Well, can you compete with the Intersect 3. 0?
-- I can practically catch a b*llet in my teeth.
+- I can practically catch a b\*llet in my teeth.
 - But you did some push-ups?
 - You hit the heavy bag?
 - Oh, just so you know, while you're begging for mercy, your wife is watching.
 - ♪
 - I've spent every waking second in jail thinking about this moment.
-- This time, I'm going to k*ll you.
+- This time, I'm going to k\*ll you.
 - (sighs)
 - You seriously underestimate the power of the Nerd Herd.
 - The Omen virus-- you put it...
@@ -609,7 +609,7 @@ Original Air Date on December 23, 2011
 - Oh, my God. Oh, man.
 - (electrical crackling)
 - One, two...
-- I'm still going to k*ll you.
+- I'm still going to k\*ll you.
 - (straining): I'd like to see you try.
 - I've been working on that one.
 - That one's for Sarah.
@@ -617,9 +617,9 @@ Original Air Date on December 23, 2011
 - I got a little bit more.
 - All right, listen to me. Listen to me.
 - You're going to have to wake up. You have to wake up because you're bolted in here and I don't have a key for the lock.
-- (g*n fires)
+- (g\*n fires)
 - (groaning)
-- What are you... ? Y-you're sh*t. You're-you're bleeding.
+- What are you... ? Y-you're sh\*t. You're-you're bleeding.
 - Shut up, numbnuts. We got to get her out of here.
 - Get her.
 - Yeah, yeah, yeah.
@@ -634,7 +634,7 @@ Original Air Date on December 23, 2011
 - You're good, Chuck.
 - But you're not lucky.
 - That was for me.
-- Nice sh*t, sis.
+- Nice sh\*t, sis.
 - But I told you to stay at home.
 - I'm Eleanor Woodcomb.
 - Since when do I do what I'm told?
@@ -642,7 +642,7 @@ Original Air Date on December 23, 2011
 - I wasn't going to let him take anybody else.
 - Merry Christmas, Ellie.
 - Merry Christmas, Chuck.
-- Authorities have confirmed, that the Omen virus was planted by a t*rror1st named Daniel Shaw.
+- Authorities have confirmed, that the Omen virus was planted by a t\*rror1st named Daniel Shaw.
 - A private security team stopped him before the virus was activated.
 - And although they've chosen to remain anonymous, we here at KCKH want to say thank you and also wish our viewers a happy holiday.
 - And now, onto other news, where a dog barks like a duck.

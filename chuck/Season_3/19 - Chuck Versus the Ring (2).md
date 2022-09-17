@@ -35,7 +35,7 @@
 - So who's gonna get us out of this one?
 - Who even knows we're here?
 - Okay, babe. We found him.
-- Devon, these people k*ll my father.
+- Devon, these people k\*ll my father.
 - They're gonna do the same thing to Chuck.
 - You have to stop them, okay?
 - I know. I know.
@@ -46,9 +46,9 @@
 - Never stopped me before.
 - Everybody good? Comfy?
 - Uncuff yourselves.
-- It should look like you were trying to escape when I k*ll you.
+- It should look like you were trying to escape when I k\*ll you.
 - Gee, Morgan,
-- I think that when one is facing a group of m*rder, one should have a plan.
+- I think that when one is facing a group of m\*rder, one should have a plan.
 - Okay, I agree with you in principle, but we're here now, all right?
 - What would you like me to do, open up the glove box?
 - Pull up the spy manual? Maybe just... ?
@@ -77,7 +77,7 @@
 - Yeah. Yeah, I think so.
 - Everyone okay?
 - We're here to save you.
-- Hey, you used my m*ssile.
+- Hey, you used my m\*ssile.
 - Pretty cool, huh?
 - Yell at me later. Let's go.
 - Chuck. Come on. Get in the car.
@@ -102,7 +102,7 @@
 - Devon, what are you talking about?
 - This is not us.
 - We don't live off grids, okay?
-- We are regular people. We live on planet Earth, and my father was m*rder today.
+- We are regular people. We live on planet Earth, and my father was m\*rder today.
 - Our father, Chuck.
 - I'm calling the police. It's what regular people do.
 - No. Hey, no calls.
@@ -128,7 +128,7 @@
 - Tell me John's in the john.
 - Can we help you, sir?
 - I need my assistant managers and Chuck.
-- Hey, what we lack profoundly and proudly in on-the-job competence, we more than make up for with listening k*ll.
+- Hey, what we lack profoundly and proudly in on-the-job competence, we more than make up for with listening k\*ll.
 - Actually, I'm deaf in my left ear, except for a faint ringing.
 - Psst.
 - It's big news, boys.
@@ -355,7 +355,7 @@
 - This discussion is not over.
 - Muzzle down.
 - Yeah, muzzle down.
-- No g*n.
+- No g\*n.
 - Very brave, Chuck.
 - So what's happening?
 - You're under arrest.
@@ -368,7 +368,7 @@
 - Going somewhere?
 - Reach for the sky, dirtbags.
 - Oh, you people are the disease and I'm the cure.
-- Back off there, Cobra. I didn't give you any b*ll*ts.
+- Back off there, Cobra. I didn't give you any b\*ll\*ts.
 - Are you kidding me?
 - I knew this thing felt too light.
 - Chuck, we've got 'em.
@@ -381,7 +381,7 @@
 - You and your team are fugitives.
 - On whose authority would anyone arrest me?
 - What about my father?
-- Yes, I k*ll your father.
+- Yes, I k\*ll your father.
 - Yes, I work for the Ring.
 - I'm going to take down the CIA, Chuck, and still I'm going to walk out of here a hero.
 - How does that make you feel?
@@ -435,7 +435,7 @@
 - This isn't about you.
 - Shaw.
 - I'm in the store.
-- I've wired it with expl*sives.
+- I've wired it with expl\*sives.
 - It'll take ten minutes for the CIA backup team to arrive.
 - I only need seconds.
 - I want you to send me Chuck.
@@ -448,7 +448,7 @@
 - What the hell's going on, Morgan?
 - Walker just pulled the silent alarm.
 - Yeah, it's... it's Shaw, okay.
-- He's here and he planted b*mb all over the store and he's going to blow the whole place up.
+- He's here and he planted b\*mb all over the store and he's going to blow the whole place up.
 - Where's Chuck?
 - You got to get everyone out of the store.
 - You anywhere near a fire alarm?
@@ -462,11 +462,11 @@
 - Now! Do it!
 - Break your thumbs.
 - Yes, sir.
-- You don't want to k*ll all these people.
+- You don't want to k\*ll all these people.
 - You're right.
-- I don't want to k*ll all these people.
-- However, I would like to k*ll Chuck.
-- And I wouldn't mind k*ll you, too.
+- I don't want to k\*ll all these people.
+- However, I would like to k\*ll Chuck.
+- And I wouldn't mind k\*ll you, too.
 - Hey, have you seen Big Mike?
 - We're going to need a diversion to get out of here.
 - What are you thinking?
@@ -477,7 +477,7 @@
 - Where is he?
 - He's not coming.
 - He can't.
-- A g*n?
+- A g\*n?
 - Is that what you really want?
 - Do you have one good flash left?
 - Saved the best for last.
@@ -510,7 +510,7 @@
 - Sorry.
 - Just had to reboot.
 - You have to do it.
-- You have to k*ll me.
+- You have to k\*ll me.
 - No, thanks.
 - I've already done that once before.
 - That's what makes you weak.
@@ -559,7 +559,7 @@
 - He's gonna drop it.
 - And how I... dropped it.
 - I can't believe I just did that.
-- b*mb are armed, everybody!
+- b\*mb are armed, everybody!
 - Run!
 - I'm-I'm so sorry, everybody.
 - I'm so sorry. It was an accident.
@@ -573,7 +573,7 @@
 - Sweet Lord, they did it.
 - They actually did it.
 - Those crazy nerds blew up the freakin' Buy More.
-- In our top story tonight, it's been 24 hours since the Burbank Buy More b*rned to the ground, and the police have had no luck in apprehending the two lead suspects.
+- In our top story tonight, it's been 24 hours since the Burbank Buy More b\*rned to the ground, and the police have had no luck in apprehending the two lead suspects.
 - These two men are on the run and considered extremely dangerous.
 - If you encounter these fugitives, please call your local authorities immediately.
 - And in other...
@@ -630,7 +630,7 @@
 - Charles, I'll be back in a second.
 - Hey, Dad.
 - I've been a spy for the last 20 years, working for myself, doing things governments are afraid to do.
-- Maybe being a spy is... is in our bl*od, and... maybe I should have told you... all of this long ago, but Chuck, your story... It's only just beginning.
+- Maybe being a spy is... is in our bl\*od, and... maybe I should have told you... all of this long ago, but Chuck, your story... It's only just beginning.
 - It's time you know the truth about my work and about the people who tried to destroy me because if I'm gone, then you're not safe from them anymore, and neither is Ellie.
 - These people... They... they are... they are ruthless and cunning and...
 - Chuck, it's... it's time you learned about your family.

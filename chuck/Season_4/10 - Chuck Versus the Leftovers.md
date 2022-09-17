@@ -4,7 +4,7 @@
 - Ellie: My dad must have left this for me.
 - Oh, my God.
 - I didn't think you could top abandoning me for 20 years.
-- Then you sh*t me.
+- Then you sh\*t me.
 - Sarah, my mom did something to me with that device.
 - [CHUCK GASPS]
 - My name is Alexei Volkoff.
@@ -17,7 +17,7 @@
 - I'm as surprised as you are.
 - I was there.
 - We tied them up.
-- Planted expl*sives all around them.
+- Planted expl\*sives all around them.
 - And yet he survived.
 - [VOLKOFF LAUGHS]
 - It was my fault.
@@ -63,7 +63,7 @@
 - What? No, no, no. Of course not. They're doctors, it happens.
 - Besides, tonight is our annual leftover dinner.
 - Just as delicious as Thanksgiving without all the big-event stress.
-- Let it snow Let it snow Remember, Frost wants them k*ll at close range.
+- Let it snow Let it snow Remember, Frost wants them k\*ll at close range.
 - No sound.
 - I guess I was just a little worried because the holidays are for family time.
 - With everything that happened with your mother...
@@ -73,20 +73,20 @@
 - Ha, ha. Don't sound so skeptical, all right?
 - If my mom were standing in front of me, I honestly think I'd say: "All is forgiven and good luck being an evil bad guy. "
 - And, uh, speaking of looking forward to the future...
-- [kn*fe CLICKS]
+- [kn\*fe CLICKS]
 - Chuck, get down.
 - [GRUNTING]
 - Wow, that stuff really works.
 - Sarah, I can't handle these guys without the Intersect. I only got that one move!
 - Sarah?
-- [SILENCED g*n]
+- [SILENCED g\*n]
 - Mom?
 - Come with me if you wanna live.
 - Chuck: Okay, we're here, we're safe. Start answering some of my questions.
 - We can't stay here. Volkoff has contacts in the CIA. We have to move.
 - We should believe you. Last time, trusting you worked out well.
 - Chuck, I didn't want to have to do the things I did.
-- Most moms don't have to explain to their kids why they sh*t them.
+- Most moms don't have to explain to their kids why they sh\*t them.
 - Or tied them up and blew up their home.
 - I didn't have a choice.
 - There's always a choice.
@@ -95,7 +95,7 @@
 - We're running out of...
 - Ah. You're not going anywhere.
 - What happened to putting the past behind you?
-- You wanna be able to trust your mom, not worry she'll sh**t you in the face.
+- You wanna be able to trust your mom, not worry she'll sh\*\*t you in the face.
 - Which is why you should stay out of this.
 - There is something she's not telling us and we're not gonna get to it with you.
 - I'm perfectly capable of doing this...
@@ -168,8 +168,8 @@
 - I don't know.
 - We know these men were high-level Volkoff assassins.
 - So, what's your game here?
-- I was ordered to use those three to k*ll Chuck.
-- I had to sh**t them to save Chuck's life.
+- I was ordered to use those three to k\*ll Chuck.
+- I had to sh\*\*t them to save Chuck's life.
 - Protecting him has always been my number-one priority.
 - [PHONE RINGING]
 - SARAH [OVER PHONE]: Hello?
@@ -238,7 +238,7 @@
 - Do not come out until I... Morgan?
 - [STATIC CRACKLING OVER PHONE]
 - Volkoff cut off our cell phones.
-- That's always Volkoff's first move, k*ll all communications.
+- That's always Volkoff's first move, k\*ll all communications.
 - Hmm.
 - What are we gonna do? Morgan is still up there.
 - Lucky for us, this is a state-of-the-art CIA facility.
@@ -246,18 +246,18 @@
 - We've less than a minute. Impress me.
 - Okay, let's do some damage.
 - Attention, members of the CIA.
-- You've k*ll three of my men and captured my best agent.
+- You've k\*ll three of my men and captured my best agent.
 - I'm here to get her back.
 - Keep talking, commie. It's party time.
 - CASEY [OVER PA]: Mr. Volkoff, exit the Buy More now.
 - K. K. , go.
-- Automated Voice [OVER PA]: w*apon system online.
+- Automated Voice [OVER PA]: w\*apon system online.
 - Better dead than red.
-- Automated Voice: w*apon disabled.
+- Automated Voice: w\*apon disabled.
 - Casey, what's happening?
-- Must have hacked in. My g*n are down.
+- Must have hacked in. My g\*n are down.
 - Understand, this is not a negotiation.
-- Give me Frost... or I'll k*ll you all... starting with the fat man and the Indian.
+- Give me Frost... or I'll k\*ll you all... starting with the fat man and the Indian.
 - God.
 - Progress?
 - Scans revealed an elevator shaft behind the home-theater room.
@@ -274,7 +274,7 @@
 - We can override the lockdown, bring our defenses back up.
 - Now, you two stay down here with Mama B.
 - When Volkoff calls to negotiate, buy me some time.
-- Why would Volkoff pull off an as*ault on a CIA facility for one agent?
+- Why would Volkoff pull off an as\*ault on a CIA facility for one agent?
 - He's gotta be after something bigger.
 - Well, whatever it is... there's something my mom's not telling us.
 - I'm not lying. He wants me.
@@ -329,7 +329,7 @@
 - Chuck, wait.
 - Hey, are you okay?
 - How can I trust anything she says?
-- Every time I do, I wind up getting sh*t or almost blown up.
+- Every time I do, I wind up getting sh\*t or almost blown up.
 - I haven't been stabbed yet.
 - Going undercover for so long and staying loyal is a hard thing to do.
 - I got lucky. I was assigned to you. Your mom got Volkoff.
@@ -346,12 +346,12 @@
 - Where are Chuck and Sarah and what is going on?
 - Volkoff's taken control of the Buy More.
 - He's captured Tweedledumb and Tweedledumber.
-- He's gonna k*ll them if we don't give him Chuck's mom.
+- He's gonna k\*ll them if we don't give him Chuck's mom.
 - Jeff and Lester? We gotta save them.
 - Mm-hm.
-- If we don't get those g*n working, we're gonna be k*ll.
+- If we don't get those g\*n working, we're gonna be k\*ll.
 - No, no, no. You're absolutely right. Okay.
-- I'll go. Get the g*n running, I'll save Jeff and Lester.
+- I'll go. Get the g\*n running, I'll save Jeff and Lester.
 - Morgan, that's a stupid idea.
 - Maybe, but I'm not just gonna sit here on all fours and watch those two die.
 - Now, wish me luck.
@@ -370,7 +370,7 @@
 - Just very bad things. We'll leave it at that.
 - Is that a threat?
 - Let me show you something.
-- This is a thermite-TH3 incendiary expl*sive.
+- This is a thermite-TH3 incendiary expl\*sive.
 - When it's detonated, the temperatures will exceed 4000 degrees Fahrenheit.
 - Metal will boil.
 - I'm gonna drop it down the elevator shaft... and it will incinerate every single one of you... including my beloved Frost.
@@ -392,7 +392,7 @@
 - Don't be afraid.
 - I told you I'd let you live and I meant it.
 - But you should know... I have your friend Casey.
-- Put down your w*apon.
+- Put down your w\*apon.
 - Frost.
 - Thank you for coming for me.
 - I had no choice.
@@ -453,7 +453,7 @@
 - Call your sister back. Tell her you're coming to dinner... and you're bringing some guests.
 - Okay.
 - Okay, I know it's tough. We just have to be calm.
-- You just brought a psychotic k*ll to your pregnant daughter's house.
+- You just brought a psychotic k\*ll to your pregnant daughter's house.
 - Considering the circumstances, I'm pretty calm.
 - Everything's gonna be fine. You just have to trust me.
 - I've heard that before.
@@ -584,7 +584,7 @@
 - We're leaving.
 - But what kind of potential father-in-law would I be if I didn't set an example?
 - Chuck has to learn, you make a threat, you follow through on it.
-- [g*n CLICKS]
+- [g\*n CLICKS]
 - I didn't really have to do that... but I just really like the sound.
 - Alexei, stop.
 - My love?

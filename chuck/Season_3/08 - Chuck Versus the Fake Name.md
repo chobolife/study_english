@@ -88,7 +88,7 @@
 - Nobody wants to smell you.
 - The next time you wear cologne in my car, I will end you.
 - Night-night.
-- Rafe Gruber is a martial arts expert, a sharpsh**ter.
+- Rafe Gruber is a martial arts expert, a sharpsh\*\*ter.
 - He is one of five people who can hit a target from half a mile away.
 - I mean, the man is a chameleon.
 - It is a miracle we even got a hit on his location.
@@ -126,7 +126,7 @@
 - Ow! Ow!
 - What'd you do that for? ! I'm proving a point.
 - Everything you think and feel, Chuck, even your innate reflexes have to change.
-- The kind of people that Gruber associates with will k*ll first, ask questions later.
+- The kind of people that Gruber associates with will k\*ll first, ask questions later.
 - Yeah, okay fine, I get it. What's the plan?
 - Well, Casey is going to elicit the details from Gruber, whom he's meeting, where and when.
 - Then you'll go in as Gruber, take his place.
@@ -155,7 +155,7 @@
 - Not bad, Bartowski.
 - Who the hell is Bartowski?
 - Look at that guy.
-- Chuck's the greatest lady k*ll Burbank has ever seen.
+- Chuck's the greatest lady k\*ll Burbank has ever seen.
 - He's a real "Chuck" magnet.
 - Please with the puns.
 - Terrible timing for my number one employee Morgan to be away at a leadership seminar.
@@ -166,7 +166,7 @@
 - What, has he got some kind of deal with the devil?
 - I've narrowed it down.
 - Either mind controlling LSD or sorcery.
-- El g*n School of Finance has taught me when you try to sell a house, bake some cookies.
+- El g\*n School of Finance has taught me when you try to sell a house, bake some cookies.
 - Make the place smell familiar.
 - We're gonna do the same thing here.
 - Except with gumbo.
@@ -200,7 +200,7 @@
 - Definitely a deal with the devil.
 - I am so lonely.
 - Come on.
-- I can pass for a cold-blooded k*ll, right?
+- I can pass for a cold-blooded k\*ll, right?
 - What happened to Rafe?
 - What?
 - Imbecile can't go in alone.
@@ -249,36 +249,36 @@
 - Yeah, but where does the job end?
 - I can barely remember who I am anymore.
 - CHUCK I'm a busy guy, so what's the name?
-- Who do our mutual friends want me to k*ll?
+- Who do our mutual friends want me to k\*ll?
 - The guy's name is... I remember now!
-- You look like this hotshot sn*per I served with a while back.
+- You look like this hotshot sn\*per I served with a while back.
 - Name Alex Coburn, ring a bell?
 - What are you trying to say?
 - Simple. This guy isn't who he says he is.
 - Maybe he's some kind of fed.
 - Damn it! Casey's been made.
 - We need to get them out of there.
-- How are we supposed to do that without getting everybody else k*ll?
+- How are we supposed to do that without getting everybody else k\*ll?
 - We need that name, Walker.
 - We need to know who the Ring wants dead.
 - Are you implying that this guy, my guy, is a cop?
 - That's exactly what I'm saying.
 - So what does that say about you?
 - If he's a cop...
-- I'll k*ll him myself.
+- I'll k\*ll him myself.
 - Do him, Rafe!
 - What are you waiting for?
 - Quit stalling. Keep stalling, Chuck.
 - We need more time.
 - We're waiting for backup.
 - Time's running out.
-- k*ll him.
-- I'm not a m*rder.
+- k\*ll him.
+- I'm not a m\*rder.
 - I'm an assassin!
 - What's the damn difference?
 - What's the damn difference?
-- I don't k*ll because I like it.
-- I k*ll because it's a means to something.
+- I don't k\*ll because I like it.
+- I k\*ll because it's a means to something.
 - In this case, information.
 - Information that I wouldn't get from a dead guy per your suggestion!
 - Now you're gonna tell me, who's your informant?
@@ -289,7 +289,7 @@
 - I got something special for occasions such as these.
 - Is this stuff sterile?
 - I take pride in my work, all right?
-- I want to k*ll him, not some secondary infection.
+- I want to k\*ll him, not some secondary infection.
 - No.
 - Tell me what you know!
 - Move!
@@ -332,7 +332,7 @@
 - Oh, hey!
 - Hi!
 - Let's go eat.
-- I'm not gonna lie to you, boys, Bartowski is k*ll it with the ladies.
+- I'm not gonna lie to you, boys, Bartowski is k\*ll it with the ladies.
 - I know.
 - First there was that hot girl from Stanford.
 - Jill. Yeah.
@@ -343,7 +343,7 @@
 - Don't you get it? None of them matter.
 - Chuck may try to replace her, but when he's with Sarah, the light in his eyes shines brightly.
 - Damn onions!
-- Oh, kn*fe.
+- Oh, kn\*fe.
 - I want expectations to be managed here.
 - I'm not Chef Boyardee.
 - Just looking forward to hanging out with your sister.
@@ -432,7 +432,7 @@
 - I can explain.
 - There is no explanation.
 - Give me this watch.
-- For a bad ass k*ll to own such a piece of crap watch?
+- For a bad ass k\*ll to own such a piece of crap watch?
 - Crazy!
 - So, we bought you a little present, though "bought" is a very loose term.
 - Look at that.
@@ -440,7 +440,7 @@
 - What are you doing here at Buy More, anyway?
 - What, are you getting some speaker wire to, uh...
 - What do I look like, a workaholic?
-- A man's got to have hobbies other than m*rder.
+- A man's got to have hobbies other than m\*rder.
 - I was here browsing music.
 - Hey, you saved us from getting pinched yesterday, huh?
 - What a guy. Ooh, I could hit you.
@@ -448,7 +448,7 @@
 - Never seen anything close to what you pulled off, Rafe.
 - The trick is making it look easy.
 - You did us a favor, and in turn, we did you a favor.
-- We tracked down the location of the guy you're supposed to k*ll.
+- We tracked down the location of the guy you're supposed to k\*ll.
 - Good news, huh?
 - Good news?
 - That is very good news.
@@ -479,7 +479,7 @@
 - How am I supposed to see him?
 - With this.
 - Naturally.
-- We hear you're one of five guys that can make this sh*t.
+- We hear you're one of five guys that can make this sh\*t.
 - It's over half a mile away.
 - Well, apparently, my reputation precedes me.
 - Again.
@@ -489,7 +489,7 @@
 - That's the mission, Walker.
 - No, it's not the mission. It's...
 - Everything.
-- Take the sh*t.
+- Take the sh\*t.
 - It's how he pulled out Casey's tooth, and how he burnt that asset a couple of weeks ago, and the way he lies to Hannah.
 - I mean, it's so easy for him.
 - Chuck's changing.
@@ -558,7 +558,7 @@
 - That's better.
 - What's your problem, man?
 - Ice him! I can't do it.
-- A b*llet's too good for this guy.
+- A b\*llet's too good for this guy.
 - Yeah, you gotta look this jerk in the eye before you cap him.
 - Yeah, yeah, my thoughts exactly.
 - I'm going over there.
@@ -575,7 +575,7 @@
 - What's your problem? My problem is that nobody messes with Rafe Gruber.
 - They're watching us.
 - I'd like you to remove those.
-- No, no, no. These are the hands that are gonna k*ll you, Shaw.
+- No, no, no. These are the hands that are gonna k\*ll you, Shaw.
 - What are you doing? !
 - You stole my girl.
 - I'm going to end you for taking Sam!
@@ -585,9 +585,9 @@
 - Shaw, enough!
 - Would you stop already?
 - I'm trying to sell myself as Rafe!
-- They're across the street with a sn*per r*fle.
-- They're gonna k*ll all of us!
-- No, I'm gonna k*ll all of you.
+- They're across the street with a sn\*per r\*fle.
+- They're gonna k\*ll all of us!
+- No, I'm gonna k\*ll all of you.
 - Come on. Flash.
 - Flash!
 - Come on! Flash!
@@ -595,13 +595,13 @@
 - Come on. That's it.
 - That's it.
 - Come here, yeah.
-- No, don't sh**t! Please don't!
+- No, don't sh\*\*t! Please don't!
 - You two got it bad for this blond.
 - Can't say I blame you.
 - I'm gonna make it easy on both of you.
 - Take her out of the equation.
 - No!
-- Five people in the world can make this sh*t, huh?
+- Five people in the world can make this sh\*t, huh?
 - Guess I'm one of them.
 - Hi.
 - Um... you said that I could come to you if I ever needed to talk.

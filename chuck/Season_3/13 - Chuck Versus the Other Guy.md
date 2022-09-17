@@ -3,9 +3,9 @@
 - Hi, I'm Chuck. Here's a few things you might need to know.
 - You're not the same guy that I fell for.
 - How am I not the same guy?
-- You k*ll somebody, Chuck.
-- He didn't k*ll the mole. What?
-- I did. It's time you learned the truth about your wife's m*rder.
+- You k\*ll somebody, Chuck.
+- He didn't k\*ll the mole. What?
+- I did. It's time you learned the truth about your wife's m\*rder.
 - No!
 - If the Ring played him this video...
 - Oh, my God, General, where is Sarah now?
@@ -30,13 +30,13 @@
 - Bond needs Q.
 - Chuck- hey, hey, hey. You need me.
 - Morgan, I need Casey right now.
-- Well, Chuck, per my excellent peripheral vision- which is a valuable spy k*ll I might add- I can tell you that one John Casey is now exiting the restroom.
+- Well, Chuck, per my excellent peripheral vision- which is a valuable spy k\*ll I might add- I can tell you that one John Casey is now exiting the restroom.
 - Oh, thank you. Great. You're welcome.
 - So I'm a spy? That's it? Official?
 - Yes, you're a spy. Gotta go.
 - I am a spy.
 - Shaw?
-- Walker k*ll Shaw's wife?
+- Walker k\*ll Shaw's wife?
 - It was five years ago. It was her Red Test.
 - Sarah didn't know. Beckman didn't know, but Shaw, he knows. Now, he and Sarah have disappeared on some mission. They're off the grid.
 - They can't be raised. They're gone. Chuck, I'm not an agent.
@@ -76,7 +76,7 @@
 - Shaw.
 - What is going on?
 - What is this? This is my Red Test.
-- Why would they have my surveillance footage from my first k*ll?
+- Why would they have my surveillance footage from my first k\*ll?
 - Just take a breath.
 - This is the worst moment of my life up there on that monitor.
 - I love you.
@@ -84,9 +84,9 @@
 - What?
 - Why? Who is she?
 - Evelyn Shaw.
-- I k*ll your wife?
+- I k\*ll your wife?
 - You had no idea that the Ring was behind this.
-- Shaw, I k*ll your wife.
+- Shaw, I k\*ll your wife.
 - This isn't your fault. I thought I was a good spy.
 - This isn't your fault.
 - Hey... it's okay.
@@ -102,9 +102,9 @@
 - This is Team Leader.
 - Cancel air support.
 - Cancel tactical.
-- And the t*nk, the t*nk!
-- Cancel the t*nk.
-- Who on Earth gave you the authority to call in a full tactical as*ault?
+- And the t\*nk, the t\*nk!
+- Cancel the t\*nk.
+- Who on Earth gave you the authority to call in a full tactical as\*ault?
 - I don't know what to do with you, but I know you're not ready.
 - But, General, it was Sarah.
 - Come on. I had to...
@@ -112,7 +112,7 @@
 - It's longer than my copy of Atlas Shrugged.
 - Look, you and I both thought the worst.
 - That Shaw had gone rogue.
-- That he was going to... k*ll Sarah?
+- That he was going to... k\*ll Sarah?
 - Shaw.
 - Sarah.
 - Listen...
@@ -120,11 +120,11 @@
 - General, Chuck's actions were those of a true spy.
 - He was looking out for his partner and the Agency.
 - I would have done the same myself.
-- Maybe without the stealth b*mb, but perhaps that's just me.
+- Maybe without the stealth b\*mb, but perhaps that's just me.
 - Are you doing okay?
 - Yeah, I'm fine. Thank you.
 - Thank you for saving me.
-- I appreciated the t*nk.
+- I appreciated the t\*nk.
 - General, did you check Sarah's records?
 - Any clues as to who ordered her Red Test?
 - I'm afraid, Sarah, Langston Graham took that secret to his grave.
@@ -179,7 +179,7 @@
 - What is it, Bartowski?
 - General, if I could speak freely?
 - That's not a good idea.
-- As the titular member of Team Bartowski, I think that it's crazy to be putting Shaw back in the field so soon. He just found out that Sarah k*ll his wife, okay?
+- As the titular member of Team Bartowski, I think that it's crazy to be putting Shaw back in the field so soon. He just found out that Sarah k\*ll his wife, okay?
 - The guy's got to be an emotional train wreck right now.
 - Nobody can control their feelings that well.
 - Chuck, what you are seeing in Shaw is an absolute professional: something you are not.
@@ -205,7 +205,7 @@
 - I'm really learning to enjoy my new life here.
 - Are you kidding me?
 - John, your old life was so exciting.
-- The adventures, the missions, the w*apon, the women...
+- The adventures, the missions, the w\*apon, the women...
 - Please stop.
 - Right. Got it.
 - Learn to lock it down.
@@ -286,13 +286,13 @@
 - No, Chuck.
 - Yes.
 - Wh... uh, what?
-- Chuck, I fell for you a long, long time ago- after you fixed my phone and before you started defusing b*mb with computer viruses.
+- Chuck, I fell for you a long, long time ago- after you fixed my phone and before you started defusing b\*mb with computer viruses.
 - So, yes.
 - Yes.
 - Wait, wait.
 - What about my Red Test?
 - Casey told me.
-- He told me that he k*ll the mole and that you couldn't do it.
+- He told me that he k\*ll the mole and that you couldn't do it.
 - And it was the best news that I'd ever heard because it means that you haven't changed.
 - You're still Chuck.
 - You're still my Chuck.
@@ -343,10 +343,10 @@
 - He's having a mental break. We're fish in a barrel.
 - Sorry about that, guys.
 - Little Ring company.
-- See, I told you he wasn't trying to k*ll us.
+- See, I told you he wasn't trying to k\*ll us.
 - All right.
 - I'm opening the hatch.
-- Oh, don't worry. It's a tranq g*n.
+- Oh, don't worry. It's a tranq g\*n.
 - Okay, fine. Just sell that it's real.
 - Right, of course. Ruthless spy.
 - You're gonna take care of most of them though, right?
@@ -390,7 +390,7 @@
 - "Barcelona"- it's a code.
 - Oh, "Barcelona's" a code? That-that's good.
 - What are we supposed to do with her now? !
-- Well, personally, I'd sh**t her.
+- Well, personally, I'd sh\*\*t her.
 - Decisions, decisions.
 - Shaw, what's going on?
 - Just need a few more seconds. Well, we don't have seconds.
@@ -413,8 +413,8 @@
 - Not much of a spy, are you?
 - I am a spy.
 - Really?
-- With a tranq p*stol?
-- Real g*n too dangerous for you?
+- With a tranq p\*stol?
+- Real g\*n too dangerous for you?
 - Put it down.
 - Sorry, Chuck.
 - Daniel... still upset about your wife?
@@ -493,8 +493,8 @@
 - He pulls that punch.
 - And that roundhouse?
 - It doesn't even land.
-- But he sh*t people, Morgan! Bad people!
-- Did you see bl*od, viscera, brain matter?
+- But he sh\*t people, Morgan! Bad people!
+- Did you see bl\*od, viscera, brain matter?
 - Chuck, did you see brain matter?
 - Okay, listen to me.
 - I have seen every Hong Kong fight film ever made, all right?
@@ -551,7 +551,7 @@
 - I know this because I was that guy.
 - But Chuck and Sarah and you, Casey, you showed me that I could be so much more, that I'm meant for something: to be a spy.
 - What about you?
-- What do you have left in the t*nk?
+- What do you have left in the t\*nk?
 - What do you want to be when you grow up?
 - Morgan, go to my closet and get me my suit.
 - The black one.
@@ -576,33 +576,33 @@
 - Why did you bring me here?
 - What do you mean?
 - You led me here.
-- Come on. This is where I sh*t her.
+- Come on. This is where I sh\*t her.
 - Is this some kind of a trap?
-- Sarah... you k*ll my wife.
+- Sarah... you k\*ll my wife.
 - Did you really think that I'd be okay with that?
 - But you said that...
 - I told you a lot of things to get you here.
-- The g*n's getting heavy, isn't it?
+- The g\*n's getting heavy, isn't it?
 - You know, you could hurt someone with this.
 - There's a little cafe around the corner.
 - Let's sit down, discuss the details.
 - Just relax. It's all over now.
 - The drug is a special toxin.
-- It won't k*ll you.
+- It won't k\*ll you.
 - It simply immobilizes your nervous system.
 - I want you to see what's gonna happen next.
 - I need you to understand why I'm doing this.
 - So, Sarah, I see you've met my newest Ring agent.
 - Why?
-- Well, I offered Daniel the chance to not only avenge his wife's death, but to destroy the very institution that ordered her m*rder: your CIA.
+- Well, I offered Daniel the chance to not only avenge his wife's death, but to destroy the very institution that ordered her m\*rder: your CIA.
 - The CIA believed that Eve had been turned by us.
-- Your boss Langston Graham assigned you to k*ll her.
+- Your boss Langston Graham assigned you to k\*ll her.
 - You did what you were told.
 - I'm going to send a message to the CIA that they betrayed the wrong man.
 - Very well put, Daniel.
 - They need to know what they did to me.
 - They need to feel the pain that I felt.
-- And that... is why I have to k*ll you.
+- And that... is why I have to k\*ll you.
 - On that note, do you have it with you?
 - The report details the problems with your Cipher.
 - The technical data should help your scientists complete the new Intersect.
@@ -623,13 +623,13 @@
 - Now, stand up.
 - Less smart, Chuck.
 - You should pull the trigger. Now.
-- k*ll me.
+- k\*ll me.
 - I wouldn't do that.
 - I see you brought Casey.
 - Oh, yes, I did... and he's currently taking care of your new Director.
 - And you've got me?
 - Stand... up.
-- I guess the g*n was his idea.
+- I guess the g\*n was his idea.
 - Good.
 - No, Shaw, don't do this.
 - You can't flash, can you?
@@ -639,7 +639,7 @@
 - None of this was your fault.
 - I haven't told them your secret.
 - But if you follow me...
-- I will k*ll you.
+- I will k\*ll you.
 - ♪ ♪
 - Sarah!
 - ♪ ♪
@@ -717,8 +717,8 @@
 - What about Shaw?
 - He's dead.
 - I'm sorry.
-- Oh, my God, we... there was a... there was a cafe and... and a bridge, and he tried to k*ll me, and...
-- Oh, my God, you sh*t him.
+- Oh, my God, we... there was a... there was a cafe and... and a bridge, and he tried to k\*ll me, and...
+- Oh, my God, you sh\*t him.
 - I couldn't let him hurt you, Sarah.
 - Trust me, I did what I had to do.
 - But I'm still the same guy. I'm still Chuck.

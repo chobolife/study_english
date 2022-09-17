@@ -96,7 +96,7 @@
 - Are you ready?
 - Absolutely.
 - Um, so what are we doing here exactly?
-- Since your Intersect k*ll can be glitchy, you'll need some basic spycraft for this mission.
+- Since your Intersect k\*ll can be glitchy, you'll need some basic spycraft for this mission.
 - Have you ever used one of these?
 - A pen?
 - KGB-model tranq pen.
@@ -145,8 +145,8 @@
 - Guys, it's all good. I'm ready, okay?
 - What are these?
 - Nunchakus.
-- You know very well that I don't like carrying g*n around.
-- But I thought it wouldn't be such a bad idea to have some kind of offensive w*apon, you know, just to have with me just in case.
+- You know very well that I don't like carrying g\*n around.
+- But I thought it wouldn't be such a bad idea to have some kind of offensive w\*apon, you know, just to have with me just in case.
 - And they're supposed to be in the Intersect, so...
 - Casey, can I have a second?
 - Hmm? Yeah.
@@ -394,7 +394,7 @@
 - And what if he's in trouble?
 - Go ahead, answer it.
 - Just know that if you do, he'll never be a real spy.
-- And one day, that will get him k*ll.
+- And one day, that will get him k\*ll.
 - Sorry. Sorry, old man.
 - Sorry, old man.
 - Don't freak out.
@@ -412,7 +412,7 @@
 - Oh, gee, thanks. Criticism is always welcome.
 - When he does, you act like your little girlish self.
 - You scream like a banshee, so he doesn't think you're a threat.
-- When he pulls you out, you find a w*apon and then flash.
+- When he pulls you out, you find a w\*apon and then flash.
 - Well, what if I don't flash?
 - Then you're dead... So flash.
 - C... Casey...
@@ -552,7 +552,7 @@
 - You have it; I want it.
 - Give it to me.
 - And don't lie.
-- I'll k*ll you right here.
+- I'll k\*ll you right here.
 - I have the key, but I don't have it on me... I hid it down in the cargo hold.
 - Go on.
 - Oh.
@@ -594,11 +594,11 @@
 - Now, your man...
 - Oh, Chuck. Seat 2B.
 - ... Chuck here will be dead in an hour.
-- But I'm in a rush, so he gives me the key or I k*ll him now.
+- But I'm in a rush, so he gives me the key or I k\*ll him now.
 - Okay.
 - O... okay?
 - Did he just say... Did you just say... ?
-- I think you meant to say, "Please don't k*ll my good friend Chuck".
+- I think you meant to say, "Please don't k\*ll my good friend Chuck".
 - What type of poison are you using?
 - I'm not bluffing. This is a cyanide hybrid.
 - Cyanide hybrid!
@@ -618,7 +618,7 @@
 - Inducing negative Gs.
 - We've run into a patch of turbulence.
 - Please return to your seats right now.
-- You sh*t a g*n on a plane? ! Are you crazy? !
+- You sh\*t a g\*n on a plane? ! Are you crazy? !
 - Sarah, level off the plane now!
 - Got it.
 - Ah...
@@ -697,14 +697,14 @@
 - I am impressed.
 - Well, thank you, but I would be dead if it wasn't for you guys.
 - All right, who wants to see if this key works?
-- What is it, a w*apon?
+- What is it, a w\*apon?
 - No, it's a lockbox.
 - Belonged to a spy I had inside the ring.
 - It's all of the intel the agent had.
 - With this we might stand a chance.
 - And one of our best didn't die in vain.
 - What's in the envelope, Shaw?
-- She was k*ll by a ring agent five years ago.
+- She was k\*ll by a ring agent five years ago.
 - Her name was Evelyn Shaw.
 - Eve.
 - We both made the same mistake, Sarah.

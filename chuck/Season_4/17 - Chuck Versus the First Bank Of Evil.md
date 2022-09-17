@@ -89,7 +89,7 @@
 - (phone buzzes)
 - Uh, I gotta get down to Castle.
 - Buddy, I'm so glad that everything's going so well.
-- You're k*ll it.
+- You're k\*ll it.
 - Have a great day.
 - Talk to you soon.
 - Hey, son.
@@ -174,7 +174,7 @@
 - I have no idea what you're doing right now.
 - So you want me to help you break into my father's bank.
 - Absolutely not.
-- I've had way too many g*n pointed at me recently.
+- I've had way too many g\*n pointed at me recently.
 - We'll be there to protect you the entire time.
 - Look, most years I saw my father maybe once.
 - The longest conversation we've ever had is ten minutes.
@@ -468,7 +468,7 @@
 - Can you believe we get to live with a king?
 - This is going to score us some serious Ren-tang.
 - Beckman: We've just heard back from Langley.
-- Using the stolen servers, the bank is basically turning itself into a black market stock exchange, laundering money for criminals, t*rrorists, and rogue nations.
+- Using the stolen servers, the bank is basically turning itself into a black market stock exchange, laundering money for criminals, t\*rrorists, and rogue nations.
 - So if we could access those servers, that intelligence would be priceless.
 - Exactly, Agent Walker.
 - Which is why we still need Miss Volkoff.
@@ -540,7 +540,7 @@
 - (beeping)
 - Just let him know when you want to leave.
 - ♪ ♪
-- (silenced g*n)
+- (silenced g\*n)
 - Ma'am, wait here, please.
 - ♪ ♪
 - Drop it now!
@@ -585,7 +585,7 @@
 - Come on, come on! It's about that time, honey bunny.
 - Nobody follow! We have a hostage!
 - Keep walking.
-- No one sh**t! She's a Volkoff!
+- No one sh\*\*t! She's a Volkoff!
 - Thank you, Bank of Macau.
 - It's been a pleasure doing business with you.
 - Mission accomplished.
@@ -596,7 +596,7 @@
 - Everything's fine.
 - Ok.
 - You successfully planted the tracer in the First Bank of Macau's servers and made the break-in look like a legitimate robbery.
-- The digital tag is already leading us to t*rror1st organizations all around the globe. Good work, team.
+- The digital tag is already leading us to t\*rror1st organizations all around the globe. Good work, team.
 - Uh, General, sorry.
 - About the deal that we made with Vivian.
 - When does she get to see Volkoff?

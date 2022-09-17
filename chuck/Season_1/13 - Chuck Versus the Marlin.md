@@ -24,7 +24,7 @@
 - What? Wow!
 - My feelings are hurt.
 - Charles, after all these years, where's the trust, my friend?
-- In Jeff's sweaty palms, along with the amateur consumer p*rn.
+- In Jeff's sweaty palms, along with the amateur consumer p\*rn.
 - Look... No, you look...
 - Hey, Chuck? Uh, can I talk to you for a sec?
 - Move.
@@ -120,7 +120,7 @@
 - If they don't want someone taking a picture of their private business, put some drawers on.
 - Hey, uh, you think we should make a run for it?
 - You don't run from the cops.
-- It makes you look guilty, or sh*t in the back.
+- It makes you look guilty, or sh\*t in the back.
 - We are guilty. Shh!
 - Bring me down and I will cut you.
 - So, no locks broken? No alarms set off?
@@ -219,7 +219,7 @@
 - Uh, extreme... extreme measures, but, uh, decisive action had to be taken.
 - Good luck schlepping all this stuff back to the Buy More.
 - Uh, I'm going to get back there right now and pretend like I don't know anything.
-- Got any good tips for b*at a polygraph?
+- Got any good tips for b\*at a polygraph?
 - Chuck, wait.
 - What? Ch... ?
 - Oh, duh, yeah... (chuckles)
@@ -266,7 +266,7 @@
 - If we don't locate the receiver in the next 24 hours...
 - You'll be stored in an underground bunker for so long you'll forget what fresh air smells like.
 - LESTER & JEFFREY: One, two, three, four.
-- I declare a thumb w*r!
+- I declare a thumb w\*r!
 - Oh! Come on, Jeffrey.
 - Jeff, Lester, we got to talk, it's important.
 - Yeah, see, this is your problem, Charlie.
@@ -561,10 +561,10 @@
 - Great. Okay.
 - Oh! Whoa.
 - I got it. Okay.
-- Okay, now sh**t the lock.
-- Um, look, Sarah, I've never really fired a g*n before, okay?
-- And I've actually done this on purpose to avoid any unpleasant side effects like sh**ting myself or others.
-- Just sh**t the lock or I will sh**t you when I get out of here!
+- Okay, now sh\*\*t the lock.
+- Um, look, Sarah, I've never really fired a g\*n before, okay?
+- And I've actually done this on purpose to avoid any unpleasant side effects like sh\*\*ting myself or others.
+- Just sh\*\*t the lock or I will sh\*\*t you when I get out of here!
 - (gasping): Okay.
 - Get back. Ready? Ready? Get back.
 - One...
@@ -572,9 +572,9 @@
 - Take the safety off first.
 - One, one sec... just a little problem.
 - Conway: Bartowski, Big Mike told me I'd find you here.
-- Drop the g*n, Bartowski! Now!
-- No, no, no, no need to sh**t.
-- It's not my g*n, it's not my g*n my girlfriend is locked in the freezer, and if you let her out she can explain everything. Okay, let's go.
+- Drop the g\*n, Bartowski! Now!
+- No, no, no, no need to sh\*\*t.
+- It's not my g\*n, it's not my g\*n my girlfriend is locked in the freezer, and if you let her out she can explain everything. Okay, let's go.
 - She's right... Come on, move.
 - Okay, okay.
 - Just look in... Nice try.
@@ -668,9 +668,9 @@
 - Good-bye, Sarah.
 - Chuck?
 - I'll save you later.
-- (g*n) Oh!
+- (g\*n) Oh!
 - Oh! Chuck, get down.
-- (g*n)
+- (g\*n)
 - Go, go, go!
 - I listened to the receiver.
 - Both: She knows.
@@ -692,12 +692,12 @@
 - You're going to have to sweeten the deal a little bit for me.
 - Hey, hey, hey, hey. Uh, look.
 - Look, the CIA-- they're offering me a nice padded cell, real cush.
-- Can you b*at that?
+- Can you b\*at that?
 - I'm a guy who enjoys a... a good steam.
 - Can you do... ?
 - Can you do maybe a steam room or something?
 - I don't think you're really in a position to bargain, Chuck.
-- I have two g*n.
+- I have two g\*n.
 - What do you have?
 - Me.
 - Don't break the ring.

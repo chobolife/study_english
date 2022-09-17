@@ -7,8 +7,8 @@
 - Too slow.
 - Again!
 - Your center is filled with conflict, John.
-- Until you find your calm center, you will never b*at me.
-- You can't b*at a winning smile, John.
+- Until you find your calm center, you will never b\*at me.
+- You can't b\*at a winning smile, John.
 - Not in retail sales.
 - You need to show your customers those pearly whites.
 - Well, soon-to-be pearly whites. You need to bleach them.
@@ -44,7 +44,7 @@
 - That's true.
 - Space camp is where all the cool kids go.
 - GLA also conducts top secret research for the NSA.
-- Most of our surveillance and w*apon tracking technology is developed there.
+- Most of our surveillance and w\*apon tracking technology is developed there.
 - We picked up intel that someone might try to penetrate one of the lab's secure facilities.
 - I want you and the Intersect to surveil the facility.
 - See if there's anyone inside who you flash on.
@@ -150,7 +150,7 @@
 - Dad, let's go do our abs.
 - Ooh, yeah.
 - You guys do abs.
-- I'm... I'm just going to go... k*ll myself.
+- I'm... I'm just going to go... k\*ll myself.
 - Ty Bennett: Karate master, kung fu expert, master strategist.
 - A former instructor at our training facility. And, today, one of our most wanted rogue agents.
 - Dude, your sensei is a badass!
@@ -164,11 +164,11 @@
 - General, if I may, why wasn't I told that Bennett went rogue?
 - Ty Bennett has been recruiting his former students.
 - He's actually turning agents?
-- With the team he's assembled, Bennett has been extremely effective at stealing w*apon and reselling them on the global black market.
+- With the team he's assembled, Bennett has been extremely effective at stealing w\*apon and reselling them on the global black market.
 - What did he steal from GLA?
 - An advanced inertial guidance system.
-- Well, that's not a w*apon.
-- Well, fit sure looks like one when it's put in a m*ssile, moron.
+- Well, that's not a w\*apon.
+- Well, fit sure looks like one when it's put in a m\*ssile, moron.
 - You know, when you call me moron, that hurts me on the inside.
 - Bennett got away because you couldn't open a door.
 - You're lucky your feelings aren't the only thing that got hurt.
@@ -244,7 +244,7 @@
 - Tell it, tell it.
 - We have our own contest, a side bet.
 - We see who can get the lowest score on their comment cards.
-- We b*at Emmett at his own game.
+- We b\*at Emmett at his own game.
 - Pure genius.
 - From now on, the customers can go service themselves.
 - In the retail sense, Jeffrey.
@@ -365,7 +365,7 @@
 - Wait. I've got Chuck.
 - It says the signal is... the signal is right in front of us.
 - No, Casey, stop, stop! Chuck's in the car!
-- You're gonna k*ll Chuck!
+- You're gonna k\*ll Chuck!
 - Oh, fast. And he's driving very, very fast.
 - Casey!
 - It's actually more spacious in here than you might think.
@@ -411,7 +411,7 @@
 - You little...
 - I didn't know this was going to happen.
 - I didn't know... tell him I didn't know this was going to happen!
-- If my primary objective wasn't to protect you... I k*ll YOU.
+- If my primary objective wasn't to protect you... I k\*ll YOU.
 - I can't believe it.
 - Beckman was out of line pulling me off this mission.
 - I agree with her.
@@ -563,7 +563,7 @@
 - You know, guys, maybe we should just table the wedding talk.
 - Um, no.
 - I have something I'd like to say, actually.
-- Um, I said yes to the big wedding and I said yes to the g*n organza bridesmaid dresses, and I just can't say yes anymore.
+- Um, I said yes to the big wedding and I said yes to the g\*n organza bridesmaid dresses, and I just can't say yes anymore.
 - And I'm sorry, I know that you're trying to help, but the answer is no.
 - I'm sorry... I'm sorry, I'm sorry.
 - Babe...
@@ -605,7 +605,7 @@
 - What? No, no, no! Wait! Wait! Wait! Wait, Sarah! No, no! Wait!
 - Those seven years of MacGyver finally paid off.
 - You shouldn't be here.
-- You want to stop me, you're going to have to k*ll me.
+- You want to stop me, you're going to have to k\*ll me.
 - Well, I'm your partner, and I'm not letting you go in alone.
 - Okay.
 - Come on.
@@ -621,10 +621,10 @@
 - But I have business to attend to.
 - I can't have you interfering.
 - I thought you were a man of honor.
-- If I'm not good enough to make your team, surely you could defeat me without the g*n.
+- If I'm not good enough to make your team, surely you could defeat me without the g\*n.
 - Withhonor.
 - You're right.
-- My students, this is a special lesson: How to k*ll a man with honor. It will happen very quickly.
+- My students, this is a special lesson: How to k\*ll a man with honor. It will happen very quickly.
 - Eye of the tiger, buddy.
 - Shut up, Chuck.
 - Sorry.
@@ -640,7 +640,7 @@
 - You gotta get up.
 - Run for it, Chuck. Go.
 - It's too bad, really.
-- I was hoping my men would see better k*ll from a former student of mine.
+- I was hoping my men would see better k\*ll from a former student of mine.
 - Look. Look, I get how you're feeling, man. I totally get how you're feeling. You're feeling betrayed by someone that you really care about.
 - You're damaging my calm, Chuck.
 - You've spent so much of your life- pushing people away.
@@ -657,7 +657,7 @@
 - You care about me. Admit it. You feel all warm and mushy about me.
 - Go ahead. Say it.
 - You love me, John Casey.
-- I'm going to k*ll you!
+- I'm going to k\*ll you!
 - Wait, wait, wait! Hold on. No. Not me.
 - Him.
 - Nice work, sensei.

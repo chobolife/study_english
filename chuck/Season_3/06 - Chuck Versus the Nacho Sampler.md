@@ -220,7 +220,7 @@
 - Done.
 - One condition.
 - You men are both excellent stalkers.
-- I need you to use your k*ll set and find out everything there is to know about Hannah, okay?
+- I need you to use your k\*ll set and find out everything there is to know about Hannah, okay?
 - Likes, dislikes...
 - Everything.
 - Consider her stalked.
@@ -312,7 +312,7 @@
 - Ring's tracking him. We got about five minutes before they get here, tops.
 - Time to send in a pro. You're up, Walker.
 - So, you were talking about your job?
-- I'm doing something w*apon.
+- I'm doing something w\*apon.
 - But that's really all I can say.
 - I want to tell you, believe me, I do.
 - ♪ ♪ what the hell is she doing in here?
@@ -359,7 +359,7 @@
 - Why'd you choose me?
 - Because there's something just so mysterious about you and sexy.
 - And you were telling me about your top secret work, and secrets turn me on...
-- It's a w*apon!
+- It's a w\*apon!
 - A new technology that'll change everything.
 - Tell me more.
 - Okay, but first, I don't really remember much from last night.
@@ -381,7 +381,7 @@
 - How was last night?
 - I can't really remember, but judging by the fact that I'm hal f-naked in her bedroom right now, I've gotta say you are singlehandedly the best wingman in the world!
 - Well, thanks, buddy. What can I say?
-- I do have my k*ll sets.
+- I do have my k\*ll sets.
 - Listen, um, you didn't happen to come across a briefcase at the mexican restaurant, did you?
 - My entire life's work's in there.
 - Kinda freaking out.
@@ -405,7 +405,7 @@
 - Oh!
 - Easy, Bartowski.
 - We don't know what this is.
-- You think it could be a b*mb?
+- You think it could be a b\*mb?
 - I don't know.
 - But we're not gonna find out the hard way.
 - Okay, just meet Manoosh at the Buy More, and give him back the briefcase, and act like nothing happened.
@@ -473,17 +473,17 @@
 - So stay here. I'll be right back.
 - Okay, all right.
 - Not picking up any sign of ordnance.
-- Definitely not a b*mb.
+- Definitely not a b\*mb.
 - Guys, guys, we need to help Manoosh, okay?
 - The ring's gonna track him down, and if he doesn't give that thing back to them, they're gonna hurt him or worse.
 - Cry me a River.
-- He's building a w*apon.
+- He's building a w\*apon.
 - He's no innocent.
 - He's served his purpose. That's what an asset is.
 - Conduit to information, nothing more.
 - No more ducking us, Manoosh.
 - Take us to your lab.
-- We want our w*apon.
+- We want our w\*apon.
 - Wait, wait, wait.
 - Found something.
 - What is that?
@@ -495,11 +495,11 @@
 - U. V. protection... very important these days.
 - Shaving cream.
 - It was a decoy.
-- Then where is the w*apon?
+- Then where is the w\*apon?
 - They found Manoosh.
-- He doesn't know who he's dealing with. They're gonna k*ll him.
-- That's not the w*apon.
-- Manoosh is the w*apon.
+- He doesn't know who he's dealing with. They're gonna k\*ll him.
+- That's not the w\*apon.
+- Manoosh is the w\*apon.
 - He built a new intersect.
 - How did Manoosh build an intersect?
 - I thought my dad was the only one who knew how to do that.
@@ -512,7 +512,7 @@
 - Manoosh just used his credit card to book a flight to Dubai.
 - Why? What's in Dubai?
 - Weap-con.
-- The greatest w*apon convention in the world.
+- The greatest w\*apon convention in the world.
 - I go every year. I find it incredibly relaxing.
 - Looks like I'll get to write this year's off as a business trip.
 - Come in.
@@ -554,8 +554,8 @@
 - Where else has he gone?
 - Welcome to weap-con.
 - Bienvenidos, bonjour, as-salaam alaikum.
-- a*mo can be found in the West pavilion.
-- expl*sive and short-range m*ssile are...
+- a\*mo can be found in the West pavilion.
+- expl\*sive and short-range m\*ssile are...
 - Deadly pens. I've got exploding pens, laser pens...
 - Hey! Casey, no shopping. We're here to find Manoosh.
 - You sir, what kind of pen do you want?
@@ -570,9 +570,9 @@
 - Huh?
 - Ladies, gentlemen, warlords, sheiks and huns.
 - I see some huns back there, don't I?
-- Welcome to the future of warfare and w*apon.
-- I have before me the most powerful w*apon known to mankind.
-- That w*apon, you ask...
+- Welcome to the future of warfare and w\*apon.
+- I have before me the most powerful w\*apon known to mankind.
+- That w\*apon, you ask...
 - Is me!
 - At this time yesterday, I was a pathetic weakling.
 - These bikini babes wouldn't even spit on me.
@@ -655,8 +655,8 @@
 - Shh. Give me that.
 - All right. Here we go.
 - Here... lasers.
-- Woman : a*mo can be found in the West pavilion.
-- expl*sives and short-range m*ssile...
+- Woman : a\*mo can be found in the West pavilion.
+- expl\*sives and short-range m\*ssile...
 - Look, guys, I'll cut you a deal, huh?
 - Half off.
 - No, you'll give it to us.
@@ -664,26 +664,26 @@
 - Yeah?
 - Looks like you need me now.
 - So let's talk about a reasonable fee, okay?
-- Drop your g*n!
+- Drop your g\*n!
 - Hey, folks, it sounds like we have another demonstration taking place back here.
 - As you can see, many of our products are ideally suited for resolving these types of hostage negotiations.
 - Impressive simulation.
-- Yeah, well, I'd rather k*ll him, too, than let you have him, so I guess we're on the same page. Looks like Manoosh dies, then.
+- Yeah, well, I'd rather k\*ll him, too, than let you have him, so I guess we're on the same page. Looks like Manoosh dies, then.
 - Manoosh is not going to die.
 - In my hand, I hold a Japanese laser pen.
 - Pinpoint accuracy.
-- Could sh**t the wings off a fly, if one was so sadistically inclined, which I am!
-- Nobody drop their g*n!
-- He won't do it. I can see it in his eyes. He won't k*ll me.
-- Okay, fine. That's fair. I probably won't k*ll you.
+- Could sh\*\*t the wings off a fly, if one was so sadistically inclined, which I am!
+- Nobody drop their g\*n!
+- He won't do it. I can see it in his eyes. He won't k\*ll me.
+- Okay, fine. That's fair. I probably won't k\*ll you.
 - But I will remove the greater part of your earlobe.
 - What the... ? !
 - Casey, what is the de... ? !
 - I specifically asked for the same pen that you got.
 - She gave me the wrong pen.
-- Just like Bartowski, bring a kn*fe to a g*n fight.
+- Just like Bartowski, bring a kn\*fe to a g\*n fight.
 - Now, where were we?
-- Oh, I know. We were going to k*ll you.
+- Oh, I know. We were going to k\*ll you.
 - He's getting away.
 - You secure Manoosh. He cannot walk out of here knowing what he knows.
 - Wow, Chuck. That was awesome.
@@ -697,7 +697,7 @@
 - I'll disappear. I swear.
 - Thanks, Chuck.
 - I owe you my life.
-- Tour Guide: Here at the tranq g*n booth, we feature the latest in non-lethal suppression.
+- Tour Guide: Here at the tranq g\*n booth, we feature the latest in non-lethal suppression.
 - That's 50 ccs of pure-grade ether.
 - Your enemies will get plenty of rest before you interrogate them.
 - I guess Bartowski doesn't have the stones.
@@ -741,7 +741,7 @@
 - Hey. There he is.
 - Hey.
 - Can we talk for a second?
-- Uh, yeah, I'm kind of b*at, Morgan.
+- Uh, yeah, I'm kind of b\*at, Morgan.
 - Oh, yeah. I can imagine. All that travel.
 - What, uh... what traveling?
 - Just driving around town on all those installs.

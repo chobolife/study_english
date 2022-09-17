@@ -11,7 +11,7 @@
 - It was a trap!
 - We got to get out of here!
 - Walker, no! Don't do it!
-- So, we're taking the b*llet train, huh?
+- So, we're taking the b\*llet train, huh?
 - You nailed it, genius.
 - WOMAN (over P. A. ): The Tokaido Shinkansen will be departing in ten minutes.
 - So, Nagoya, Osaka or Kyoto, Quinn?
@@ -23,7 +23,7 @@
 - Yes, you mentioned that.
 - Maybe you failed in the past because you didn't have my servers or my technicians, or maybe you weren't properly incentivized.
 - What's that supposed to mean?
-- You didn't have a g*n to your head.
+- You didn't have a g\*n to your head.
 - But you will this time.
 - But without the Intersect in front of me, I have nothing to fix.
 - I got word that your friends, Walker and Casey, just delivered the Intersect glasses to my men.
@@ -73,7 +73,7 @@
 - It's okay, Morgan. You're gonna get through this.
 - I know, it's just, you know, I'm a trained spy now.
 - I should be out there, you know, with my team, making the moves.
-- Hold still, Morgan. I'm a w*apon, I got to-- Hey, now!
+- Hold still, Morgan. I'm a w\*apon, I got to-- Hey, now!
 - Oh, that hurts!
 - That's hurty.
 - My hero.
@@ -132,7 +132,7 @@
 - Surprise.
 - (whooshing)
 - ♪ Chuck 5x11 ♪
-Chuck Versus the b*llet Train
+Chuck Versus the b\*llet Train
 Original Air Date on January 20, 2012
 - Okay.
 - So Sarah, explain to me please, uh, when, how and why you downloaded the you-know-what?
@@ -147,7 +147,7 @@ Original Air Date on January 20, 2012
 - We'll need to lay low, keep guard on him.
 - I'll take first watch, you two pretend to be gaijin tourists or something.
 - Let's go.
-- All right, well, now that we have that covered, there's a few more b*llet points I'd like to go over regarding what the hell is going on, Sarah.
+- All right, well, now that we have that covered, there's a few more b\*llet points I'd like to go over regarding what the hell is going on, Sarah.
 - That computer erased Morgan's memory.
 - (sighs)
 - Morgan, you're helping the mission.
@@ -206,7 +206,7 @@ Original Air Date on January 20, 2012
 - You know, I've been a spy for so long, and I've never felt this powerful in my entire life.
 - It's incredible.
 - Are you ready to say good-bye to all of it?
-- The g*n, the b*ll*ts, the parkour?
+- The g\*n, the b\*ll\*ts, the parkour?
 - I don't want to live my life in danger anymore.
 - I'm ready to retire and start a family.
 - Our future is exciting enough.
@@ -231,7 +231,7 @@ Original Air Date on January 20, 2012
 - ♪
 - Who the hell are you?
 - Hey, great. We're with the Flu Bus.
-- Did you get your flu sh*t?
+- Did you get your flu sh\*t?
 - I do not believe in shots or inoculations.
 - Who authorized this? Morgan Grimes.
 - Nobody tells nobody nothing.
@@ -260,12 +260,12 @@ Original Air Date on January 20, 2012
 - I think better when I'm blowing up avocados.
 - There are mysterious happenings around here, and we can't ignore them anymore.
 - Lester: Hey.
-- Had your flu sh*t? Uh, yeah. Thanks.
-- How about you get another, or I will k*ll you right here?
+- Had your flu sh\*t? Uh, yeah. Thanks.
+- How about you get another, or I will k\*ll you right here?
 - Don't make a sound.
 - Did you see that?
 - In my previous state of impairment, I wouldn't have cared or noticed that Grimes's woman-- forgive me, not PC--
-- Grimes's significant other was just taken at g*n.
+- Grimes's significant other was just taken at g\*n.
 - The newly unimpaired you is a master... of the obvious.
 - This is the call.
 - We'll find the truth, even if we have to face mortal danger.
@@ -276,12 +276,12 @@ Original Air Date on January 20, 2012
 - Quinn: Colonel, would you mind opening the lid for a moment?
 - I'd like to discuss something with you.
 - Not interested.
-- Oh, you can keep your g*n on me.
+- Oh, you can keep your g\*n on me.
 - I won't try to escape. In fact, there won't be any need to.
 - Your daughter's name is Alex McHugh, correct?
 - If you want her to live, do exactly as I say.
 - Dad?
-- I'm okay, but they have g*n.
+- I'm okay, but they have g\*n.
 - And now the picket fence.
 - See?
 - I haven't forgotten anything.
@@ -342,12 +342,12 @@ Original Air Date on January 20, 2012
 - I don't know, it just won't start.
 - Well, we can't exactly call for a tow.
 - So we'll wait for instructions.
-- If the order comes to k*ll her, we do it here.
-- I'm not walking across this parking lot with a g*n in her ribs.
+- If the order comes to k\*ll her, we do it here.
+- I'm not walking across this parking lot with a g\*n in her ribs.
 - Exactly what did you do?
-- Sugared their gas t*nk.
+- Sugared their gas t\*nk.
 - It's an oldie, but a goodie.
-- Man, I haven't shugged a t*nk in... ds.
+- Man, I haven't shugged a t\*nk in... ds.
 - Anyway, now that they are incapacitated, in a mobile sense, we need a plan.
 - It should be keen and clever, Mm-hmm. utilizing our unique talents.
 - Do we have any of those?
@@ -378,7 +378,7 @@ Original Air Date on January 20, 2012
 - Sarah: Then you know you're outmanned.
 - Casey's not gonna fire at us.
 - He may.
-- If I don't call my men on the half-hour, his little girl gets sprayed with b*ll*ts.
+- If I don't call my men on the half-hour, his little girl gets sprayed with b\*ll\*ts.
 - That half-hour's up in two minutes, Quinn.
 - I brought them here.
 - Make the call.
@@ -433,7 +433,7 @@ Original Air Date on January 20, 2012
 - Think, Morgan!
 - Can you sneak up on the Flu Bus without being seen?
 - Casey, listen to me. We're coming at this blind.
-- We don't exactly know what they got in there w*apon. You sure you don't want to just call in the CIA? There's no time!
+- We don't exactly know what they got in there w\*apon. You sure you don't want to just call in the CIA? There's no time!
 - I have an idea.
 - Devon's gonna be the magnet.
 - You, Morgan, you're gonna pick a fight.
@@ -442,21 +442,21 @@ Original Air Date on January 20, 2012
 - First thing that you have to do is, you have to blindfold Sarah.
 - She can't react to what she can't see.
 - Then, Chuck, I think that there might be a way for you to build a suppression device.
-- It's a real long sh*t.
-- I'm in the mood for a long sh*t.
+- It's a real long sh\*t.
+- I'm in the mood for a long sh\*t.
 - General Beckman delivered me the program for the suppressor.
 - Maybe I can download it, e-mail it to you.
 - If I did, could you build something and deliver it to Sarah?
 - Not exactly.
 - What if, one last time, we just flashed... ?
 - No way! Absolutely not!
-- Baby, what if that's the one that does the real damage or k*ll you?
+- Baby, what if that's the one that does the real damage or k\*ll you?
 - Look, all I need is a laptop, a PSP and some virtual reality glasses.
 - If I was in a Buy More, I'd have it all in ten seconds...
 - Wait. We have got something better than the Buy More.
 - We have a train full of Japanese people.
 - Quinn's thugs are expecting a call in 19 minutes.
-- When it doesn't come, they're gonna k*ll Alex.
+- When it doesn't come, they're gonna k\*ll Alex.
 - And you are not gonna let that happen. Clear? !
 - Crystal. I will not let my last words to Alex be a demand for Pizza Combos.
 - Go to my Crown Vic.
@@ -468,7 +468,7 @@ Original Air Date on January 20, 2012
 - Put in the comm device, sync it to my phone. Do it.
 - Okay, we're hot, boss.
 - I'm gonna talk you through this.
-- Grab a r*fle, the Sig and a survival kn*fe.
+- Grab a r\*fle, the Sig and a survival kn\*fe.
 - Leave the heavy stuff.
 - You'll just blow yourself up.
 - Yah!
@@ -496,7 +496,7 @@ Original Air Date on January 20, 2012
 - Okay, I see a Civic that might serve our purpose.
 - Which is what, exactly?
 - Devon's gonna call them out.
-- And you, Morgan, you're gonna do some sn*per work.
+- And you, Morgan, you're gonna do some sn\*per work.
 - Some wet work. Got it?
 - Just so you know, I've never sniped in my life, wet or dry.
 - Just remember, you're sniping for Alex.
@@ -509,7 +509,7 @@ Original Air Date on January 20, 2012
 - Don't nudge a guy when he's sniping!
 - Oh, man!
 - I can't believe we're this terrible. Yeah, you are.
-- Ron: Hand over the r*fle, little man. Morgan?
+- Ron: Hand over the r\*fle, little man. Morgan?
 - Let's go! (grunts)
 - Easy! I'm not your little sister!
 - Morgan!
@@ -523,7 +523,7 @@ Original Air Date on January 20, 2012
 - Hey, Morgan was taken.
 - Jeff and Lester are my only option.
 - Look, I know this sounds crazy, but I've worked with those guys for years.
-- They may seem like botulism v*ctim, but they're loyal.
+- They may seem like botulism v\*ctim, but they're loyal.
 - They can do it.
 - (grunts)
 - Lester, now I'm gonna tell you something I never dreamed I'd tell you, never dreamed I'd have to tell you, but the situation is extreme.
@@ -541,13 +541,13 @@ Original Air Date on January 20, 2012
 - You do what I tell you, I'll make you a hero.
 - It's the call.
 - Go to my Crown Vic.
-- Casey: Each of you grab a p*stol.
+- Casey: Each of you grab a p\*stol.
 - Leave the big stuff.
 - (passengers clamoring)
 - (women screaming)
 - (grunting)
 - The call never came from Quinn.
-- We'll k*ll them all and leave the bus.
+- We'll k\*ll them all and leave the bus.
 - Her first.
 - Don't you touch her!
 - Or what?
@@ -558,12 +558,12 @@ Original Air Date on January 20, 2012
 - I have no idea.
 - But somebody's getting ready to lose a limb.
 - We appreciate that you, too, are armed.
-- But we have heat vision, infrared scopes, laser guidance system and armor- piercing b*ll*ts. Over!
+- But we have heat vision, infrared scopes, laser guidance system and armor- piercing b\*ll\*ts. Over!
 - I think this is where we should get down.
 - Nobody has all that. It's a bluff.
-- You're g*n, outmanned, out... side.
+- You're g\*n, outmanned, out... side.
 - And it's a lovely day.
-- So throw down your g*n and nobody gets hurt.
+- So throw down your g\*n and nobody gets hurt.
 - You're the one who should be worried about getting hurt.
 - Uh!
 - Behold the flame of destiny! Ha-ha!
@@ -582,7 +582,7 @@ Original Air Date on January 20, 2012
 - Dad, don't worry.
 - I'm fine. I promise.
 - Morgan and Devon were great, but...
-- This is so cool! My m*ssile Command.
+- This is so cool! My m\*ssile Command.
 - ... those guys that you talk about, the ones that give you nightmares--
 - Jeff and Lester-- (groaning) yeah, they were the real heroes.
 - It's a miracle.
@@ -608,7 +608,7 @@ Original Air Date on January 20, 2012
 - (grunting)
 - (riders screaming, murmuring)
 - A little warning.
-- The only thing I can't b*at down is the Intersect itself, but I've studied the program obsessively.
+- The only thing I can't b\*at down is the Intersect itself, but I've studied the program obsessively.
 - You know, I've done a little training myself, Quinn, so let's rumble.
 - I can hear you pacing.
 - Bartowski's really taking his time.
@@ -630,7 +630,7 @@ Original Air Date on January 20, 2012
 - It was never meant to be like this, Bartowski.
 - You weren't meant to get involved.
 - And until that Intersect is mine, this is never going to end... ever!
-- (g*n fires)
+- (g\*n fires)
 - Sarah: Chuck, what's happening? Chuck, come on.
 - Chuck: We're searching the train for Quinn.
 - Chuck, he's heading towards the baggage car.
@@ -643,7 +643,7 @@ Original Air Date on January 20, 2012
 - Do not flash! I'll try, Chuck.
 - You won't survive this one, Quinn.
 - This is over.
-- For good. (g*n fires)
+- For good. (g\*n fires)
 - (thud)
 - Sarah!
 - Is it?
@@ -722,7 +722,7 @@ Original Air Date on January 20, 2012
 - A week in the hospital.
 - Any of that ring a bell?
 - Japan?
-- The b*llet train?
+- The b\*llet train?
 - No?
 - Well, doesn't matter.
 - I'll fill you in on the details.
@@ -734,4 +734,4 @@ Original Air Date on January 20, 2012
 - Never seen him before.
 - He's the reason your last mission went south.
 - What are my orders?
-- Your orders are to k*ll Chuck Bartowski.
+- Your orders are to k\*ll Chuck Bartowski.

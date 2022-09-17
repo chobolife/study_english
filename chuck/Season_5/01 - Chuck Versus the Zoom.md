@@ -27,8 +27,8 @@
 - Yeah.
 - Hi.
 - How you doing today?
-- No sh**ting.
-- I don't want the bl*od and the mess on the pool deck.
+- No sh\*\*ting.
+- I don't want the bl\*od and the mess on the pool deck.
 - Make them jump.
 - Think we can survive this?
 - I don't think so, honey.
@@ -42,7 +42,7 @@
 - Sarah: You've fallen into our trap.
 - You see, we work with a master spy, somebody who you can't see coming.
 - In fact, right now, he's probably...
-- (g*n cocks)
+- (g\*n cocks)
 - I want it noted that I took out six of their guys.
 - Henchman: He was taking this.
 - You thieves have expensive tastes.
@@ -50,7 +50,7 @@
 - It's times like these, I wish I still had the Intersect.
 - Well, you don't.
 - What now, Moriarty?
-- k*ll them.
+- k\*ll them.
 - Wait, wait, wait, wait, wait, wait wait!
 - We have another master spy.
 - (groans)
@@ -72,11 +72,11 @@
 - Whoa, whoa, whoa.
 - Sarah: You think your security men are the best, top-notch?
 - I admit I do.
-- Sarah: Well, our spy is currently slicing through them like a hot kn*fe through butter.
+- Sarah: Well, our spy is currently slicing through them like a hot kn\*fe through butter.
 - Go on, say something about you-know-who.
 - Do I have to?
 - Yes.
-- He'll tear your limbs off and b*at you with them.
+- He'll tear your limbs off and b\*at you with them.
 - Okay, okay.
 - Points for trying, but where is this master spy?
 - Morgan: You looking for me?
@@ -84,7 +84,7 @@
 - (laughing)
 - Okay, here we go.
 - Here we go.
-- k*ll him, too. k*ll them all.
+- k\*ll him, too. k\*ll them all.
 - Come on. Now's the time, buddy.
 - I'm working on it, working on it.
 - Casey: And... we're dead.
@@ -120,12 +120,12 @@ Original Air Date on October 28, 2011
 - Who's not going to pay six mil for a slightly used Ming vase?
 - Chuck, we mowed through the Volkoff fortune on start-up costs. I mean, look at these numbers.
 - $42 million, which is still a lot of dough.
-- Rockets, b*ll*ts, the private jet, servicing the private jet, the fresh shrimp that Morgan likes to eat on the private jet.
+- Rockets, b\*ll\*ts, the private jet, servicing the private jet, the fresh shrimp that Morgan likes to eat on the private jet.
 - You have to understand they're just not the same frozen.
 - They're expensive, and if we're going to stay solvent, then we need to collect soon.
 - Or crawl back to Beckman, get a government contract.
 - Never had a problem with Uncle Sam.
-- b*at the yahoos we got coming in here.
+- b\*at the yahoos we got coming in here.
 - Casey, our problem is not with Uncle Sam, it's with Clyde Decker, and I don't see that changing anytime soon.
 - Beg, plead.
 - You know I get antsy taking cases with moral ambiguity.
@@ -321,7 +321,7 @@ Original Air Date on October 28, 2011
 - I had a hot tub full of nursing students.
 - Bale: They're so chatty.
 - Morgan: Totally.
-- Bale: So, you must be k*ll Burnham?
+- Bale: So, you must be k\*ll Burnham?
 - He's a no-show.
 - I'm Michael Carmichael of Michael Carmichael Industries, a subsidiary of MikeCo.
 - That sounds like big money.
@@ -362,8 +362,8 @@ Original Air Date on October 28, 2011
 - So, let me ask you a question.
 - Yes, sir.
 - This guy you're supposed to play, Jim Burnham, you called him something else.
-- k*ll.
-- Heard he k*ll nine men in the Foreign Legion.
+- k\*ll.
+- Heard he k\*ll nine men in the Foreign Legion.
 - The name stuck.
 - Mm, only nine, huh?
 - What the hell?
@@ -378,14 +378,14 @@ Original Air Date on October 28, 2011
 - Stark.
 - Been a while.
 - Breathe.
-- Is that a g*n?
+- Is that a g\*n?
 - (gasps) I am gonna rip your head off!
 - What's a leatherneck like you doing in the Kensington Club?
 - Private security.
 - Me, too. For a turd named Bale.
 - Real scuzzer, but at least it's a payday.
 - I don't have to sell you on selling out.
-- Guy with your k*ll, Casey, you've got to be raking it in.
+- Guy with your k\*ll, Casey, you've got to be raking it in.
 - (grunting)
 - (loud crack) (grunts)
 - Ah!
@@ -420,7 +420,7 @@ Original Air Date on October 28, 2011
 - ♪ ♪
 - (grunting, Chuck whimpering)
 - (grunts)
-- (cocks g*n)
+- (cocks g\*n)
 - Quit goofing around, Chuck. We gotta go.
 - What about the mission?
 - Don't worry, Morgan saved the day.
@@ -671,7 +671,7 @@ Original Air Date on October 28, 2011
 - No... Guys, guys, get out of there!
 - Mr. Carmichael?
 - Darling, I know what you did with my key card.
-- Come with me now, or I will k*ll you in front of all of my friends.
+- Come with me now, or I will k\*ll you in front of all of my friends.
 - Uh-uh. I think actually what's gonna happen is, I'm gonna open up a big can of--
 - Come with us. What?
 - Come with me, Colonel. Oh, I'm sorry.
@@ -702,7 +702,7 @@ Original Air Date on October 28, 2011
 - Huh? Wait, wait, wait, wait.
 - What's happening? I'm just the IT guy.
 - You saw some things you weren't supposed to see.
-- And I don't like your face. k*ll him.
+- And I don't like your face. k\*ll him.
 - Then the others.
 - I'd think twice about that, Bale!
 - I pull these wires, your firewall goes down, and the CIA is inside of you in seconds.
@@ -822,7 +822,7 @@ Original Air Date on October 28, 2011
 - (camera shutter clicking)
 - That's the plan.
 - (computer chirps)
-- As you can see, our superiors' interference in Chuck Bartowski's life has only just g*n.
+- As you can see, our superiors' interference in Chuck Bartowski's life has only just g\*n.
 - Now you understand how important he is.
 - And why he must fail.
 - You all have your orders.

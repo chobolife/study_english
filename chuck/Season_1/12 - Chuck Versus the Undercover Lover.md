@@ -3,7 +3,7 @@
 - I'm glad you like it. I love it. what time is it?
 - Are you insane? Come back to bed.
 - And miss all the good sunlight?
-- Come on, Ilsa, it's not like the civil w*r is going to go anywhere.
+- Come on, Ilsa, it's not like the civil w\*r is going to go anywhere.
 - Tempting.
 - But I have a deadline.
 - Yeah...
@@ -146,7 +146,7 @@
 - We received your report, Major.
 - Ex-KGB, Eastern Bloc thugs, Russian arms dealers...
 - Frankly, we're not used to seeing this particular crowd stateside these days.
-- Least not since President Reagan won The Cold w*r, huh, General?
+- Least not since President Reagan won The Cold w\*r, huh, General?
 - So you want us to infiltrate the Grand Saville?
 - The hotel's bar has been booked for a private party early this evening.
 - Fine, I'll clear my schedule, but just 'cause it's you, General.
@@ -400,9 +400,9 @@
 - Listen, I-I'm, I'm really sorry.
 - I know this is very awkward, but Ilsa is a bad girl.
 - She's a very bad girl.
-- Drop the g*n, Sugar Bear.
+- Drop the g\*n, Sugar Bear.
 - See?
-- Mind telling me what a nice girl like you is doing with a g*n, Ilsa?
+- Mind telling me what a nice girl like you is doing with a g\*n, Ilsa?
 - Same thing as you, Casey.
 - I tried to warn you; she's a spy.
 - Who do you work for?
@@ -412,9 +412,9 @@
 - But, but, but wouldn't that put us all on the same side, kind of, sort of, doesn't it?
 - You lied to me.
 - Says the energy consultant.
-- What about the b*mb in Grozny?
+- What about the b\*mb in Grozny?
 - That "I never forgot your face" garbage?
-- Oh, that b*mb.
+- Oh, that b\*mb.
 - Ilsa.
 - Quick, hide.
 - You have to trust me.
@@ -477,7 +477,7 @@
 - I didn't want to leave things the way we left them last night.
 - With you getting plowed by a drunk Russian crime boss?
 - You should get used to that.
-- We've been investigating Victor Federov since the Paris commuter train b*mb back in '02.
+- We've been investigating Victor Federov since the Paris commuter train b\*mb back in '02.
 - My agency has tried everything to take him to trial, but his organization is airtight, totally legit from the outside.
 - The only way we could take him down was...
 - By screwing it out of him? How, uh...
@@ -501,7 +501,7 @@
 - Thanks, though, I really appreciate it.
 - No, just, uh, just thought I'd check in on you, you know, what with Ilsa getting married in an hour and...
 - Thanks for reminding me.
-- Here's to John Casey dodging another b*llet.
+- Here's to John Casey dodging another b\*llet.
 - It's not like I want the wife and kids and the Little League practice and the minivan and the Costco runs on the weekend.
 - Yeah, really, you don't?
 - 'Cause I-- it, it seems to me that you'd kind of be into the whole American Dream.
@@ -592,7 +592,7 @@
 - You make for a handsome groom.
 - It's a shame to ruin the suit.
 - Ruin it how, exactly? How would you ruin it?
-- With b*llet holes or bl*od or... ?
+- With b\*llet holes or bl\*od or... ?
 - Shut up, Chuck. Shutting up.
 - Where's Ilsa?
 - Waiting at the ceremony.
@@ -623,7 +623,7 @@
 - Where did you learn to tie people up, a Rocky and Bullwinkle cartoon?
 - I don't think that you're helping right now.
 - Hello?
-- No wonder you lost the Cold w*r.
+- No wonder you lost the Cold w\*r.
 - A couple of Girl Scouts could tie people up better than this.
 - Casey, what are you... ?
 - Whoa!
@@ -647,11 +647,11 @@
 - They're not going anywhere.
 - Really?
 - Who's gonna stop me?
-- One little girl with one little g*n?
+- One little girl with one little g\*n?
 - Casey, this is unacceptable.
 - Shut up, Chuck.
 - Try two little girls.
-- She looks good with a g*n.
+- She looks good with a g\*n.
 - Morgan! Morgan!
 - Damn, Mom, I got my headgear on.
 - Wake up. Wake up.
@@ -714,7 +714,7 @@
 - Hey.
 - Just so you know.
 - I'm happy you're not dead.
-- What's up, k*ll?
+- What's up, k\*ll?
 - You got yourself a new special lady-friend, or what?
 - She's hopping a plane.
 - What? Are you serious?

@@ -252,7 +252,7 @@ Original Air Date on April 18, 2011
 - Specifically, connections between her and other dangerous people.
 - Who specifically?
 - Anan Magoro.
-- But we just took down the entire Magoro t*rror1st cell.
+- But we just took down the entire Magoro t\*rror1st cell.
 - Was there anyone else?
 - Yeah. Yeah.
 - Who was that?
@@ -365,7 +365,7 @@ Original Air Date on April 18, 2011
 - Good cover. No one would give it a second look.
 - Listen up, men!
 - Daphne Peralta is smart and dangerous.
-- I don't want to lose anyone today, so keep your eyes peeled and your g*n ready.
+- I don't want to lose anyone today, so keep your eyes peeled and your g\*n ready.
 - You heard her, boys. We're going in hot.
 - Agents: Hoo-ah!
 - Listen, you have got to get Daphne off that shuttle right now!
@@ -389,7 +389,7 @@ Original Air Date on April 18, 2011
 - Your little government con? It failed.
 - I'm calling your bluff.
 - What the... ?
-- (g*n cocking)
+- (g\*n cocking)
 - We are in really big trouble.
 - Yeah.
 - She's your wedding planner?
@@ -602,7 +602,7 @@ Original Air Date on April 18, 2011
 - In the game, the ball is always close by.
 - Which means someone else here has the Zephyr.
 - Coming through, coming through, coming through.
-- That kn*fe is very dirty.
+- That kn\*fe is very dirty.
 - This is their moment.
 - (high-pitched squeaking)
 - (crowd groaning)
@@ -613,15 +613,15 @@ Original Air Date on April 18, 2011
 - Daphne Peralta.
 - Let's talk outside.
 - We need to get back out there.
-- Morgan: Listen, there's no reason for the g*n, sir.
+- Morgan: Listen, there's no reason for the g\*n, sir.
 - I mean, Mr. Father of the Bride. Morgan, where is he taking you?
 - Oh, what a lovely parking garage.
 - No, no, no, no, no. Hold on a second.
 - I am nobody.
 - I'm nobody!
 - There'd virtually be no consequence in you letting me go.
-- Then the same goes for k*ll you. What? !
-- Freeze! Put your g*n down! You're under arrest!
+- Then the same goes for k\*ll you. What? !
+- Freeze! Put your g\*n down! You're under arrest!
 - Chuck!
 - Morgan!
 - Hey!
@@ -636,18 +636,18 @@ Original Air Date on April 18, 2011
 - Listen...
 - Can I call you friend?
 - What is your dad doing? Just give him a minute.
-- This man is going to sh**t you and he is not going to miss.
-- But I'm hoping that he doesn't have to k*ll you.
+- This man is going to sh\*\*t you and he is not going to miss.
+- But I'm hoping that he doesn't have to k\*ll you.
 - See, I-I-I...
 - I've got a daughter, too.
 - And based on the situation here, I'm thinking you're not the best father in the world.
 - Join the club.
 - I guess the only thing we can really hope for is that, someday, our little girls might be happy despite us... and yours is.
 - She's upstairs right now in her white dress.
-- And here you are, about to take a b*llet in the head.
+- And here you are, about to take a b\*llet in the head.
 - So... do one thing for her...
 - Yeah.
-- ... put the g*n down.
+- ... put the g\*n down.
 - Turn around.
 - (sirens wailing)
 - Colonel John Casey.

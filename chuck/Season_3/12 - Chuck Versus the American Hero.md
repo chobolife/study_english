@@ -2,12 +2,12 @@
 
 - Hey, I'm Chuck. Here's a few things that you might need to know or maybe you just forgot.
 - There's only one piece left to clean up.
-- Perry. Chuck has to k*ll him.
+- Perry. Chuck has to k\*ll him.
 - You are giving him his red test tonight?
-- u kidding me? k*ll him here, now?
+- u kidding me? k\*ll him here, now?
 - I can't do that.
 - Then you won't become a spy.
-- You passed the test. To them you k*ll perry.
+- You passed the test. To them you k\*ll perry.
 - No one can know the truth ever. Not even Sarah.
 - You're now officially an agent.
 - Included there's a plain ticket to washington, you'll leave tonight.
@@ -32,7 +32,7 @@
 - (scoffs)
 - There, perfect.
 - What do you think you're doing? !
-- (silenced g*n)
+- (silenced g\*n)
 - (device trills)
 - It's done.
 - Package is intact.
@@ -63,7 +63,7 @@
 - A pleasure as always, General.
 - The pleasure's all mine, Diane.
 - Mr. Bartowski. Oh!
-- For God's sake, put that g*n away. You're a spy now.
+- For God's sake, put that g\*n away. You're a spy now.
 - Well, that's, that's actually what I wanted to talk to you about, General.
 - Your first assignment just arrived.
 - The CIA wants you in Rome right away.
@@ -193,7 +193,7 @@
 - You're not... you're not the same guy that I fell for.
 - How? Why? Because I'm an agent now?
 - How am I not the same guy?
-- You k*ll somebody, Chuck. I saw you k*ll the mole!
+- You k\*ll somebody, Chuck. I saw you k\*ll the mole!
 - Sarah, I know what you think you saw on the train tracks, but it's not that simple.
 - It's more complicated than that. and I need you to believe me.
 - I don't.
@@ -210,21 +210,21 @@
 - Oh, great.
 - Hey.
 - How'd it go with Walker?
-- Because she thinks I k*ll the mole, she believes I'm no longer the guy she fell in love with.
+- Because she thinks I k\*ll the mole, she believes I'm no longer the guy she fell in love with.
 - I have to tell her the truth.
-- What? That I k*ll him? Not gonna happen.
+- What? That I k\*ll him? Not gonna happen.
 - Casey, you said it yourself. The guy was a traitor.
 - Yeah, well, according to Beckman, so am I.
-- I'm lucky she didn't put a b*llet in my head.
+- I'm lucky she didn't put a b\*llet in my head.
 - Get her back some other way.
 - Well, what the heck am I supposed to tell Sarah?
 - Tell her whatever you want, just not the truth.
 - You like being a full-fledged spy, don't you?
 - You like that nice villa the CIA picked out for you in Rome, hmm?
-- Then you k*ll the mole. That's how it's got to be.
+- Then you k\*ll the mole. That's how it's got to be.
 - Morgan: Okay, okay.
 - How did it go? How did it go?
-- Crashed and b*rned.
+- Crashed and b\*rned.
 - Chuck, did you tell her how you feel?
 - Forget it.
 - She's leaving with Shaw in the morning.
@@ -255,7 +255,7 @@
 - (shushing)
 - You want us to put a tail on blondie's new piece?
 - Find out his weaknesses, see what skeletons are in his closet?
-- bl*od sample, urine?
+- bl\*od sample, urine?
 - Stool?
 - No.
 - No, not at... I just...
@@ -356,7 +356,7 @@
 - Well, you know that I can't, and you know why.
 - Look, Sarah, I don't want to have to make a scene in front of all these very nice people, but I will literally do anything to change your mind.
 - Well, then tell me what really happened at the train tracks.
-- Sarah: If you didn't k*ll the mole, then who did?
+- Sarah: If you didn't k\*ll the mole, then who did?
 - Look, I don't want there to be any secrets or lies between us, ever again.
 - So, please, let me just have this one.
 - And I promise I will never lie to you.
@@ -369,7 +369,7 @@
 - (trilling)
 - We know exactly what you look like, Shaw.
 - 6'2", 220, black hair, very attractive.
-- (cocking g*n)
+- (cocking g\*n)
 - Next move, you're to wait for a phone call.
 - Might not happen right away.
 - So be patient. And then, when you...
@@ -398,13 +398,13 @@
 - Bring a stretcher, a wheelbarrow.
 - Possible change of pants.
 - Casey, you got to do something.
-- He's g*n for Chuck.
+- He's g\*n for Chuck.
 - I'm a civilian now. I can't.
 - Well, I can.
 - Daniel.
-- If you're going to sh**t me, just do it.
-- Put a b*llet in my head.
-- b*llet?
+- If you're going to sh\*\*t me, just do it.
+- Put a b\*llet in my head.
+- b\*llet?
 - The director wants to meet with you face to face.
 - What are you saying?
 - Sarah, I'm saying... that I...
@@ -412,7 +412,7 @@
 - (tires screech)
 - (police siren wailing)
 - (indistinct radio transmission)
-- Next time, take out the guy with the g*n.
+- Next time, take out the guy with the g\*n.
 - Jail? Seriously, you guys? Jail?
 - I mean, Morgan, I would have expected this from you.
 - Or even from Casey, now that we have all been privy to your public indecency problem.
@@ -429,7 +429,7 @@
 - Chuck is in D. C. , Casey.
 - Well, he was. He's back to win back Sarah, so...
 - Hold on for a minute.
-- You guys expect me to believe that the three of you got my husband b*at up and tossed in jail to save my brother's love life?
+- You guys expect me to believe that the three of you got my husband b\*at up and tossed in jail to save my brother's love life?
 - Yes. Yes, we did.
 - We're as shocked as you are.
 - And, what's more, Chuck came to you three for advice.
@@ -439,7 +439,7 @@
 - (groans)
 - Agent Shaw, we have just received intel that the Ring agent who tried to capture you is the same man who removed a data drive from inside the mole's body.
 - The data was inside him?
-- He was in the process of digesting it when he was k*ll.
+- He was in the process of digesting it when he was k\*ll.
 - I'll spare you the gory details.
 - Lucky he was dead first.
 - We believe the stolen data drive contains highly sensitive case files.
@@ -447,7 +447,7 @@
 - General, if I may, it's not good enough.
 - Excuse me, Agent Shaw.
 - You have a better idea?
-- The Ring agent we encountered did not want to k*ll me.
+- The Ring agent we encountered did not want to k\*ll me.
 - He wanted to take me to the director.
 - If the Ring wants to take me, let them.
 - You're volunteering to be a double agent?
@@ -468,8 +468,8 @@
 - Whatever the risk may be, I say it's worth it.
 - Very good.
 - Make it work.
-- Are you trying to get yourself k*ll?
-- You're asking if I'd trade my life for the man who k*ll my wife?
+- Are you trying to get yourself k\*ll?
+- You're asking if I'd trade my life for the man who k\*ll my wife?
 - I would.
 - Well, what if I don't let you?
 - It's not your choice.
@@ -547,7 +547,7 @@
 - I know he does.
 - And that's why I'm going in to bring him back.
 - But the air strike is on its way.
-- You're both going to get k*ll.
+- You're both going to get k\*ll.
 - Why are you helping him?
 - 'Cause I know how much you care about him.
 - Glad you could make it.
@@ -569,7 +569,7 @@
 - What do we have here?
 - Now we can go see the director.
 - This is the exact model our federal government uses when cleaning up hot zones.
-- m*rder investigations.
+- m\*rder investigations.
 - So, does this model come with any rebates?
 - Huh?
 - Morse code.
@@ -600,7 +600,7 @@
 - Oh, thank you, Casey.
 - I haven't used Morse code since basic training.
 - I use it all the time to talk to my Marine buddies. What's up?
-- Okay, Shaw gave himself up to the director, and Chuck locked me in here because he knew I would try and rescue him and Beckman's going to b*mb the location.
+- Okay, Shaw gave himself up to the director, and Chuck locked me in here because he knew I would try and rescue him and Beckman's going to b\*mb the location.
 - Shaw dies an American hero.
 - Not if I can help it.
 - Okay, good. He's still on the move.
@@ -619,7 +619,7 @@
 - Nunchuks?
 - Uh, why would you even have...
 - No. While I appreciate that, Jeff, very much, I-I-I don't believe in violence.
-- So, should they give you a b*at, you expect us to have your back?
+- So, should they give you a b\*at, you expect us to have your back?
 - No, thanks. Okay. See you later.
 - â? ª â? ª
 - (rattling, beeping)
@@ -633,13 +633,13 @@
 - Location is stabilized and remains fixed.
 - Agent Shaw has arrived and the B-2 has been deployed with bunker-busters.
 - What do you want to do?
-- Drop the b*mb.
+- Drop the b\*mb.
 - And Agent Shaw?
 - He's a true American hero.
 - Welcome, Daniel.
 - I've been waiting to meet you for a long time.
-- If you're going to k*ll me, get it over with.
-- I don't want to k*ll you, Daniel.
+- If you're going to k\*ll me, get it over with.
+- I don't want to k\*ll you, Daniel.
 - I want to educate you.
 - What is this?
 - A gift.
@@ -656,9 +656,9 @@
 - How'd you get this?
 - We have lots of information on Eve.
 - Just watch, Daniel.
-- It's time you learned the truth about your wife's m*rder.
+- It's time you learned the truth about your wife's m\*rder.
 - Thought you might like to see some surveillance footage from that night.
-- (g*n)
+- (g\*n)
 - (Danielle gasps)
 - No!
 - It must be so difficult for you.
@@ -666,7 +666,7 @@
 - (echoing): I'll be in touch.
 - (zapping)
 - MAN (over radio): Three minutes to target.
-- (g*n zaps)
+- (g\*n zaps)
 - Huh. No flash necessary.
 - Good tranqs.
 - Freeze!
@@ -725,11 +725,11 @@
 - No, he didn't send me.
 - He doesn't know I'm here.
 - I just wanted to tell you something in case it changed anything.
-- He didn't k*ll the mole.
+- He didn't k\*ll the mole.
 - What?
 - I did.
 - He didn't have the stones to pull the trigger.
-- The kid's not a k*ll.
+- The kid's not a k\*ll.
 - Just not wired that way.
 - Unlike us.
 - Just thought you should know.
@@ -753,7 +753,7 @@
 - Keep watching.
 - The data drive the Ring recovered from the mole's body, we now believe it contained footage of a red test conducted on the night of Agent Shaw's death.
 - That's Sarah.
-- Sarah k*ll his wife.
+- Sarah k\*ll his wife.
 - Did you know?
 - I assure you I had no knowledge that Agent Walker was responsible for Eve Shaw's death.
 - If Shaw has seen this... if the Ring played him this video...

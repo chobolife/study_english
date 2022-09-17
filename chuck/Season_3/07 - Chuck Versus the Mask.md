@@ -23,7 +23,7 @@
 - Okay. Well, maybe you would prefer to go with Jeff, then.
 - Just the two of you, cramped into that tiny, hot Nerd Herd mobile.
 - Well played, newbie.
-- Next assignment, you get to ride g*n.
+- Next assignment, you get to ride g\*n.
 - Nice.
 - Excuse me for just one second.
 - What's going on? I'm in the middle of something here.
@@ -72,7 +72,7 @@
 - It's four inches of solid steel.
 - We could try blowing the hatches.
 - We'll have to use C4.
-- No. Shaw's too close. You're going to k*ll him.
+- No. Shaw's too close. You're going to k\*ll him.
 - It's up to you, Chuck.
 - You've got to get this door open.
 - Some of these artifacts are over 3, 000 years old.
@@ -83,7 +83,7 @@
 - We are the professionals.
 - Hannah, what are you doing here?
 - Surprise. I saw your Nerd Herder parked outside the museum.
-- And you said that I could ride g*n.
+- And you said that I could ride g\*n.
 - So, what's the problem?
 - Get rid of her, Chuck.
 - Shaw's got less than a minute.
@@ -126,7 +126,7 @@
 - It's a date.
 - Magnificent. Isn't it?
 - What is that?
-- Double sh*t Americano. No cream, no sugar.
+- Double sh\*t Americano. No cream, no sugar.
 - The way you like it.
 - Oh, I almost forgot.
 - I noticed you like to chew them when you get nervous.
@@ -150,9 +150,9 @@
 - You mean other than us bringing a civilian on the mission?
 - I do have some new tranq darts I'd like to try out.
 - No, no. I can handle Hannah.
-- Besides, she can cover for me in my Nerd Herd duties in case you guys need to call in the big g*n.
+- Besides, she can cover for me in my Nerd Herd duties in case you guys need to call in the big g\*n.
 - And that would... that would be me.
-- When I say "big g*n", I'm referring to the Intersect, to myself.
+- When I say "big g\*n", I'm referring to the Intersect, to myself.
 - You know, if I need to flash.
 - Glad we had this talk.
 - Morgan.
@@ -308,7 +308,7 @@
 - But the guy's a...
 - Walker and Bartowski turn off their mics for some reason?
 - No, I did.
-- Those two gab like little schoolgirls when they're out in the field. It's m*rder on the ears.
+- Those two gab like little schoolgirls when they're out in the field. It's m\*rder on the ears.
 - That's ridiculous.
 - Ridiculous?
 - He couldn't keep his hands off of you all night.
@@ -501,7 +501,7 @@
 - You can bring me my mask.
 - Uh, I think you might have the wrong number, sir.
 - Let me rephrase.
-- Either you bring me the mask or I k*ll your girlfriend.
+- Either you bring me the mask or I k\*ll your girlfriend.
 - Morgan, have, uh, have you seen Hannah?
 - Yeah, she's out on a call. Something at the museum.
 - Sir, first of all, I... I don't have a girlfriend, just for clarification's sake, and second, like I mentioned earlier, this is the Nerd Herd desk, so unless you have a computer-related...
@@ -529,11 +529,11 @@
 - Oh, no.
 - Guys, guys, it's poison.
 - You think?
-- It's a designer w*apon developed for battlefield use, but th... there's a counteragent that can be taken up to 30 minutes after exposure.
+- It's a designer w\*apon developed for battlefield use, but th... there's a counteragent that can be taken up to 30 minutes after exposure.
 - Or what?
 - Look, don't worry.
 - I'm gonna get the counteragent from Vasillis.
-- He wouldn't have shipped the w*apon without it.
+- He wouldn't have shipped the w\*apon without it.
 - It's got to be back at the...
 - Casey, gear up. We're heading back to the museum.
 - This is never gonna work.
@@ -546,7 +546,7 @@
 - Do we have enough time to save them, too?
 - Wait, wait, I got it, I got it.
 - We gas him.
-- That's a great plan, except the chemical w*apon's already been deployed.
+- That's a great plan, except the chemical w\*apon's already been deployed.
 - Yeah, but Vasillis doesn't know that.
 - I got some smoke grenades in the back.
 - Funny, I don't feel like I'm dying.
@@ -589,7 +589,7 @@
 - I don't believe you.
 - Well, that's too bad.
 - You should've.
-- You've k*ll us all.
+- You've k\*ll us all.
 - You idiot!
 - Well, there's a counteragent, right? Where is it?
 - It's in a vase.
@@ -642,7 +642,7 @@
 - Don't mention it.
 - It wasn't just my life.
 - Yeah.
-- You also helped secure a rogue chemical w*apon.
+- You also helped secure a rogue chemical w\*apon.
 - Guys.
 - Look, I appreciate a ticker tape parade just like the next guy, but, come on, I got a great team.
 - And that brings us to our next point of business.

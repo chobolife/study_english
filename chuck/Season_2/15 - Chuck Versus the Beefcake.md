@@ -77,7 +77,7 @@
 - Look...
 - Sarah, it's not you.
 - It's me.
-- Casey: Probably not the best idea to give the "It's not you, it's me" speech to a trained assassin wielding a kn*fe.
+- Casey: Probably not the best idea to give the "It's not you, it's me" speech to a trained assassin wielding a kn\*fe.
 - I was warming up into more original terrain.
 - Can you give us a minute, please, Casey?
 - Um... look, Sarah, you know how much I care about you.
@@ -202,7 +202,7 @@
 - Do you want some company?
 - Not really.
 - Well, neither do I.
-- But, uh, the problem is, if I sit alone at the bar, then every guy in here is going to think I'm lonely and desperate, and try and take a sh*t at a total stranger.
+- But, uh, the problem is, if I sit alone at the bar, then every guy in here is going to think I'm lonely and desperate, and try and take a sh\*t at a total stranger.
 - Isn't that what you're doing right now?
 - Guilty as charged.
 - If we're going to continue this conversation, I think I should make one thing abundantly clear.
@@ -281,14 +281,14 @@
 - Okay, hands up! NSA.
 - It'll be okay, ma'am.
 - Step off the elevator with your baby.
-- Please, just don't sh**t.
+- Please, just don't sh\*\*t.
 - I'm, uh... I'm willing to try new things, but it's, uh, it's getting a little hot in here.
 - I wonder if we could maybe grab some champagne?
 - Maybe some Cristal?
 - Cole: Well, then let's get some Cristal.
 - Ah, tasty.
 - Hit me again.
-- (g*n, glass breaking)
+- (g\*n, glass breaking)
 - Hey, I need a bottle of Cristal for suite 1121.
 - Casey! Casey, I heard the safe word.
 - I think Sarah's in real trouble.
@@ -314,7 +314,7 @@
 - Do you think I'm falling for this?
 - Trust me, you're not that charming.
 - That's not our ride.
-- (rapid g*n) Chuck, get down!
+- (rapid g\*n) Chuck, get down!
 - Who are they? !
 - Not ours. Okay, you stay here.
 - I'm going to try and pull fire away from you.
@@ -326,7 +326,7 @@
 - 'Cause I didn't want to blow my cover.
 - How do I know you're not lying?
 - You don't, but if you want her to live, you don't have a choice.
-- (g*n)
+- (g\*n)
 - Do something or she's already dead.
 - You better not be lying to me!
 - Get down!
@@ -366,7 +366,7 @@
 - Ah!
 - Evening.
 - Talk about low-hanging fruit.
-- Oh, my God, I'm going to k*ll Chuck.
+- Oh, my God, I'm going to k\*ll Chuck.
 - No, didn't Chuck tell you I sleep in the buff?
 - I mean, that's just... hey, come on.
 - Big guy, where are you going?
@@ -415,7 +415,7 @@
 - Let me make this very clear.
 - I'm not interested.
 - Me, neither.
-- I just think your seduction k*ll could use a little work, and I'm offering my services.
+- I just think your seduction k\*ll could use a little work, and I'm offering my services.
 - Well, you seemed pretty reluctant in your hotel suite last night.
 - Well, I didn't want to blow the cover.
 - Chuck: Sarah? Cole?
@@ -450,7 +450,7 @@
 - Does your building have a security access code? (laughs)
 - He's just... Late-night emergencies are common in this line of work.
 - So, if you're looking for a sales associate, then why do you need to hire a swimsuit model?
-- I nearly have a degree in business from the El g*n School of Finance, so, some of these concepts might be over your head.
+- I nearly have a degree in business from the El g\*n School of Finance, so, some of these concepts might be over your head.
 - I have a business degree from Harvard.
 - Ah.
 - Friendly rivalry.
@@ -481,7 +481,7 @@
 - Fine. I'll go without it.
 - Leave the chip here.
 - Worst case scenario: we use this opportunity to smoke out a few FULCRUM agents.
-- Worst case scenario: they catch you and k*ll you.
+- Worst case scenario: they catch you and k\*ll you.
 - Yeah.
 - Well, that's a chance I'm just gonna have to take.
 - Sarah, give me a chance. Maybe I can do this.
@@ -522,8 +522,8 @@
 - (beeping) Someone just tripped the homing device on the microchip.
 - This guy doesn't have it.
 - It's coming from Burbank.
-- It's a setup. k*ll him.
-- Casey, g*n.
+- It's a setup. k\*ll him.
+- Casey, g\*n.
 - Casey: Hold your position, Walker. That's an order.
 - Cole could be in danger.
 - He's off the grid.
@@ -557,7 +557,7 @@
 - What is the hard way?
 - (whimpering)
 - Oh, my God! This is unbearable.
-- My back is k*ll me; my wrists are chafing. This is going to get ugly.
+- My back is k\*ll me; my wrists are chafing. This is going to get ugly.
 - What level is his pain tolerance?
 - I'd say about a one out of ten.
 - A what? ! A one?
@@ -578,7 +578,7 @@
 - You see all those syringes over there?
 - You know how I feel about needles.
 - Don't worry about torture.
-- I'll incite them. Get them to k*ll us quick.
+- I'll incite them. Get them to k\*ll us quick.
 - Interesting plan.
 - Okay, we just have to hold out until Casey gets here.
 - Until then, if the pain becomes unbearable, just pass out.
@@ -611,7 +611,7 @@
 - (grunts)
 - ... and the pain can end.
 - Chuck: Sarah, I can't let them do this.
-- She's going to k*ll him.
+- She's going to k\*ll him.
 - No, Chuck, no, just keep your mouth shut.
 - Enough, enough, can't you see he's never going to talk?
 - Everybody talks.
@@ -652,7 +652,7 @@
 - No, no, please, please, no more torture.
 - Alexis: Enough.
 - We will try... a different approach.
-- Tell me who the Intersect is by three... or I inject Agent Walker with enough ricin to k*ll an army.
+- Tell me who the Intersect is by three... or I inject Agent Walker with enough ricin to k\*ll an army.
 - One, two...
 - It's me.
 - Cole: It's me!
@@ -710,7 +710,7 @@
 - I figured same amount of fuel, we'd go to Fiji.
 - Sorry. Need to work.
 - Well, understood.
-- I'm offering to help you with your interrogation k*ll.
+- I'm offering to help you with your interrogation k\*ll.
 - Do these lines actually work?
 - Often.
 - Okay.

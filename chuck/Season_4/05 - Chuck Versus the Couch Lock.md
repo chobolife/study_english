@@ -2,7 +2,7 @@
 
 - [MEN SPEAKING IN FARSI]
 - [GRUNTS]
-- [g*n]
+- [g\*n]
 - That was easy.
 - Yeah. Too easy.
 - Wasn't even fun.
@@ -12,7 +12,7 @@
 - Mac, get the panel.
 - Packard: All right, let's have a look, boys.
 - There's enough gold in here for us all to retire, five times.
-- That gold is being used to secretly fund t*rrorists.
+- That gold is being used to secretly fund t\*rrorists.
 - We are under orders from President Clinton to seal this place up.
 - While I may not like him or his mouthy wife, those are the orders.
 - Anyone tries to open this door: Boom!
@@ -68,7 +68,7 @@
 - [BOTH CHUCKLE]
 - Still haven't told Casey yet, huh?
 - No.
-- Well, be careful how you break the news to him. He might k*ll you accidentally.
+- Well, be careful how you break the news to him. He might k\*ll you accidentally.
 - Sound advice. Thank you.
 - Yeah, you know, anytime. Um, buddy, can you do me a favor?
 - Of course.
@@ -101,17 +101,17 @@
 - Casey, these guys may be the key to locating my mom.
 - Only place I can think of to get these three back together... would be my funeral.
 - That's it. Casey, I know how to find your old team.
-- We have to k*ll you.
+- We have to k\*ll you.
 - Let me get this right. You want to use government resources... to stage a fake funeral for Colonel Casey?
 - Well, yes. Uh, general, I believe we have a unique opportunity here... to set a trap for Casey's old team, who happen to be Volkoff agents.
 - They think I'm dead, they'll come for this.
 - My handprint's the only way they're gonna access that vault.
 - We spread the news of Casey's death through the channels... that civilians don't monitor but Volkoff does.
-- Next up, we k*ll the colonel.
+- Next up, we k\*ll the colonel.
 - You want him to play dead?
 - I'll be drugged.
 - When Casey's former team sees Casey's body... they'll drop their guard, giving us the upper hand, and we'll move in.
-- We will control every entrance and exit. sn*pers will be posted and at the ready.
+- We will control every entrance and exit. sn\*pers will be posted and at the ready.
 - And the audience will be filled with agents that we've planted there.
 - All right.
 - You've clearly thought this through. The mission is a go.
@@ -135,7 +135,7 @@
 - What's it called? "Fakeadeathanol"?
 - Cute. No.
 - As a matter of fact, it's called Tetradotoxin.
-- Chuck: Normally, it would k*ll you.
+- Chuck: Normally, it would k\*ll you.
 - We've modified it. It'll slow down your breathing and heart rate.
 - Outstanding.
 - You will come across... as being very, very dead, but in actuality... you'll be alive and awake, however, paralyzed. I'll show you how it works.
@@ -194,7 +194,7 @@
 - Listen to me.
 - Don't worry about a thing. I am gonna eulogize the hell out of you, buddy.
 - Right. Got this.
-- sn*pers are all in position. We're set.
+- sn\*pers are all in position. We're set.
 - Hey, Alex. It's me, Morgan... in case you don't recognize my voice yet.
 - That's my voice. Ha, ha. Just wanted to call you and let you know... that, uh, I'm gonna tell your dad about us today.
 - I got the perfect spot for it.
@@ -216,7 +216,7 @@
 - Morgan: Sorry.
 - You're sitting. Ha, ha.
 - You know, if there was one word I'd choose to describe John Casey... that word would be "forgiveness. "
-- Big, g*n, commie-hating forgiveness.
+- Big, g\*n, commie-hating forgiveness.
 - There was something I wanted to tell John before he passed.
 - Something I need to get off my chest.
 - Oh, no.
@@ -247,14 +247,14 @@
 - Is he crying?
 - I'm done. Goodbye.
 - [LAUGHING]
-- [g*n COCK]
+- [g\*n COCK]
 - Did you really think we'd come to Casey's funeral unprepared?
 - You're all under arrest.
 - Give up now.
 - We have every exit covered.
 - I think you missed one.
 - Boom.
-- [b*mb BEEPING]
+- [b\*mb BEEPING]
 - [PACKARD GRUNTS]
 - Has anyone got him?
 - Anyone?
@@ -272,13 +272,13 @@
 - Chuck: Do you have him?
 - [CAT MOWS AND PURRS]
 - They put his tracker on a what?
-- No. God, no. No, don't sh**t it.
+- No. God, no. No, don't sh\*\*t it.
 - They took off his tracker and put it on a cat.
 - Then where is Casey?
 - Packard: So we gotta chop his arm off.
 - T. I: It's the left one, right?
 - I was planning on doing it with this.
-- Not with a kn*fe. No. It's too dull.
+- Not with a kn\*fe. No. It's too dull.
 - Mackintosh: What we need is a surgical saw.
 - I got one in the other room. You mess up his hand... you won't be able to open the vault.
 - Packard: Surgical saw, huh? Ha-ha-ha.
@@ -291,7 +291,7 @@
 - It's like cutting into a bird on Thanksgiving.
 - [DOORBELL RINGING]
 - Doorbell. Mackintosh.
-- Get your g*n.
+- Get your g\*n.
 - Packard: Come on, come on, come on. Check.
 - Hey, buddy, is there anything I can do, anything at all, to be useful?
 - Um, right now, Morgan, the best thing you can do is help keep Casey's cover.
@@ -375,7 +375,7 @@
 - Look, I can't bear the thought of you getting hurt if this thing goes off... so I want you to go now. Save yourself.
 - You know what? You could've told me that before I climbed under those lasers.
 - I... When I... I didn't...
-- Chuck, you're being ridiculous... even for a man who is trying to free himself from expl*sives.
+- Chuck, you're being ridiculous... even for a man who is trying to free himself from expl\*sives.
 - Casey and I know the risks. Of course we're gonna help you.
 - This is your mom.
 - I love you, you know that? And I'd say that... even if you weren't in the process of saving my life right now... which does, by the way, make you 20 to 25 percent sexier in my book.
@@ -402,7 +402,7 @@
 - Anything I can do to help?
 - What, you getting bored or something?
 - A little.
-- [b*mb POWERS DOWN]
+- [b\*mb POWERS DOWN]
 - Oh. Oh.
 - Suddenly not so bored.
 - It just powered down.
@@ -472,7 +472,7 @@
 - I need you to know, always a perfect gentleman.
 - Although, it definitely felt like pretty soon... she'd be spending the night.
 - [GROWLING]
-- I will k*ll you.
+- I will k\*ll you.
 - [MORGAN GASPS]
 - [PANTS]
 - Yes. Welcome back, sir. See? I knew that would work.
@@ -494,7 +494,7 @@
 - Oh. Okay. Sorry about that one. That was probably not my place.
 - If you'd like to choke me now, that's fine.
 - It's a 19-hour flight to Iran. Bring a book. We ain't talking.
-- You guys are gonna k*ll us no matter what Casey does, right?
+- You guys are gonna k\*ll us no matter what Casey does, right?
 - Packard: Yep.
 - Mind if I ask you a few questions, then?
 - Sure.
@@ -544,8 +544,8 @@
 - If you hadn't been such a hard-ass, we wouldn't all be here right now.
 - We'd be on a beach earning 20 percent.
 - Unless we invested in real estate.
-- Now drop your w*apon, Casey.
-- All your w*apon, Casey.
+- Now drop your w\*apon, Casey.
+- All your w\*apon, Casey.
 - [PACKARD LAUGHS]
 - I would've come unarmed, but I wasn't sure what kind of security I'd run into.
 - That's the signal.
@@ -562,19 +562,19 @@
 - Holy Goldfinger.
 - Topside, there are 15 of the most hard-core Special Forces soldiers you've ever seen.
 - Morgan: Come on, come on.
-- They got 10, 000 rounds of a*mo, a squadron of F-15 fighters... a radio call away.
+- They got 10, 000 rounds of a\*mo, a squadron of F-15 fighters... a radio call away.
 - Your move.
-- [g*n COCKS]
+- [g\*n COCKS]
 - Well, maybe I'll get lucky.
-- [g*n]
+- [g\*n]
 - Morgan: Ow!
 - Was that a little girl?
 - That really stings. Ah.
 - MACKINTOSH [ON MONITOR]: Whoever you are, we have Casey and the others.
-- Surrender, or we will k*ll them.
+- Surrender, or we will k\*ll them.
 - So you got lucky. You hit one. Still 14 left, and they'll never...
 - Morgan: I surrender.
-- I'm still surrendering. Please do not sh**t me.
+- I'm still surrendering. Please do not sh\*\*t me.
 - Coming out. Just me. All alone. No one else knows we're here.
 - [PACKARD LAUGHS]
 - So much for your Special Forces.

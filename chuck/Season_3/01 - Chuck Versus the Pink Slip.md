@@ -5,7 +5,7 @@
 - [trilling]
 - Chuck, did you just flash?
 - Oh, Chuck me.
-- k*ll him.
+- k\*ll him.
 - Hyah!
 - [man yells]
 - Chuck?
@@ -19,7 +19,7 @@
 - I would like for you to give it to me.
 - Please?
 - [scoffs]
-- You show up with no g*n and "please? "
+- You show up with no g\*n and "please? "
 - What, I quiver in fear?
 - Beckman: Chuck, we've got a lock on the case.
 - It's there in the room with you.
@@ -33,11 +33,11 @@
 - Nice and easy.
 - Now, Yuri, hand me that case, and then after that, it's pirogi time.
 - Ooh.
-- Beckman: sh**t him, Chuck.
+- Beckman: sh\*\*t him, Chuck.
 - Do it.
-- sh**t me.
+- sh\*\*t me.
 - Don't mess with me, Yuri.
-- Beckman: sh**t him now!
+- Beckman: sh\*\*t him now!
 - Get him!
 - Beckman: Chuck, what is happening? Your heart rate just spiked.
 - Are you okay?
@@ -77,9 +77,9 @@
 - Chuck?
 - You can come down now.
 - [sighs]
-- Beckman: Why didn't you sh**t Yuri, Chuck?
+- Beckman: Why didn't you sh\*\*t Yuri, Chuck?
 - Well, we were very close, and while I realize it's just a simulation, safety first, you know?
-- And to be perfectly honest, I'm still not comfortable with the whole sh**ting people thing.
+- And to be perfectly honest, I'm still not comfortable with the whole sh\*\*ting people thing.
 - This isn't working out.
 - Look, General, I realize that we've had our setbacks, I... I... I do, but let's not dwell in the past here.
 - I'm convinced I can be a great spy. I know it.
@@ -339,7 +339,7 @@
 - I can help you. Bartowski, it's a simple courier exchange.
 - Gilles, the guy with Walker, he's the mark.
 - He's meeting with a major Ring operative tonight.
-- The Ring? They k*ll Bryce.
+- The Ring? They k\*ll Bryce.
 - The moment the Ring courier meets with Gilles, we strike.
 - Now, get out of here before you spook Javier.
 - Who?
@@ -353,7 +353,7 @@
 - Guys, you have to listen to me.
 - Javier's not who you think he is!
 - He's an assassin! Trust me!
-- He's here to k*ll someone.
+- He's here to k\*ll someone.
 - Casey: We dumped the Lemon.
 - Let me back in!
 - Let me back in!
@@ -419,19 +419,19 @@
 - ♪ ♪
 - You have nothing to worry about.
 - Sarah!
-- [g*n chamber clicking]
+- [g\*n chamber clicking]
 - Gilles: What's going on?
 - Man: Don't move! Don't you move!
 - Chuck, what the hell are you doing?
 - There's a... There's an assassin here.
 - There's an assassin here, people.
-- He was gonna k*ll her.
-- He was gonna k*ll you.
+- He was gonna k\*ll her.
+- He was gonna k\*ll you.
 - Where?
 - Where is he?
 - Half this club is undercover, Chuck.
 - Casey: Been planning this for months.
-- Good thing we brought this many agents 'cause I'm gonna k*ll you!
+- Good thing we brought this many agents 'cause I'm gonna k\*ll you!
 - No!
 - Casey!
 - Sarah, I flashed.
@@ -457,13 +457,13 @@
 - Maybe we should be introduced.
 - Hi. I'm Chuck Bartowski, total loser, cheese ball addict.
 - Does the CIA let you just leave like that?
-- Don't they send someone to, like, k*ll you or something?
+- Don't they send someone to, like, k\*ll you or something?
 - [laughs]
 - I think you've watched too many movies.
 - [laughs]
 - [floorboards creaking]
 - [yells]
-- [yells] Don't k*ll me!
+- [yells] Don't k\*ll me!
 - Duh! Holy, dude.
 - It's... it's just... It's me.
 - Ellie thought I should come by and...
@@ -497,7 +497,7 @@
 - I'll have the authorities deal with him tomorrow.
 - I'm gonna miss this.
 - What?
-- M-134 g*n.
+- M-134 g\*n.
 - 3, 400 rounds a minute.
 - Never got to use her.
 - [computer chirps]
@@ -668,7 +668,7 @@
 - Actually, I think this might be my last chance.
 - [helicopter approaching]
 - Oh, get down!
-- [rapid g*n]
+- [rapid g\*n]
 - [laughing]
 - [groans]
 - Javier Cruz was a vital operative for The Ring's Mexico Syndicate.

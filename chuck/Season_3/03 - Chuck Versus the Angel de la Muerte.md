@@ -77,8 +77,8 @@
 - What exactly does that mean?
 - Well, you know, same old, same old.
 - Bad guy throws a fancy cocktail party.
-- Another bad guy's trying to sell him a w*apon.
-- We bust both bad guys, diffuse a b*mb.
+- Another bad guy's trying to sell him a w\*apon.
+- We bust both bad guys, diffuse a b\*mb.
 - Blah, blah, blah.
 - That sounds kind of kickass.
 - What do you got under there?
@@ -119,7 +119,7 @@
 - Beckman: The Costa Gravan premier is listed in critical condition.
 - Outstanding. Want me to crack the bubbly?
 - No. I want you to go to the hospital and guard against further threats to his life, natural or otherwise.
-- But haven't you personally given me the order to k*ll that commie crackpot on three separate occasions?
+- But haven't you personally given me the order to k\*ll that commie crackpot on three separate occasions?
 - And three times, you have failed to complete your orders.
 - I thought you said you had a perfect record.
 - Wow. This is getting entertainingly uncomfortable.
@@ -204,7 +204,7 @@
 - Some real adrenaline.
 - I want to feel like I felt out on the football field, dude.
 - You know, I can still run a fou r-four-40. Great.
-- If we ever need a tight-end, you're the first call I'm making, but until then, you're my brother-in-law. Ellie... would k*ll me.
+- If we ever need a tight-end, you're the first call I'm making, but until then, you're my brother-in-law. Ellie... would k\*ll me.
 - Beckman: Thanks to your brother-i n-law's intelligence, we have to assume that the assassin is still in play.
 - There's an event at the Costa Gravan Consulate this evening.
 - I need your team there to guard the premier.
@@ -213,7 +213,7 @@
 - Beckman: That is why the CIA has no official knowledge of this mission.
 - Uh, just spit-balling here, General.
 - Why don't we just tell the premier that his life is in danger?
-- Would you trust a country that spent the better part of three decades trying to k*ll you?
+- Would you trust a country that spent the better part of three decades trying to k\*ll you?
 - Hmm. Yeah.
 - Your protection must go undetected.
 - What? So, that-that's... that's it?
@@ -224,7 +224,7 @@
 - What? He's bailing? You're bailing on us?
 - I can't show my face on Costa Gravan soil, I'm a wanted man.
 - You know what they'd do if they knew I was in Los Angeles?
-- I spilled more bl*od than that Mickey Mouse revolution than any other... (laughing)
+- I spilled more bl\*od than that Mickey Mouse revolution than any other... (laughing)
 - Don't you think you're being a little paranoid?
 - They call me el Angel de la Muerte.
 - The Angel of Death. Please.
@@ -302,7 +302,7 @@
 - Oh. Yes. Oh. Yes.
 - Splendwill see you tonight, then.
 - Hey, somebody say something about a gala?
-- (g*n cocking)
+- (g\*n cocking)
 - Hi. Sorry.
 - Easy there. Uh, sir, this is my brother Chuck.
 - He's your brother?
@@ -329,7 +329,7 @@
 - I know you're nervous, but I also know how the Intersect works when you get nervous.
 - And if you really want to protect them, you're going to have to focus.
 - (sighs)
-- Casey, I got guards with submachine g*n at both the north and west exits.
+- Casey, I got guards with submachine g\*n at both the north and west exits.
 - Casey: Yeah, copy that.
 - Main doors have hidden metal detectors.
 - Someone should go around back, check the service entrance.
@@ -488,9 +488,9 @@
 - Doesn't it feel like anything can happen tonight, honey?
 - Honey. Honey?
 - (groaning)
-- (g*n cocking) CAPTAIN: Casey?
+- (g\*n cocking) CAPTAIN: Casey?
 - (guests murmuring, screaming)
-- (g*n cocking)
+- (g\*n cocking)
 - El Angel de la Muerte.
 - Take him to the holding cell in the basement.
 - Ellie: Oh, my God!
@@ -515,15 +515,15 @@
 - Until the premier makes his announcement, I'm afraid Colonel Casey will have to handle himself.
 - Premier Goya: It's been a long time.
 - (grunts)
-- When are you going to learn you do not have the strength to k*ll me?
+- When are you going to learn you do not have the strength to k\*ll me?
 - I'm here to protect you.
 - The Angel of Death?
 - You're here to protect me?
 - Protect me how?
-- Like in '83-- you put a b*llet in my spleen.
+- Like in '83-- you put a b\*llet in my spleen.
 - Or in '88-- you blew up my dog, Chuy.
 - Sorry about the dog.
-- Obviously, the b*mb was meant for you.
+- Obviously, the b\*mb was meant for you.
 - (laughing)
 - I don't know-- maybe I'm just a humble dictator here.
 - How stupid do you think I am?
@@ -594,7 +594,7 @@
 - No. Trust me.
 - You don't want any part of this, and neither do you. What happened?
 - I thought you didn't want your family getting messed up with the CIA.
-- Okay, look, before you say anything else, and before you go running off and getting yourself sh*t, Devon thinks he n get us into the consulate.
+- Okay, look, before you say anything else, and before you go running off and getting yourself sh\*t, Devon thinks he n get us into the consulate.
 - The premier has invited him to be his own persal physician.
 - Okay, here's the plan...
 - Stop right there.
@@ -607,7 +607,7 @@
 - NSA assassin.
 - (spits)
 - Who are you?
-- The man who's going to k*ll you.
+- The man who's going to k\*ll you.
 - Obviously.
 - Who do you work for?
 - Professional courtesy.
@@ -617,7 +617,7 @@
 - You want me to work in here?
 - Is there a problem?
 - Yeah, he needs to move to a hospital.
-- Why? So you North Americans can try and k*ll him yet again?
+- Why? So you North Americans can try and k\*ll him yet again?
 - Tsk-tsk-tsk. The premier's orders were clear.
 - Acute arrhythmia.
 - This guy is hating life.
@@ -634,14 +634,14 @@
 - I need ten units of insulin.
 - (whispering): Red bottle, yellow label.
 - Assassin: On a personal note, I must say, I've studied your work.
-- Some of your k*ll in the '80s weren't bad.
+- Some of your k\*ll in the '80s weren't bad.
 - (grunts) Unfortunately, in our game, you're only as good as your last...
-- (smacks) k*ll.
+- (smacks) k\*ll.
 - (whispering): So, you come up with a plan yet?
 - Oh, yeah.
 - Yeah, the plan is, Sarah and I are going to sneak out of here and save Casey while you stay here and save the premier.
 - We just got to take care of those two guards there.
-- Those two soldiers with the machine g*n?
+- Those two soldiers with the machine g\*n?
 - You and what army?
 - Uh, that would be Sarah and, uh, her fists.
 - Bring it on, tough guy.
@@ -656,7 +656,7 @@
 - You have no idea.
 - You owe me 15 American cents.
 - (grunts)
-- (g*n)
+- (g\*n)
 - Angel de la Muerte.
 - Let's get out of this stinking banana republic.
 - First, we got to get Awesome.
@@ -669,15 +669,15 @@
 - Devon, look, we've done what we needed to do. Now, it's time to go.
 - Sorry, Chuck. My mission's not over.
 - Casey: You know that man you're trying to save turned his country into a pariah state.
-- Do you have any idea how many people he k*ll?
+- Do you have any idea how many people he k\*ll?
 - You're one to talk.
 - Angel de la Muerte.
 - Chuck: Look, look, he's not here as the Angel of Death right now, he's here to protect your boss; we all are.
-- The real k*ll's down in my cell.
+- The real k\*ll's down in my cell.
 - We found no one.
 - Uh...
 - Can't you see he's bleeding to death? Please!
-- We will sort out who's trying to k*ll who later; right now, we need to get this man to a doctor.
+- We will sort out who's trying to k\*ll who later; right now, we need to get this man to a doctor.
 - He has a doctor.
 - Little busy right now.
 - Not you, him.
@@ -694,7 +694,7 @@
 - Okay, no anesthesia.
 - No anesthesia. That's fine, that's fine.
 - He's a big, tough man. He can deal with the pain.
-- Captain: The b*llet might've grazed his femoral artery. Whatever you do...
+- Captain: The b\*llet might've grazed his femoral artery. Whatever you do...
 - (shushing)
 - Let the doctor work.
 - Nurse?
@@ -706,7 +706,7 @@
 - No!
 - Just as I thought.
 - Captain: Chuck, you've got the hands of a surgeon, bro.
-- Don't think about the g*n.
+- Don't think about the g\*n.
 - He's not your friend. He's your patient.
 - Sarah: Chuck, you can do this.
 - Just relax.
@@ -723,27 +723,27 @@
 - (groaning subsides)
 - (machine beeping) What's wrong?
 - I told you. There's nothing I could do for him here.
-- Nothing short of a bl*od transfusion.
-- I don't even know what bl*od type he is.
+- Nothing short of a bl\*od transfusion.
+- I don't even know what bl\*od type he is.
 - (mumbles): AB negative.
 - What?
 - (grumbles): AB negative.
 - Aah! (spits)
-- His bl*od type's AB negative.
-- What? You learn a lot about a guy when you're trying to k*ll him.
+- His bl\*od type's AB negative.
+- What? You learn a lot about a guy when you're trying to k\*ll him.
 - What else you want to know?
 - His favorite movie's Terms of Endearment.
 - He always showers after lovemaking...
 - Okay, none of that's going to save him now.
-- We need someone with type AB negative bl*od, now. Someone big.
-- Does anyone have type AB negative bl*od?
+- We need someone with type AB negative bl\*od, now. Someone big.
+- Does anyone have type AB negative bl\*od?
 - ÿAlguien aqui tiene sangre tipo AB negativo?
 - Quick! Find someone! Anyone!
 - Hey, what are you doing?
 - Put those back!
 - Give me that!
 - I'm sorry, buddy.
-- You take one drop of bl*od from me, I swear to God, I'll rip off your...
+- You take one drop of bl\*od from me, I swear to God, I'll rip off your...
 - (muffled): No! No! No!
 - (exclaiming, laughing)
 - Hey, Chucky.
@@ -755,17 +755,17 @@
 - Although I do not endorse your methods, you enabled him to make his announcement as planned.
 - Costa Gravas will have its first democratic election.
 - And it wouldn't have been possible without your extraordinary sacrifice.
-- I got sh*t, that's nothing extraordinary.
+- I got sh\*t, that's nothing extraordinary.
 - You don't remember? Huh?
 - Remember what?
-- You stole my bl*od.
-- You stole my bl*od, and you put in a stinking commie despot.
+- You stole my bl\*od.
+- You stole my bl\*od, and you put in a stinking commie despot.
 - Former stinking commie despot. Thank you.
 - Beckman: The premier wanted to thank you personally, Colonel Casey.
 - But this will have to do.
 - Huh?
 - Premier Goya: I wish to thank you on behalf of Costa Gravas and myself.
-- I will never forget that the bl*od of an American patriot flows through my veins.
+- I will never forget that the bl\*od of an American patriot flows through my veins.
 - John Casey, you truly are the Angel of Life.
 - Casey: These are prerevolutionary Costa Gravas double coronas.
 - Oh...
@@ -775,7 +775,7 @@
 - Oh, no way.
 - I think I scratched my espionage itch.
 - Don't get me wrong.
-- Black tie dinners and embassy extractions are k*ll, but... just not worth it.
+- Black tie dinners and embassy extractions are k\*ll, but... just not worth it.
 - What's not?
 - If having a double life means having to give up half of your real life, that's just not how I want to live, bro.
 - ♪ ♪

@@ -294,7 +294,7 @@
 - The Swedish slip. It actually worked.
 - And I didn't have to break my thumbs.
 - What do we do now?
-- Oh, cool. A tiny w*apon stand-off.
+- Oh, cool. A tiny w\*apon stand-off.
 - En garde.
 - [GRUNTING AND GROANING]
 - Oh, hello there.
@@ -391,7 +391,7 @@
 - [SIGHS]
 - You're all grown up.
 - I mean, I know that's obvious... but when I think of you, I still see a gangly little girl... too tall for her age, unsure how she fits into her own skin.
-- Your dad and I... used to take you for drives in his g*n '68 Mustang.
+- Your dad and I... used to take you for drives in his g\*n '68 Mustang.
 - You would sit between us... with your legs curled up. Do you remember?
 - [CHUCKLES]
 - I can't believe I forgot.
@@ -527,7 +527,7 @@
 - Even when you think I'm wrong.
 - Two field agents in action.
 - What a show.
-- [g*n COCKS]
+- [g\*n COCKS]
 - No!
 - Chuck: Tuttle!
 - [GRUNTS]
@@ -588,7 +588,7 @@
 - What did you... ?
 - Sarah: Aah!
 - Tuttle?
-- How are you here? You were... You were sh*t.
+- How are you here? You were... You were sh\*t.
 - What are you doing here?
 - There is no Tuttle, Charles.
 - My name is Alexei Volkoff.
@@ -617,7 +617,7 @@
 - And you.
 - When you locked up Frost, it became clear I had to step in... to find Orion's little base here and destroy all his intelligence.
 - Along with all the people... who know about it, of course.
-- [b*mb TICKING]
+- [b\*mb TICKING]
 - Thank you for leading us here, Charles.
 - I couldn't have done it without you.
 - I believed in you.

@@ -136,7 +136,7 @@
 - Well, probably better you don't know.
 - Whatever. But you know the going-away party I'm having for me and Ellie tomorrow night?
 - Yes, sure.
-- No matter what she says, it will k*ll her if Chuck's not there to say good-bye, so make it happen.
+- No matter what she says, it will k\*ll her if Chuck's not there to say good-bye, so make it happen.
 - Somebody say Bat Mitzvah?
 - Hey.
 - No. Party.
@@ -168,13 +168,13 @@
 - No, you can get it. You can get it.
 - I'll get fresh air right here.
 - Good. You know, I'll just open the window, you know.
-- There's nothing like some nice Swiss air to get the bl*od pumping.
+- There's nothing like some nice Swiss air to get the bl\*od pumping.
 - You know what I mean? Oh! Oh!
 - Oh, that's cold.
 - That is brisk, but refreshing.
 - Ah, I'll be right back.
 - Juan Arnaldo.
-- He's a Basque t*rror1st.
+- He's a Basque t\*rror1st.
 - What on earth are they planning?
 - Oh, damn it.
 - Names, dates.
@@ -202,15 +202,15 @@
 - What?
 - You've been faking it the whole time?
 - No, no, no, not that.
-- I spotted a Basque t*rror1st on board.
+- I spotted a Basque t\*rror1st on board.
 - Juan... Diego Arnaldo!
 - I know, I flashed on him.
 - He has a whole list of names in his room.
 - Yeah, all of his contacts from the Euskadi Ta Askatasuna.
-- Oh, my God, you even make t*rror1st groups sound sexy.
+- Oh, my God, you even make t\*rror1st groups sound sexy.
 - So, you were the one I was hiding from.
 - You were the one in the bathroom?
-- You know, Juan Diego Arnaldo is a t*rror1st.
+- You know, Juan Diego Arnaldo is a t\*rror1st.
 - After all, it would be irresponsible...
 - Even criminal to turn our backs on this.
 - One last mission before we quit?
@@ -403,7 +403,7 @@
 - Lovely scarf.
 - Whoa!
 - Chuck, get off me.
-- t*rror1st, huh?
+- t\*rror1st, huh?
 - I would have thought two spies could come up with a better excuse than that.
 - Casey, he's... he's here, okay?
 - He's in the bathroom, I swear to you.
@@ -417,8 +417,8 @@
 - That was awesome!
 - Did you see that hit? Guys!
 - Oh. Oh.
-- If you're going to k*ll me, just do it.
-- We're not going to k*ll you.
+- If you're going to k\*ll me, just do it.
+- We're not going to k\*ll you.
 - Yeah, we're CIA, dirtbag.
 - Morgan, probably not the best idea to share that information with just anyone.
 - If you're CIA, then why did you take out the Interpol agents on the train?
@@ -454,8 +454,8 @@
 - Well, yes, technically...
 - Your part in this little impromptu mission is over.
 - I'll arrange for Arnaldo to be picked up by a different Interpol team.
-- Try not to physically as*ault them.
-- General, just so you know, we didn't hit them or as*ault them in any way.
+- Try not to physically as\*ault them.
+- General, just so you know, we didn't hit them or as\*ault them in any way.
 - There was no physical altercation.
 - We just dosed them with pharmaceutical-grade narcotics.
 - Agent Bartowski...
@@ -471,7 +471,7 @@
 - General, General, please know I'm not hanging up on you right now, it's...
 - Well?
 - Well, we get to hang around here for a little bit longer, so... vaca.
-- It's like the butter sh*t directly from a Swiss cow into my mouth.
+- It's like the butter sh\*t directly from a Swiss cow into my mouth.
 - And yet... still can't enjoy it.
 - I can't believe you're just quitting.
 - Walking away from everything.
@@ -537,7 +537,7 @@
 ♪ Hold me like you'll never let me go ♪
 ♪ 'Cause I'm leaving on a jet plane ♪
 - Well, here we go.
-- * Don't know *
+- \* Don't know \*
 - ♪ When I'll be back again ♪
 ♪ Ooh ♪
 - I got to say, it's really weird leaving.
@@ -641,13 +641,13 @@
 - I thought that's what you wanted.
 - I don't want you to choose me over sometng that you want for yourself.
 - I want you. I want us.
-- Do you think if we went back, and we told Beckman the honest-to-god absolute truth, do you think we'd really have a sh*t at having it all?
+- Do you think if we went back, and we told Beckman the honest-to-god absolute truth, do you think we'd really have a sh\*t at having it all?
 - Chuck Bartowski, do you agree to not quit the spy life and be with me?
 - I do.
 - Sarah Walker, do you agree to not quit the spy life and be with me?
 - I do.
 - Good work, Colonel Casey.
-- Because of your efforts, a group of Basque t*rrorists were captured.
+- Because of your efforts, a group of Basque t\*rrorists were captured.
 - Thank you, General.
 - It wasn't just me.
 - Grimes here was resourceful and quick to action when necessary.

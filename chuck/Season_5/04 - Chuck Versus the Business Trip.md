@@ -33,10 +33,10 @@
 - Chuck: So we just need to get it out of your head, let the CIA know it's over, and you'll be safe.
 - And a moron again.
 - Is Ellie working on something?
-- Sarah: No, we, uh... called in the big g*n.
+- Sarah: No, we, uh... called in the big g\*n.
 - (video games trilling)
 - So shocked you people are running out of money.
-- m*ssile Command is a part of our process.
+- m\*ssile Command is a part of our process.
 - All right, let's clean up this mess.
 - Are you ready, Mr. Grimes?
 - Yes, ma'am. Let's do it.
@@ -141,7 +141,7 @@
 - He's already ousted us from the Agency.
 - What's his problem? He's not done with us.
 - Perhaps we should...
-- Good afternoon. I hear we're having the most unfortunate little k*ll order mix-up.
+- Good afternoon. I hear we're having the most unfortunate little k\*ll order mix-up.
 - Don't you ever interrupt my feed again, Decker.
 - I am still your superior.
 - Decker, what's going on?
@@ -158,7 +158,7 @@
 - Just the name Morgan Grimes. That should do it.
 - That's all he needs.
 - The Viper's never had an uncompleted mission.
-- Decker: Why don't I leave you all with a little look-see at some of his famous k*ll?
+- Decker: Why don't I leave you all with a little look-see at some of his famous k\*ll?
 - So many dead people.
 - I'm gonna be down here for the rest of my life.
 - And I have all these broken relationships I need to fix upstairs.
@@ -283,7 +283,7 @@ Original Air Date on November 18, 2011
 - I'm Morgan Grimes.
 - (computer beeps twice)
 - Oh, look at all these nice people.
-- Wonder which one is trying to k*ll me.
+- Wonder which one is trying to k\*ll me.
 - (microphone feedback squeals)
 - Hello, Buy Most-ers!
 - (crowd cheering)
@@ -302,13 +302,13 @@ Original Air Date on November 18, 2011
 - Remember, I need pulse bio-feedback.
 - The finger-pads don't give us lie detection unless you're actually touching the subject.
 - Got it. Touch the subject, see if they're lying.
-- If they are, perhaps they want to k*ll Chuck.
+- If they are, perhaps they want to k\*ll Chuck.
 - And if they aren't, perhaps I grab another crab-puff.
 - Okay, stay alert.
-- All we know is that the Viper k*ll at close range.
+- All we know is that the Viper k\*ll at close range.
 - That's why he's so accurate, but that only means no sniping.
 - He could use poison, so just watch your food and drink intake, okay?
-- Okay, he has strangled, kn*fe, drowned, and there is a pool here.
+- Okay, he has strangled, kn\*fe, drowned, and there is a pool here.
 - So, you know?
 - Got it. Lots of ways to die today.
 - Okay. Once we identify the target, I'll move in and neutralize him.
@@ -328,9 +328,9 @@ Original Air Date on November 18, 2011
 - You're looking a little flushed there.
 - You running a fever?
 - No. Always get red after my ninth or tenth.
-- Irish bl*od, you know?
+- Irish bl\*od, you know?
 - Just a race to see if our noses or our hearts will explode first!
-- (mimics expl*si*n)
+- (mimics expl\*si\*n)
 - (laughs) Ah!
 - Either way, though, we're dead by 50!
 - Mm. (laughing)
@@ -339,7 +339,7 @@ Original Air Date on November 18, 2011
 - Yep, true, too.
 - You guys are too much. I'm gonna take off.
 - All of you shush, shush, shush, shush, shush!
-- Aw, man, Crazy Bob, you're k*ll me!
+- Aw, man, Crazy Bob, you're k\*ll me!
 - Literally, this is terrible for my liver condition.
 - Hey, there you go.
 - You're the new guy; got you a special one.
@@ -350,7 +350,7 @@ Original Air Date on November 18, 2011
 - Man: Oh, he took it down!
 - He took it... (sputtering)
 - Oh, you are welcome.
-- Crazy Bob's shots'll k*ll ya.
+- Crazy Bob's shots'll k\*ll ya.
 - (laughing)
 - You're a lifesaver.
 - Mm!
@@ -548,9 +548,9 @@ Original Air Date on November 18, 2011
 - Which he's being very stubborn about doing, I might add.
 - Go ahead, nod your head. Do it.
 - Yep, hit's off.
-- No more k*ll.
+- No more k\*ll.
 - This is not how it's done. Hmm?
-- Sarah: First, we have to get Decker to rescind the k*ll order, but we'll handle that, Morgan, so, you know, I think you're free to go.
+- Sarah: First, we have to get Decker to rescind the k\*ll order, but we'll handle that, Morgan, so, you know, I think you're free to go.
 - Hmm. And if you go anywhere near Alex, you're going to be on another hit list. Hmm?
 - (muttering)
 - (groans)
@@ -577,7 +577,7 @@ Original Air Date on November 18, 2011
 - Maybe we can have some normal friends, too.
 - Okay. Well, I'm going to go have a drink with a friend like a real live person.
 - Have a great time. Thanks.
-- Jeff, you have shown incredible improvement in motor k*ll, language ability, reflexes, memory.
+- Jeff, you have shown incredible improvement in motor k\*ll, language ability, reflexes, memory.
 - It's like you're an actual person now.
 - Thank you.
 - I have started to see a lot of things more clearly.
@@ -625,7 +625,7 @@ Original Air Date on November 18, 2011
 - I'm Jane. who wanted to hang out with you immediately post-mission.
 - A new friend who was as good as I was at passing a lie detector.
 - Chuck: And we might wonder if the Viper didn't use a decoy, like we did,  to make Morgan feel safe and come out of hiding.
-- And we might think that getting rid of his guards by, say, planting a car b*mb, might be a really great way to go.
+- And we might think that getting rid of his guards by, say, planting a car b\*mb, might be a really great way to go.
 - (beeping)
 - Okay, here's a spy thought: Don't move your foot.
 - Okay.
@@ -663,7 +663,7 @@ Original Air Date on November 18, 2011
 - (clamoring, alarm continues ringing)
 - (alarm beeping)
 - (beeping) Yep. Yep.
-- That's-That's a b*mb.
+- That's-That's a b\*mb.
 - (beeping)
 - And it's a nice one.
 - Okay.
@@ -716,8 +716,8 @@ Original Air Date on November 18, 2011
 - God, I can't believe I trusted Jane to be who she said she was.
 - I must have been really desperate for a normal friend.
 - Oh, hey, hey.
-- Don't-Don't b*at yourself up.
-- And don't move your foot, really, because this is a very nasty b*mb.
+- Don't-Don't b\*at yourself up.
+- And don't move your foot, really, because this is a very nasty b\*mb.
 - Up with the leg. Up with the leg.
 - Okay.
 - Up with the leg. Keep that leg!
@@ -741,17 +741,17 @@ Original Air Date on November 18, 2011
 - I-I feel, I feel really badly.
 - You've been so open and honest and sweet with me, and I'm so excited to have a new friend.
 - Yeah?
-- (g*n cocks)
+- (g\*n cocks)
 - But I've been lying to you.
 - About a couple of things.
-- (g*n cocks) I'm a spy.
+- (g\*n cocks) I'm a spy.
 - Boy, it feels good to say that to a real friend.
 - By the way, you're amazing at what you do.
 - I really trusted you.
 - And I don't do that very often.
 - Well, you shouldn't.
 - Wait, wait, stop!
-- I have your b*mb.
+- I have your b\*mb.
 - Which means it's disarmed.
 - Bye.
 - Thanks, honey.
@@ -813,13 +813,13 @@ Original Air Date on November 18, 2011
 - Obviously. Which means...
 - Neutralizing everyone who knows who I am.
 - Walker, Grimes, Casey, Bartowski, Casey's daughter.
-- (g*n cocks)
+- (g\*n cocks)
 - You have approval on everyone but Bartowski and Walker.
 - Now get it done.
-- (silenced g*n)
+- (silenced g\*n)
 - John Casey.
 - Your life is over if you...
-- (silenced g*n)
+- (silenced g\*n)
 - So, tell me about your day.
 - Fun parts only, please.
 - Mm. Fun parts only.
@@ -862,7 +862,7 @@ Original Air Date on November 18, 2011
 - One more "Mommy and Me" class, I would've lost my mind.
 - Hey.
 - Hey.
-- I just wanted to tell you that you could probably, uh, ixnay on the whole k*ll me thing, because I'm not gonna bother Alex anymore.
+- I just wanted to tell you that you could probably, uh, ixnay on the whole k\*ll me thing, because I'm not gonna bother Alex anymore.
 - Mm.
 - You should move back in.
 - Really?
@@ -880,4 +880,4 @@ Original Air Date on November 18, 2011
 - Decker, what is this?
 - We're looking for John Casey.
 - Whoa, whoa, whoa, whoa, whoa, whoa.
-- Decker: John Casey! You're under arrest. For m*rder.
+- Decker: John Casey! You're under arrest. For m\*rder.

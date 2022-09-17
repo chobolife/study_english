@@ -126,13 +126,13 @@
 - Those people are from my past, a past you have no business poking around in.
 - Well, I'm sorry, I was just trying to do my job.
 - I thought you'd be happy I used a little initiative.
-- Uh, don't k*ll the messenger.
+- Uh, don't k\*ll the messenger.
 - Not the kid's fault you went to high school with a treasonous scumbag.
 - Good morning, boys and girl.
 - First matter of business: Mark Ratner.
-- He's an engineer at Winthrop-Keller Aeronautics, has clearance to extremely sensitive plans for future w*apon technology.
+- He's an engineer at Winthrop-Keller Aeronautics, has clearance to extremely sensitive plans for future w\*apon technology.
 - Picture the next generation of F-22 Raptors.
-- Essentially, a b*mb.
+- Essentially, a b\*mb.
 - This technology has been leaked.
 - Chuck's instincts were good.
 - Your mission is to go to dinner with the Ratners, see if Chuck flashes off of anything.
@@ -278,7 +278,7 @@
 - If you promise not to filet her before I get back.
 - I can't promise anything.
 - Okay.
-- Took a kn*fe k*ll course at the culinary academy.
+- Took a kn\*fe k\*ll course at the culinary academy.
 - Is that to further your yogurt career, or are you angling towards something bigger?
 - Say, carving station at Lawry's.
 - So, what you know?
@@ -297,7 +297,7 @@
 - Uh, you know, it's a self-defense thing I took at the Y.
 - It was pretty comprehensive.
 - Are you nuts?
-- These guys are k*ll!
+- These guys are k\*ll!
 - Bullies are like bears, you know?
 - They're more afraid of you than you are of them.
 - Or is that bees?
@@ -330,7 +330,7 @@
 - Man, we really screwed you on the tip.
 - You want into witness protection, you're gonna have to scratch our back, too.
 - What do you mean?
-- Those two g*ons from last night, they don't report back to their boss, he's gonna want a follow-up meet.
+- Those two g\*ons from last night, they don't report back to their boss, he's gonna want a follow-up meet.
 - We're gonna cover that drop.
 - He contact you yet?
 - I'm sorry, but I prefer to deal only with Special Agent Carmichael.
@@ -488,7 +488,7 @@
 - What'd you do? Attend Bad Guy High?
 - What are you talking about?
 - Well, Duffy has some kind of connection to the Russian mob.
-- I'm pretty sure he's the guy that Ratner is supposed to connect with to hand off the b*mb plans.
+- I'm pretty sure he's the guy that Ratner is supposed to connect with to hand off the b\*mb plans.
 - Makes sense. He's always been a jerk.
 - Okay, you go catch Ratner up, have him set up the meet.
 - I'll tip off the DJ.
@@ -510,7 +510,7 @@
 - My bosses at Langley have informed me that that's the guy who's been texting you.
 - Our target is Dick Duffy?
 - Of course!
-- The guy who terrorizes me in high school is now going to terrorize the entire world with my b*mb.
+- The guy who terrorizes me in high school is now going to terrorize the entire world with my b\*mb.
 - You're gonna be just fine.
 - You have my personal guarantee.
 - Uh, excuse me, Dick?
@@ -521,7 +521,7 @@
 - Meet me outside in five minutes.
 - Welcome class of '98!
 - Go Cougars.
-- Never should have stolen the b*mb plans.
+- Never should have stolen the b\*mb plans.
 - I should have gone right to you guys.
 - But they threatened my wife.
 - I wasn't thinking straight.
@@ -555,7 +555,7 @@
 - My husband spilled everything to the Feds.
 - That's him and his handler.
 - I overheard them talking. He's some CIA bad ass named Carmichael.
-- k*ll 'em both.
+- k\*ll 'em both.
 - Give him to me.
 - Find your own freakin' fish!
 - GIVE ME THAT!- YOU'RE A FOOL!
@@ -709,7 +709,7 @@
 - No, thanks.
 - I don't need to know more, not about who you were, 'cause as much as you don't think so, I know who you are.
 - A girl I'd like to share a cheeseburger with.
-- Should I get a kn*fe? I'll get a kn*fe.
+- Should I get a kn\*fe? I'll get a kn\*fe.
 - That won't be necessary.
 - That's awesome and a little disturbing.
 - A LITTLE BIT MESSY.

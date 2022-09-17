@@ -642,7 +642,7 @@
 - Okay, listen, listen, the diamond.
 - The diamond that we stole from the wooly mammoth-- it is not a drug diamond, okay?
 - I repeat: it is not a drug diamond.
-- It belongs to an Afghani t*rror1st group.
+- It belongs to an Afghani t\*rror1st group.
 - Look, I could get into a lot more details, but the point: it is way more dangerous than we thought.
 - Chuck.
 - Find Carina and tell her to bring me the diamond.
@@ -693,7 +693,7 @@
 - I thought you and Sarah were on the outs.
 - I made a mistake.
 - I'm still getting used to how you guys need to lie about who you are.
-- I'm feeling like a kn*fe fight.
+- I'm feeling like a kn\*fe fight.
 - You analysts don't know what it's like for us field agents, but it's our job.
 - We shed identities like people shed clothes.
 - In your case, that's quite often.
@@ -701,7 +701,7 @@
 - After a while, it doesn't even matter.
 - So you don't let anyone know who you really are?
 - Can't.
-- Might have to leave them in five minutes, or sh**t them in the head.
+- Might have to leave them in five minutes, or sh\*\*t them in the head.
 - Trust me, a spy doesn't want you to know anything about them, that's real.
 - No matter who you are.
 - You carry the diamond; I'll act as intermediary.
@@ -748,7 +748,7 @@
 - What?
 - Capturing the Nadan-I-Noor Diamond has dissolved Peyman Alahi's credibility.
 - His network has fallen apart.
-- We were also able to thwart the purchase of $26 million of surface-to-air m*ssile the Afghani t*rror1st group was planning on buying.
+- We were also able to thwart the purchase of $26 million of surface-to-air m\*ssile the Afghani t\*rror1st group was planning on buying.
 - No diamond, no cash, no sale.
 - Job well done, people.
 - You didn't?

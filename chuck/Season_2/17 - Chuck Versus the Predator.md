@@ -128,7 +128,7 @@
 - I-I think.
 - I don't... We didn't really nail down the details.
 - I want that computer under lock and key.
-- Orion's computers are nextgen, capable of overriding military defenses, even hijacking computerized w*apon.
+- Orion's computers are nextgen, capable of overriding military defenses, even hijacking computerized w\*apon.
 - God help us if it falls into the wrong hands.
 - Delivery for Charles I. Bartowski.
 - What is it?
@@ -196,7 +196,7 @@
 - Drone was on an armed targeting run.
 - Is there a target? Please don't say Buy More.
 - Orion sent you a computer all right.
-- It's inside a Predator drone targeted to k*ll you.
+- It's inside a Predator drone targeted to k\*ll you.
 - How thoughtful.
 - Why would he... There's no time.
 - We got to get everybody out of the store.
@@ -271,7 +271,7 @@
 - Emmett, I want you to stand guard tonight.
 - Nobody gets close to this laptop, got it?
 - Affirmative, Michael.
-- Barclay and the Beverly Hills boys will be g*n for it.
+- Barclay and the Beverly Hills boys will be g\*n for it.
 - I want that computer back, Jeffrey.
 - It's calling me, and I must have it.
 - An after-hours job.
@@ -302,13 +302,13 @@
 - Okay, what's the plan?
 - You got us into this mess, why don't you come up with the plan for once.
 - Okay. All right.
-- You two distract Emmett with your super spy k*ll while I go hit Big Mike's office.
+- You two distract Emmett with your super spy k\*ll while I go hit Big Mike's office.
 - He keeps the combination of the safe in his desk.
 - Keeps the combination in his office?
 - It's a Buy More, Casey. Relax.
 - Oh, no, no, no, no.
-- There are no g*n in my plan.
-- Okay? As annoying as Emmett is, you cannot sh**t, tranq, or karate chop him in any way.
+- There are no g\*n in my plan.
+- Okay? As annoying as Emmett is, you cannot sh\*\*t, tranq, or karate chop him in any way.
 - You put him in charge.
 - All right.
 - Let's go.
@@ -373,17 +373,17 @@
 - I had to that.
 - Guys.
 - You get one chance.
-- Drop your g*n.
-- Um, sir, they don't have any g*n.
+- Drop your g\*n.
+- Um, sir, they don't have any g\*n.
 - I personally put this mission together, and I forbade them from packing.
 - Why would you do that?
 - I don't know.
 - I just, you know--
-- I think that g*n make things too easy, and I like my spies to be tough.
-- Look, you're not gonna sh**t anyone, right?
+- I think that g\*n make things too easy, and I like my spies to be tough.
+- Look, you're not gonna sh\*\*t anyone, right?
 - It would be unprofessional not to.
-- You had a g*n? !
-- I always have a g*n.
+- You had a g\*n? !
+- I always have a g\*n.
 - Don't you dare move.
 - Guys...
 - I-I really didn't need to see that.
@@ -665,7 +665,7 @@
 - Take him to the roof. Chopper's on the way.
 - On behalf of FULCRUM, I'd like to thank you, Agent Carmichael.
 - I wish I could give you a proper reward.
-- But, fortunately, I have to sh**t you.
+- But, fortunately, I have to sh\*\*t you.
 - It would be unprofessional not to.
 - Chopper is here.
 - Move out now. Now!
@@ -700,7 +700,7 @@
 - But playtime is over.
 - Chuck, I hesitate to say this.
 - Please, please, hesitate.
-- We are in the midst of a secret w*r with FULCRUM.
+- We are in the midst of a secret w\*r with FULCRUM.
 - And I believe the outcome of this fight will rest squarely on your shoulders.
 - Oy.
 - No, listen to the man.
@@ -775,7 +775,7 @@
 - I know.
 - Well, I-I better go.
 - Yeah.
-- Yeah, I'm, uh, I'm a little b*at.
+- Yeah, I'm, uh, I'm a little b\*at.
 - Okay.
 - Is Walker on board with this mission, Major Casey?
 - Yes, ma'am, 100%.

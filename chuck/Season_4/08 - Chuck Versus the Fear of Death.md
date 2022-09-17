@@ -101,7 +101,7 @@
 - Morgan.
 - No, I'm worried about the guy, okay?
 - I was talking to Alex. He went over to move furniture.
-- He stood there, staring at her fish t*nk, muttering about an itchy trigger finger.
+- He stood there, staring at her fish t\*nk, muttering about an itchy trigger finger.
 - I need the Intersect back. I get it.
 - He gets it.
 - Okay.
@@ -144,7 +144,7 @@
 - Why?
 - That was the shock for a medium.
 - I need to know what I'm dealing with.
-- Oh, so if it's a boulder... are you gonna hit him with a t*nk?
+- Oh, so if it's a boulder... are you gonna hit him with a t\*nk?
 - I have to do this.
 - We are digging deep into my mind.
 - It looks like he's hitting you.
@@ -181,7 +181,7 @@
 - No Buy More employee is that sophisticated.
 - [SPEAKING IN ITALIAN]
 - Sarah: Oh.
-- God, you got b*at to a pulp.
+- God, you got b\*at to a pulp.
 - Yeah, well, neuroscience hurts.
 - You know, I don't know about Agent Rye's method.
 - He seems a little unorthodox.
@@ -194,7 +194,7 @@
 - Oh. Ahem.
 - Oh.
 - Oh, yeah.
-- I should get b*at up more often.
+- I should get b\*at up more often.
 - Chuck, this, um, treatment, the experiments... promise me you're not doing it for me or us.
 - No. No, I'm doing it for the team.
 - No, I just...
@@ -255,14 +255,14 @@
 - Right, Chuck?
 - Whatever it takes to get the Intersect back.
 - Beckman: Chuck and Agent Rye will be going to a chalet in Gstaad, Switzerland... for the auction of a 100-carat diamond... the Cane Volto.
-- Our intelligence indicates leaders of criminal and t*rror1st organizations... plan to attend the auction.
+- Our intelligence indicates leaders of criminal and t\*rror1st organizations... plan to attend the auction.
 - This stone is more than it seems.
-- Method for money laundering, payment for illegal w*apon.
+- Method for money laundering, payment for illegal w\*apon.
 - Yeah, we've done this before.
 - Thanks.
 - Ooh.
 - Chuck, your job is to win the auction and bring the stone back to the U. S.
-- A room full of underworld k*ll. Sounds great, right?
+- A room full of underworld k\*ll. Sounds great, right?
 - Casey and I will be there as a backup?
 - No.
 - No. With them in Gstaad, Chuck will never reach maximum fear.
@@ -301,7 +301,7 @@
 - Don't worry. Everything's gonna be just fine. I'll talk to you soon, okay?
 - Hey, are you sure I don't need a disguise?
 - Hmm.
-- Someone could recognize you as CIA and come after you with a kn*fe.
+- Someone could recognize you as CIA and come after you with a kn\*fe.
 - Ha, ha. That would be great.
 - Auctioneer: Ladies and gentlemen, if you'll take your seats, we will begin the auction.
 - Thank you.
@@ -317,7 +317,7 @@
 - We've got underworld players from Russia, Serbia, Montenegro.
 - Wow, you really know your Euro baddies, don't you?
 - Focus. When you win the bidding, your competition is not gonna be happy.
-- If you're lucky, they'll follow you and try and k*ll you.
+- If you're lucky, they'll follow you and try and k\*ll you.
 - Fingers crossed.
 - Good luck.
 - No, wait.
@@ -334,12 +334,12 @@
 - Do I see? Fifty.
 - Sixty?
 - Sixty million Swiss francs?
-- MAN [IN RUSSIAN ACCENT]: Bid again, get b*llet in back.
+- MAN [IN RUSSIAN ACCENT]: Bid again, get b\*llet in back.
 - Auctioneer: Holding at 50 million? Fifty million going once?
 - Nice try, Rye, but I'm not falling for it.
 - Going twice.
 - Sixty million Swiss francs.
-- I'm not afraid of your phony Russian accent or your finger g*n, okay?
+- I'm not afraid of your phony Russian accent or your finger g\*n, okay?
 - Man: Bid again and die.
 - Do I hear 65?
 - Ooh, let's get crazy. Eighty million Swiss francs.
@@ -356,7 +356,7 @@
 - You absolutely blew it. And no flash, huh?
 - Have you had this chocolate?
 - Yes, it's so milky.
-- So good. Thought that Russian would get your bl*od pumping.
+- So good. Thought that Russian would get your bl\*od pumping.
 - I thought it was you.
 - The Russian? It was such a horrible accent. It sounded so phony.
 - What kind of a spy am I? I can't even be scared properly.
@@ -482,7 +482,7 @@
 - Hey, now! Wow, ha-ha.
 - You have to stop that. I have a bad ticker.
 - This is absolutely the last straw.
-- They put a webcam in my locker, bugged my price g*n.
+- They put a webcam in my locker, bugged my price g\*n.
 - The psychotic one follows me, narrating, "The tracking of the Greta marmot. "
 - What does that even mean?
 - Which one do you think is the psychotic one? Doesn't matter.
@@ -519,7 +519,7 @@
 - We're talking about real danger now.
 - I can only handle fake danger?
 - I know Intersect is important but none of Rye's therapies have worked.
-- The microdot contains highly sensitive information the wrong people will k*ll for.
+- The microdot contains highly sensitive information the wrong people will k\*ll for.
 - I can take care of these people without you holding my hand.
 - Why does it make sense to risk your life?
 - It's what I do, I'm a spy.
@@ -535,7 +535,7 @@
 - No, no, no.
 - ... chipotle sauce and banana peppers...
 - What are you doing?
-- Lf she doesn't k*ll you, I will. ... and jalapeños... has been found with your name on it.
+- Lf she doesn't k\*ll you, I will. ... and jalapeños... has been found with your name on it.
 - So come to the cage.
 - Now we wait.
 - [LESTER LAUGHS]
@@ -552,7 +552,7 @@
 - Who are you, Greta? And what do you know?
 - [GASPS]
 - Okay, there it is.
-- There it is. We are prepared for the kn*fe eventuality.
+- There it is. We are prepared for the kn\*fe eventuality.
 - Jeffrey, please disarm her.
 - No.
 - Whoa, mama.
@@ -650,7 +650,7 @@
 - Scared?
 - Me too.
 - [SIGHS]
-- Drop your w*apon.
+- Drop your w\*apon.
 - No tether, no Sarah.
 - We're in it up to our chins.
 - How we feeling, Chuck?
@@ -681,14 +681,14 @@
 - I'd rather love Sarah than have the Intersect. Help me up.
 - The CIA didn't send me out here to affirm your love, Bartowski.
 - You need the Intersect up and running. Now, get that rock off your chest... and be a real spy like me.
-- Did I just get sh*t?
+- Did I just get sh\*t?
 - No, no, no.
 - I certainly did.
 - Grab my hand or die.
 - Come on.
 - [PHONE RINGS]
 - What's going on? Where are you?
-- Pursue Agent Carmichael and we will k*ll him.
+- Pursue Agent Carmichael and we will k\*ll him.
 - Slowly.
 - There will be no further warning.
 - No. Please wait.

@@ -69,7 +69,7 @@
 - How do I know that I can... trust you?
 - You don't, but I want out, and you want me out, so let's... make a deal.
 - I can't believe we made this deal.
-- If you run or double-cross us, your deal is void. Plus, as an added bonus, she'll sh**t you.
+- If you run or double-cross us, your deal is void. Plus, as an added bonus, she'll sh\*\*t you.
 - Chuck's dad- where is he?
 - I don't know exactly, but I do know someone who might know where they're holding him.
 - Who? My Uncle Bernie.
@@ -123,7 +123,7 @@
 - This could be him.
 - Bartowski, this guy's a madman.
 - His codename's "The Carnivore. "
-- Seems he's got a real appetite for bl*od.
+- Seems he's got a real appetite for bl\*od.
 - Great.
 - Hey, Bernie, how are you? !
 - Great, Wally.
@@ -188,7 +188,7 @@
 - They're having a sit down with, uh, Uncle Bernie.
 - And if I know him, Chuck is dead meat by now.
 - Casey, Sarah, third floor!We're in trouble!
-- I don't know if he wants to k*ll me or eat me!
+- I don't know if he wants to k\*ll me or eat me!
 - Is the bathroom upstairs, I hope?
 - Excuse me. Oh, uh...
 - I have to... we had a very long drive.
@@ -198,16 +198,16 @@
 - Window!
 - Jill!
 - Bernie, please don't do this.
-- You can't sh**t us because the whole family will hear it.
+- You can't sh\*\*t us because the whole family will hear it.
 - You're right; I can't.
-- But I can b*at you to death.
+- But I can b\*at you to death.
 - I was really hoping for a third option that did not include death.
 - Chuck, are you okay? Yeah.
 - Congratulations, Bartowski.
-- It's your first confirmed k*ll.
-- k*ll? No!
+- It's your first confirmed k\*ll.
+- k\*ll? No!
 - No, no, no, no.
-- I didn't k*ll anybody, okay?
+- I didn't k\*ll anybody, okay?
 - He just died; it was an accident.
 - Well, maybe he had a heart attack.
 - What do you call your move, anyway?
@@ -215,7 +215,7 @@
 - The girlie pose I saw you in.
 - What do you call that? The Morgan.
 - The Morgan?
-- He invented it in high school when girls were b*at him up.
+- He invented it in high school when girls were b\*at him up.
 - You kind of duck a little bit, protect the important...
 - You know, your face and your...
 - What are we gonna do? !
@@ -231,7 +231,7 @@
 - Bye! See ya! Nice to meet you!
 - Thanks!
 - We'll take care of Bernie.
-- Way to go, k*ll.
+- Way to go, k\*ll.
 - You just offed the only person who knows where your dad is Oh, my God, oh, my God!
 - Wow, Morgan.
 - They look great.
@@ -271,7 +271,7 @@
 - She's a FULCRUM agent.
 - Exactly! That's exactly why we need her.
 - She knows FULCRUM; their procedures and secrets.
-- Look, I know she tried to k*ll you, and I'm sorry about that, but she is the best chance I have at rescuing my father. He's out there somewhere and God only knows what's happening to him.
+- Look, I know she tried to k\*ll you, and I'm sorry about that, but she is the best chance I have at rescuing my father. He's out there somewhere and God only knows what's happening to him.
 - Chuck, you have to realize that there are some people that you just cannot trust.
 - Sarah...
 - I already know that.
@@ -396,7 +396,7 @@
 - This may look like a boring office building, but it's run by FULCRUM.
 - Casey, she's right, these are not pencil pushers.
 - These are FULCRUM assassins.
-- Relax, k*ll.
+- Relax, k\*ll.
 - The going gets rough, you can always deploy The Morgan.
 - Chuck, we've tapped into the security feed.
 - I'm watching your every move. You're going to be safe.
@@ -452,10 +452,10 @@
 - Please.
 - Listen.
 - Emmett's a good worker.
-- Thanks to Emmett, I can fish three times a week and the store never misses a b*at.
+- Thanks to Emmett, I can fish three times a week and the store never misses a b\*at.
 - In fact, I'm-I'm gonna take the rest of the day off, do a little fishing this afternoon. Okay.
 - I came down here to evaluate Big Mike and he's off fishing?
-- Well, Emmett, you've been g*n for Mike's job all year.
+- Well, Emmett, you've been g\*n for Mike's job all year.
 - It's yours.
 - Good luck... store manager.
 - Thank you.
@@ -511,7 +511,7 @@
 - Security breech.
 - Security breech.
 - Watch him.
-- He tries to escape, sh**t him.
+- He tries to escape, sh\*\*t him.
 - Guys, look, honestly, I'm not going to try and escape.
 - Scout's honor.
 - CIA intrusion- get everyone out.
@@ -520,7 +520,7 @@
 - Where's Sarah?
 - She came to rescue you, got pinned down by some FULCRUM agents.
 - Okay... let's go get my dad.
-- Your test-taking k*ll won't do any good out there.
+- Your test-taking k\*ll won't do any good out there.
 - Get on the computer.
 - Find out which room he's in.
 - Jill, which office is Chuck in?
@@ -534,7 +534,7 @@
 - Get away from that computer now.
 - I just want my father back.
 - Good news, bad news, Charles.
-- The good news is that your father is too valuable for us to k*ll.
+- The good news is that your father is too valuable for us to k\*ll.
 - The bad news?
 - You're not.
 - Now, step away from the...
@@ -568,8 +568,8 @@
 - Jill's gone.
 - What happened? Well, he attacked me.
 - I did The Morgan, and he flew out the window.
-- Two k*ll in two days, Chuck.
-- Wow, that Morgan move is real k*ll.
+- Two k\*ll in two days, Chuck.
+- Wow, that Morgan move is real k\*ll.
 - Dad!
 - We're too late.
 - I'm never going to find him, am I?
@@ -596,7 +596,7 @@
 - But, Jill, look, you're going to be all alone out there.
 - No friends, no money, nothing.
 - This is worth a lot.
-- Casey's probably going to k*ll me.
+- Casey's probably going to k\*ll me.
 - I always dreamt of giving you a ring, Jill... just not like this.
 - You're sure you can trust them, right?
 - Go Welcome back to gen pop, Michael.

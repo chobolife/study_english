@@ -56,7 +56,7 @@
 - Uh...
 - You just hate saying goodbye like a normal person, don't you?
 - Okay, Chuck, I'm in position.
-- [g*n COCKS]
+- [g\*n COCKS]
 - And who are you?
 - Wow.
 - I didn't even hear a twig snap.
@@ -77,7 +77,7 @@
 - No, no, no, technically not just someone, okay?
 - Mom, this is my girlfriend, Sarah.
 - Sarah, this is my mom, Mary.
-- I don't know how to say this exactly, but please don't k*ll each other.
+- I don't know how to say this exactly, but please don't k\*ll each other.
 - Great, great, see? I can see the connection already.
 - BFF Facebook buddies.
 - I'll shut up now.
@@ -86,7 +86,7 @@
 - Okay, considering that you left me when I was, oh, I don't know, 9 years old... and I don't know if you're good or bad, I have every right to have... a mother issue or two right now.
 - You're right.
 - You are absolutely right.
-- Thank you. No sh**ting necessary, none whatsoever.
+- Thank you. No sh\*\*ting necessary, none whatsoever.
 - Great, good. Here we go, fully hanging out.
 - What should we do? Sit down?
 - I know a wonderful bakery...
@@ -110,8 +110,8 @@
 - That's convenient.
 - Then how do we know that you're not making this up?
 - Because I brought you this.
-- Atroxium, a nerve gas that causes extreme terror in its v*ctim... and within minutes drives them completely insane.
-- The scientist, Wheelwright, who created it... wants to meet Volkoff's most trusted w*apon buyer.
+- Atroxium, a nerve gas that causes extreme terror in its v\*ctim... and within minutes drives them completely insane.
+- The scientist, Wheelwright, who created it... wants to meet Volkoff's most trusted w\*apon buyer.
 - Chuck, I need you to pose as that buyer.
 - Atroxium is dangerous, far too dangerous to be on the open market.
 - One warhead of this could debilitate an entire army.
@@ -131,7 +131,7 @@
 - Hello. Welcome to the Buy More.
 - Stop by this weekend and check out our Halloween Haunted House Spectacular.
 - It's gonna be scary. I mean, good scary, like pumpkins and ghosts.
-- Not bad scary, like w*r and bears. You know, because I find...
+- Not bad scary, like w\*r and bears. You know, because I find...
 - Oh, good day, sir. Welcome to the Buy More.
 - Coming in hot today, aren't you?
 - Ah, it's tough.
@@ -210,7 +210,7 @@
 - Oh, here, let me take that from you.
 - Okay.
 - Okay. Are you sure you're okay with this?
-- Because if not, I can bite the b*llet and I can ask her to stay at the hotel.
+- Because if not, I can bite the b\*llet and I can ask her to stay at the hotel.
 - Uh...
 - Mm, no, you don't have to do that. She should stay.
 - You sure?
@@ -236,7 +236,7 @@
 - Can I ask you a question? How do you do it?
 - Balance the Buy More and your life... ?
 - Son.
-- In my 12 and a half weeks at the El g*n School of Finance... I learned one very important word: Delegate.
+- In my 12 and a half weeks at the El g\*n School of Finance... I learned one very important word: Delegate.
 - That word is the key to being a successful manager.
 - There's even a catchy phrase for when you got too much to do.
 - Get it off your plate, give it to other people.
@@ -254,7 +254,7 @@
 - Good afternoon, Mr. Carmichael. I'll show you to your table.
 - That would be perfect, thank you.
 - We just got word that Wheelwright is en route.
-- Remember, cool, calm and collected. You're Volkoff's top w*apon buyer.
+- Remember, cool, calm and collected. You're Volkoff's top w\*apon buyer.
 - Just one question.
 - Can we get one of those hostess outfits for back home?
 - Focus, Bartowski. Grown-ups are trying to work here.
@@ -304,10 +304,10 @@
 - [COUGHING]
 - Chuck, you okay?
 - Sarah.
-- My mom sh*t me.
+- My mom sh\*t me.
 - My heart hurts.
 - I know. I can't believe your mom betrayed you.
-- No, my heart actually hurts. She sh*t me in the heart area.
+- No, my heart actually hurts. She sh\*t me in the heart area.
 - Oh, okay, here.
 - Thank you.
 - Ah.
@@ -317,11 +317,11 @@
 - You know what? That's what I love about you.
 - That's what you love about me, huh? Not my dashing good looks?
 - Or the giant computer in my brain?
-- And you're funny even if your mom has sh*t you in the heart.
-- So two fugitives and a dangerous w*apon on the loose. Go team.
+- And you're funny even if your mom has sh\*t you in the heart.
+- So two fugitives and a dangerous w\*apon on the loose. Go team.
 - We could go back to the restaurant, see if they left any clues behind.
 - No, no, no, we got this, dude.
-- You just got sh*t by your mom, okay? Take a break.
+- You just got sh\*t by your mom, okay? Take a break.
 - Have a little Chuck time.
 - Yeah, maybe you're right.
 - Maybe I should.
@@ -358,7 +358,7 @@
 - Get in.
 - Are you crazy?
 - You know, I didn't think you could top abandoning me for the last 20 years.
-- And then you sh*t me.
+- And then you sh\*t me.
 - And I will do it again if you don't get in this car right now.
 - [CELL PHONE BEEPS]
 - Sarah: That's every bus-station, subway and traffic-light camera... within a mile of the restaurant.
@@ -372,7 +372,7 @@
 - My mission was to destroy the Volkoff organization from within.
 - But I got in way too deep... and I was forced to close the door on my old life.
 - But then you came looking for me, and that set off the alarm bells.
-- Right. So you sh*t me?
+- Right. So you sh\*t me?
 - I knew you were wearing a vest.
 - Volkoff was tapped into the security footage at the café.
 - So he thinks that Charles Carmichael is dead... and that means you and Ellie are safe.
@@ -391,12 +391,12 @@
 - Because I never got you a present for your 10th birthday.
 - Come on.
 - Follow me.
-- See, I knew that if I sh*t you, Wheelwright might panic... and try to unload the w*apon on his own.
+- See, I knew that if I sh\*t you, Wheelwright might panic... and try to unload the w\*apon on his own.
 - But Atroxium is far too dangerous, so I just went ahead and handled it.
 - Handle? How did you handle it exactly?
 - This is Wheelwright's mobile lab.
 - He's tranqed up inside, and the Atroxium's ready for extraction.
-- And, Chuck, sorry I sh*t you.
+- And, Chuck, sorry I sh\*t you.
 - Hey, it's okay. No harm, no foul.
 - [SIRENS WAILING NEARBY]
 - Mom...
@@ -426,7 +426,7 @@
 - You okay?
 - Yeah.
 - I'm just wondering what to tell my sister.
-- Do I casually drop that Mom came back to town to sh**t me in the chest... and hand over a deadly chemical w*apon?
+- Do I casually drop that Mom came back to town to sh\*\*t me in the chest... and hand over a deadly chemical w\*apon?
 - Well, I know that you'll figure out the exact right thing to say.
 - WOMAN [ON MONITOR]: Excuse me.
 - Lucky for me, I know the foremost authority on all things Ellie Bartowski.
@@ -442,7 +442,7 @@
 - No. I got someone.
 - I knew it. I knew Mrs. B wasn't a bad guy.
 - Bad guys don't make such delicious lemon bars.
-- k*ll brownies too. Look, I need your advice for this, Morg...
+- k\*ll brownies too. Look, I need your advice for this, Morg...
 - Hey. Ah.
 - Ow. Ow.
 - What... ? What the... ?
@@ -521,7 +521,7 @@
 - Why is the device counting down?
 - Oh, that?
 - Well, just a safety measure to protect against tampering.
-- It counts down until I verify that the w*apon is in my possession.
+- It counts down until I verify that the w\*apon is in my possession.
 - Okay, tell us how to turn it off.
 - Well, you'll need this.
 - But why should I help you?
@@ -565,7 +565,7 @@
 - Come on.
 - If you get me out of here, I will consider taking you to the antitoxin.
 - Anything. Anything you want.
-- Now I'm gonna k*ll that bitch Frost for double-crossing me.
+- Now I'm gonna k\*ll that bitch Frost for double-crossing me.
 - No, no, I can't let that happen.
 - [ALARM BUZZING]
 - Did you just lock us in here?
@@ -579,7 +579,7 @@
 - [LAUGHS MANIACALLY]
 - Chuck.
 - Sarah?
-- [g*n]
+- [g\*n]
 - Wheelwright: It's getting worse. These are your deepest fears.
 - No, please make it stop.
 - Wheelwright: There's no escape.
@@ -639,14 +639,14 @@
 - Let's get up, come on.
 - Oh, God.
 - [WHISTLING]
-- Give me your g*n.
-- [g*n COCKS]
-- Uh, no, uh, but it's not a real g*n.
-- It's just a heavily modified paintball p*stol.
+- Give me your g\*n.
+- [g\*n COCKS]
+- Uh, no, uh, but it's not a real g\*n.
+- It's just a heavily modified paintball p\*stol.
 - I know paintball's still dangerous, but what I'm trying to explain... is it's not real.
 - I'll take that folder.
 - Morgan: Casey.
-- Casey, what is going on? Why is there a g*n to my head?
+- Casey, what is going on? Why is there a g\*n to my head?
 - I'm the magnet.
 - I'm the magnet for bad guys?
 - Are you kidding me?

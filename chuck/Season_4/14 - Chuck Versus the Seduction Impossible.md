@@ -53,7 +53,7 @@
 - Captain: Aw, Grandma's got the magic touch.
 - Mary: Oh...
 - Mary: Smooth and silent.
-- Same technique I always used for moving live expl*sives. (coos)
+- Same technique I always used for moving live expl\*sives. (coos)
 - Okay, I'll just edit that part out.
 - (quietly) Wow.
 - Babies are stressful.
@@ -88,7 +88,7 @@
 - It's not beige... Wow...
 - (grumbling indistinctly) family... intense...
 - I'm actually sweating.
-- The last time I sweat, there was g*n involved.
+- The last time I sweat, there was g\*n involved.
 - Red? Don't use red. Red is back! Blue...
 - (arguing indistinctly)
 - What does that mean? He doesn't even eat cake!
@@ -142,7 +142,7 @@
 - But that's not what happened.
 - Oh? Mm-mm. No, I'm exactly where I wanted to be: in front of the woman who's created the world's only flawless counterfeit bills.
 - And meeting me was worth dying for?
-- You're not going to k*ll me.
+- You're not going to k\*ll me.
 - You're going to make me your head of distribution.
 - (giggles) No, no, no. I'm not joking.
 - My international contacts can help you launder your money so that people like me don't keep showing up at your door.
@@ -152,8 +152,8 @@
 - What?
 - You always over-pack for missions.
 - How am I supposed to know what kind of mission we're going on?
-- It could be a sh**ting mission; it could be a dancing mission.
-- It could be a sh**t, which I know isn't really a thing, but knowing our track record, is very much a possibility.
+- It could be a sh\*\*ting mission; it could be a dancing mission.
+- It could be a sh\*\*t, which I know isn't really a thing, but knowing our track record, is very much a possibility.
 - Well, let's just save that for the honeymoon, shall we?
 - So... your family.
 - Sorry, sorry.
@@ -167,7 +167,7 @@
 - I know that you want the big family wedding, but your family is going to be this intense until we get married, so... what if we-- just the two of us-- were to run away to some beautiful, romantic, amazing place?
 - Then all of this stress and pressure could be avoided.
 - Think about it.
-- Is she trying to k*ll me?
+- Is she trying to k\*ll me?
 - I know. Elope?
 - I can't elope.
 - Of course you can't!
@@ -239,7 +239,7 @@
 - You three? What are you doing here?
 - Rescuing you. You're welcome.
 - I don't need... rescuing.
-- Unlike you, Colonel sh**t 'Em Up, I can finesse my way out of any situation.
+- Unlike you, Colonel sh\*\*t 'Em Up, I can finesse my way out of any situation.
 - And what situation would this be, exactly?
 - (stammering)
 - Listen, I don't have time to go into it, but I'm about to blow Fatima's counterfeiting ring wide open.
@@ -266,7 +266,7 @@
 - Fatima: Mmm.
 - You are very feisty, eh?
 - (chuckling)
-- Oh, feed me or b*at me.
+- Oh, feed me or b\*at me.
 - I don't care. Just get in here.
 - Hey.
 - Hi. Oh.
@@ -291,7 +291,7 @@
 - I thought it would have made you happy.
 - Okay, I'm sorry. I'll fix this, okay? I promise.
 - You look a lot like your father right now.
-- A cigar right now and a kn*fe, and you would...
+- A cigar right now and a kn\*fe, and you would...
 - FATIMA (giggling): You've been a very naughty, naughty little spy.
 - Roan: Oh, you better teach me a a lesson, then.
 - Fatima: Yes, I will. (chuckles)
@@ -355,7 +355,7 @@
 - Casey's gonna try and seduce the guard.
 - No! What? The man who flunked my course at the farm twice? !
 - Casey, that's not a very good idea.
-- Don't you have a g*n or some expl*sives?
+- Don't you have a g\*n or some expl\*sives?
 - Yeah, because you're terrible at seduction.
 - You have no finesse!
 - I heard that.
@@ -367,7 +367,7 @@
 - Evening.
 - Stop!
 - Well...
-- That's a lovely w*apon you have there.
+- That's a lovely w\*apon you have there.
 - Go.
 - Gosh, it must get awfully lonely down here in the dungeon by yourself, no one to talk to.
 - Yes. Yes, it does.
@@ -431,11 +431,11 @@
 - Not a good year for building walls in East Germany.
 - (shouting)
 - (cheering)
-- We had just won the Cold w*r.
+- We had just won the Cold w\*r.
 - I was off to Moscow on an assignment.
 - Diane was on her way back to Washington and a promotion.
 - ♪ ♪
-- (g*n hammer cocks)
+- (g\*n hammer cocks)
 - We wouldn't see each other for months, and just before I left, she asked the question.
 - What about us?
 - That's when I said it.
@@ -563,7 +563,7 @@
 - Fatima isn't going to tell us anything.
 - Only one man could possibly get the information out of her.
 - Roan?
-- Ma'am, Fatima will have Roan sh*t on sight.
+- Ma'am, Fatima will have Roan sh\*t on sight.
 - No man could seduce Fatima Tazi twice. It's a...
 - Seduction impossible.
 - Get him.
@@ -662,7 +662,7 @@
 - You... bastard!
 - Yes, I answer to that.
 - Woman: What do we do?
-- k*ll them.
+- k\*ll them.
 - (woman gasps)
 - (gasps)
 - Well, that takes care of your friends.
@@ -677,7 +677,7 @@
 - Who is this?
 - This is General Diane Beckman.
 - With whom am I speaking?
-- This is the woman who is about to k*ll your agent.
+- This is the woman who is about to k\*ll your agent.
 - Good. It's about time.
 - Good?
 - She said, "Good. "
@@ -766,7 +766,7 @@
 - I don't know. It's different.
 - Sarah, come on.
 - It's our job to take care of some of the world's biggest problems.
-- t*rrorists and despots and oligarchs.
+- t\*rrorists and despots and oligarchs.
 - I mean, I think we can handle a family, even yours.
 - Hey, hey.
 - You are Sarah Walker, the most mysterious woman in the world, so as the future Mr. Sarah Walker, can't I get to know you better?

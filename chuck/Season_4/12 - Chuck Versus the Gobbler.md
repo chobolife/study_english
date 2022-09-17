@@ -80,7 +80,7 @@
 - I want to come and work with you.
 - Ms. Walker... even if you've told me the truth about your motives, why would I ever trust you?
 - Fair question.
-- The reason you're going to trust me is because I'm not going to k*ll you, right here and right now.
+- The reason you're going to trust me is because I'm not going to k\*ll you, right here and right now.
 - You... are such fun.
 - Thank you.
 - (with Russian accent): "Velcome" to Volkoff Industries.
@@ -92,7 +92,7 @@
 ♪ Na-na na-na na-na ♪
 ♪ Na-na na-na na-na ♪
 - (whimpers)
-- Volkoff: Now, you and I have to discuss-- ♪ LA LA, LA LA ♪ how best to utilize your particular k*ll.
+- Volkoff: Now, you and I have to discuss-- ♪ LA LA, LA LA ♪ how best to utilize your particular k\*ll.
 - Yes, let's.
 - Sarah Walker, a traitor.
 - This I had to see with my own two eyes.
@@ -144,8 +144,8 @@
 - Oh, dear sweet goodness.
 - Pizza, orange juice. Pizza, orange juice. What?
 - (romantic opera music plays)
-- (b*mb exploding)
-- (b*mb exploding)
+- (b\*mb exploding)
+- (b\*mb exploding)
 - Um...
 - Come back to bed so we can cuddle for before I go to work Uh-huh. Absolutely.
 - Totally.
@@ -175,7 +175,7 @@
 - He's Volkoff's most trusted bodyguard, but I think he has something to do the Hydra.
 - Hydra?
 - Volkoff's network.
-- A database of w*apon buyers, sellers-- his entire infrastructure.
+- A database of w\*apon buyers, sellers-- his entire infrastructure.
 - Early on, I realized that Hydra is more important than Volkoff himself.
 - So how does the bodyguard fit in?
 - I really don't know.
@@ -189,14 +189,14 @@
 - Really. About what?
 - Well, I'm having a bit of an issue with Devon, and I was hoping that you could help. I told you I can't get him to stop cooking with no shirt on.
 - It's not that.
-- I keep proposing baby names, and he keeps sh**ting 'em down, one after another.
+- I keep proposing baby names, and he keeps sh\*\*ting 'em down, one after another.
 - Nothing works.
 - That's ridiculous. I'm sorry, El.
 - It's just that naming the baby is the last planning that we have to do before I can just relax and focus on the birth.
 - You know? Yeah.
 - No, yeah, totally.
 - W-W-What can I do to help?
-- Well, I, I finally picked the perfect name and I don't want him to sh**t it down.
+- Well, I, I finally picked the perfect name and I don't want him to sh\*\*t it down.
 - It's the most beautiful, unique, precious name for a girl.
 - Well, don't keep me waiting.
 - What is it? Tell me.
@@ -218,7 +218,7 @@
 - She-- well, what, what I was meaning to say is she couldn't, she couldn't find her shirt.
 - It was pretty cold, so we wear lots of shirts, and it's like a shirt party, you know.
 - (laughing nervously): It's kind of a...
-- Please don't k*ll me.
+- Please don't k\*ll me.
 - Okay? (growls)
 - I need you to know that I am a perfect gentleman with her, and honestly I, I really do care about her.
 - (inhales deeply)
@@ -251,7 +251,7 @@
 - Uh, right, I need you to create a diversion so that I can break out this man: Yuri Gobrienko, aka Yuri the Gobbler.
 - Yikes, a big mother.
 - Eh, big doesn't always mean bad.
-- Here are some photographs of his v*ctim.
+- Here are some photographs of his v\*ctim.
 - (groaning) Oh, that's not good.
 - That's impressive. The Gobbler is Volkoff's main bodyguard, but your mom believes that he has some connection to Volkoff's database.
 - Code name Hydra.
@@ -291,16 +291,16 @@
 - You look better without it-- tougher.
 - All right, guys, listen up.
 - New dude in here.
-- Don't mean to interrupt your little game of Mah-jongg, but we got ourselves a real k*ll here today.
+- Don't mean to interrupt your little game of Mah-jongg, but we got ourselves a real k\*ll here today.
 - Yep.
 - New guy here likes to fight other dudes.
 - I would be very, very careful of this guy.
-- k*ll.
+- k\*ll.
 - This is the guy.
 - This is the guy you don't want to mess with.
 - All right, dangerous.
 - Morgan, I think they get the point.
-- They all look like they want to k*ll me.
+- They all look like they want to k\*ll me.
 - Morgan: Well, you're welcome, okay.
 - As you were, guys.
 - Carry on.
@@ -445,8 +445,8 @@
 - We should really rethink the name.
 - Actually, I'm pretty happy with my choice.
 - Sorry to interrupt.
-- Were you guys talking about that famous Armenian serial k*ll, Grunka Kassabian?
-- What? Serial k*ll?
+- Were you guys talking about that famous Armenian serial k\*ll, Grunka Kassabian?
+- What? Serial k\*ll?
 - Yes. Yes, we were.
 - Don't think I don't understand what you're doing here, Devon.
 - I'm gonna go wait in the car.
@@ -474,7 +474,7 @@
 - Disappointed?
 - Well, a little disappointed.
 - No. Very disappointed.
-- (sh*t fires)
+- (sh\*t fires)
 - (body thuds)
 - (raspy chuckle)
 - Sorry.
@@ -488,7 +488,7 @@
 - I guess that's not gonna happen for a little while now, is it?
 - Hey, did-did we record The View?
 - Oh...
-- sh**t, I don't know if I... did that or not. But, you know, it's funny that you should mention the whole board game thing.
+- sh\*\*t, I don't know if I... did that or not. But, you know, it's funny that you should mention the whole board game thing.
 - 'Cause we were just talking about how we were itching to-to play a classic board game.
 - Weren't we, Casey?
 - We were.
@@ -543,7 +543,7 @@
 - It's hard, you know. I wish I could bottle my feelings up and not be so vulnerable.
 - Well, maybe you should tell that to your armies in Australia.
 - You've got to be kidding me.
-- (imitates expl*si*n)
+- (imitates expl\*si\*n)
 - Okay.
 - (cell phone beeps)
 - Who is that? Is it Alex?
@@ -564,7 +564,7 @@
 - Good answer.
 - Now, let's prove that it's true.
 - I took the liberty of posing as you and summoning him here.
-- All I want you to do is go up to the ninth floor, and k*ll John Casey.
+- All I want you to do is go up to the ninth floor, and k\*ll John Casey.
 - Frost will go with you to make sure it all happens correctly.
 - Oh! By the way!
 - I'll be watching.
@@ -598,7 +598,7 @@
 - That a girl.
 - (grunting)
 - What are you doing?
-- I'm supposed to k*ll you.
+- I'm supposed to k\*ll you.
 - Volkoff is watching.
 - Look. (grunts)
 - (grunting)
@@ -608,7 +608,7 @@
 - There are guards in front of the building.
 - Casey was contacted off the secure line.
 - I'll call you when I have eyes on him.
-- (g*n cocking)
+- (g\*n cocking)
 - Chuck, you're just in time.
 - Just in time for what?
 - There's a particular moment when an agent makes the decision to stop pretending, and to take the leap to join the other side.
@@ -617,11 +617,11 @@
 - And now, if you'll come with me, we'll see if Sarah's going to make the same step.
 - I think she will. Come on.
 - (both grunting)
-- I can't leave here without k*ll you.
+- I can't leave here without k\*ll you.
 - How do we sell this?
 - Duck. (gasps)
-- Oh! I'll let you retrieve your w*apon, you sh**t me in the shoulder. (both grunt)
-- I'm not going to sh**t you.
+- Oh! I'll let you retrieve your w\*apon, you sh\*\*t me in the shoulder. (both grunt)
+- I'm not going to sh\*\*t you.
 - Look who I found!
 - Chuck!
 - What are you doing here?
@@ -639,7 +639,7 @@
 - It's only 40 feet.
 - I've done 60, easy.
 - (both grunt)
-- I'll be fine, I promise. Okay. But you better be fine, or else I'll really k*ll you.
+- I'll be fine, I promise. Okay. But you better be fine, or else I'll really k\*ll you.
 - Okay.
 - I'm here to find Casey. Where is he?
 - I'll show you.
@@ -650,11 +650,11 @@
 - Quite a brawl.
 - (both grunting, blows thudding)
 - Chuck: Sarah?
-- Volkoff: I notice your g*n's gone missing.
+- Volkoff: I notice your g\*n's gone missing.
 - You want me to finish him?
 - No.
 - (panting)
-- Volkoff: k*ll him, Agent Walker.
+- Volkoff: k\*ll him, Agent Walker.
 - Is that all you got? Huh?
 - (both grunt)
 - No!

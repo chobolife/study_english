@@ -92,7 +92,7 @@
 - No. Take a hike.
 - Let's take the side exit. It's really scenic, huh?
 - Morgan: My balloons.
-- BECKMAN [OVER MONITOR]: Agent Rosenbaum, one of our finest... was g*n down earlier today while transporting a nanochip... containing the secret locations and blueprints... of our CIA black sites in Europe. This is the chip.
+- BECKMAN [OVER MONITOR]: Agent Rosenbaum, one of our finest... was g\*n down earlier today while transporting a nanochip... containing the secret locations and blueprints... of our CIA black sites in Europe. This is the chip.
 - [COMPUTER BLEEPS]
 - A nanochip can be injected into an agent if in trouble.
 - And then extracted back at Langley.
@@ -103,7 +103,7 @@
 - Agent Rosenbaum's body was returned to us... yet our tests show no trace of the nanochip's presence.
 - We believe the chip is somewhere within this chateau.
 - Uh, don't tell me this mission is in France.
-- Beckman: Pierre Melville, a French radical turned t*rror1st... is also searching for the nanochip.
+- Beckman: Pierre Melville, a French radical turned t\*rror1st... is also searching for the nanochip.
 - Um, one of Volkoff's men?
 - Not every criminal works for Alexei Volkoff, Chuck.
 - Agents Walker, Bartowski... you'll attend the wine-tasting gala at the chateau tomorrow.
@@ -163,7 +163,7 @@
 - Lester: Anyway, they don't get it.
 - I've embraced America and its great traditions... like online dating.
 - Which, FYI...
-- [SING-SONGY] ... I am k*ll it.
+- [SING-SONGY] ... I am k\*ll it.
 - Ha, ha, I've been there.
 - I've had three dates already today.
 - During work?
@@ -243,7 +243,7 @@
 - Pierre's down here. Looks like he's using the party as a cover as well.
 - MAN 1: Sir.
 - I found this beneath the racks.
-- bl*od.
+- bl\*od.
 - Excellent year.
 - It's an '86 Chateau Le Franc.
 - Must have injected it into one of these bottles.
@@ -290,7 +290,7 @@
 - I broke my heel and my...
 - My ankle, it just kind of really hurts right now.
 - [SARAH GRUNTS]
-- [SILENCED g*n]
+- [SILENCED g\*n]
 - [MEN GROAN]
 - I can't stand this country.
 - [TRACKER BEEPING]
@@ -310,7 +310,7 @@
 - Sir. Hi. Sir, hi.
 - Excuse me. Um...
 - I'm sorry, but there's been a mixup downstairs.
-- You received the wrong glass of wine. That's the g*n from Bordeaux... with the coil on the foil and fork on the cork.
+- You received the wrong glass of wine. That's the g\*n from Bordeaux... with the coil on the foil and fork on the cork.
 - Does not make sense, they are both regions.
 - This is the peppery Pinot... with the stable on the label and the stork on the cork.
 - In fact, I have been waiting to taste this exact bottle... for two decades.
@@ -318,7 +318,7 @@
 - I didn't wanna have to tell you this, but there is something in your wine.
 - Yes, there is something in the wine.
 - Two hundred years of French history.
-- The bl*od and sweat of my ancestors. The pride of lords and peasants alike.
+- The bl\*od and sweat of my ancestors. The pride of lords and peasants alike.
 - You, sir, wouldn't know the difference between this... and a glass of Two Buck Chuck.
 - Chuck: First of all... I happen to like Two Buck Chuck. Great bang for your buck. Second of all, you are danger-close to becoming a walking cliché, sir.
 - Goodbye. My pinot.
@@ -363,7 +363,7 @@
 - You're gonna sell him a different chip.
 - Beckman: Spot on, colonel.
 - The chip suspended in this liquid is a long-range tracking beacon.
-- Return to the chateau, swap cases with Pierre... then our Paris office will track him and root out the entire t*rror1st cell.
+- Return to the chateau, swap cases with Pierre... then our Paris office will track him and root out the entire t\*rror1st cell.
 - Is that clear?
 - Chuck: Yes, ma'am.
 - Good, because you leave tonight.
@@ -390,7 +390,7 @@
 - Let me...
 - Come on, Chuck, it's okay.
 - It was so perfect. Everything. The sunset, the balcony.
-- You cannot b*at yourself up. You were on a mission.
+- You cannot b\*at yourself up. You were on a mission.
 - There were distractions, things out of your control. Let's move past that.
 - What is the only thing better than a sunset?
 - Things going right for a change?
@@ -423,7 +423,7 @@
 - So this wasn't really you?
 - No, no. I was trying to impress you.
 - Aw, that's kind of cute.
-- Okay. We can give it another sh*t.
+- Okay. We can give it another sh\*t.
 - So it is written.
 - Ha, ha, no, no, it's not written, Jeffrey. Not written.
 - Maybe we pencil it in.
@@ -461,7 +461,7 @@
 - Exactly. We're gonna make this proposal happen for Chuck's sake.
 - Yeah.
 - And for mine.
-- Chuck: We got a couple of French t*rrorists... a briefcase full of cash, and a nanochip... so no more terrifying than usual.
+- Chuck: We got a couple of French t\*rrorists... a briefcase full of cash, and a nanochip... so no more terrifying than usual.
 - Although, if we get done early, we take a stroll around the chateau.
 - That does sound lovely, Chuck.
 - But, ugh, listen, I have this weird feeling about this mission.

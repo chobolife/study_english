@@ -8,7 +8,7 @@
 - The program took over. He became his cover identity.
 - Chuck: Agent X is Alexei Volkoff?
 - I have a company to run and I need leverage to run it.
-- Victoria: And Norseman's the most dangerous w*apon in the world.
+- Victoria: And Norseman's the most dangerous w\*apon in the world.
 - Rebuild the device as quickly as possible.
 - That way, no one can touch me... ever.
 - (door clangs open in distance, footfalls)
@@ -17,15 +17,15 @@
 - I should hope so.
 - Miss Volkoff's patience has worn very thin.
 - Whoever's been trying to sabotage the operation certainly won't find their way down here.
-- (w*apon clicks)
-- (w*apon beeping)
+- (w\*apon clicks)
+- (w\*apon beeping)
 - (chuckling)
-- (w*apon beeps loudly, then chirps a few times)
+- (w\*apon beeps loudly, then chirps a few times)
 - (Riley sighs)
 - Riley: Let me, Vivian.
-- (w*apon briefly whirs)
+- (w\*apon briefly whirs)
 - If-if I may ask, who is the first subject going to be?
-- (w*apon clicks, whirs)
+- (w\*apon clicks, whirs)
 - Ow!
 - Scientist: God! Ow!
 - God! That noise!
@@ -39,12 +39,12 @@
 - After you.
 - (door slams shut)
 - (control line zips up, clanks ceiling)
-- (door bursts open, g*n cocking)
+- (door bursts open, g\*n cocking)
 - I think the proper word right now would be "freeze. "
 - Hello, Riley.
 - Vivian, meet the woman who betrayed... your father for 20 years.
 - Frost, welcome back!
-- (g*n smacks Mary, body hits floor)
+- (g\*n smacks Mary, body hits floor)
 - Good morning.
 - You know what we have to do today?
 - Mmm.
@@ -198,7 +198,7 @@
 - Let's go save Chuck's mom!
 - Howitzer.
 - All right!
-- (imitates b*ll*ts firing): Na-na-na-na, na-na-na-na, na, na, na... nah... I don't know.
+- (imitates b\*ll\*ts firing): Na-na-na-na, na-na-na-na, na, na, na... nah... I don't know.
 - I kind of like the ones that make me look big,  you know? You're not coming.
 - Can't believe how much you worry.
 - Casey, listen to me.
@@ -260,7 +260,7 @@
 - Girls like that are pretty few and far between in Pueblo, if you know what I mean.
 - The two of us have kind of had this will they/won't they, burgeoning office romance going.
 - I'm really trying to impress her, so could you help me out a little bit?
-- b*at your man.
+- b\*at your man.
 - Sorry?
 - Once, I snapped a guy's neck for a girl.
 - She melted all over me.
@@ -310,7 +310,7 @@
 - We have a wedding to get you to.
 - Casey: Hey, come on, we got to move.
 - Let's go. Sweetheart, I know the wedding is important, but so is the nation's safety.
-- If I leave now, they will move the w*apon and we'll never get it.
+- If I leave now, they will move the w\*apon and we'll never get it.
 - Sarah: Mary, don't be stubborn.
 - We're just here to extract you, not finish a failed mission.
 - Failed? Stubborn?
@@ -336,15 +336,15 @@
 - It's been moved, but I don't know where.
 - Vivian's planning a meet to sell it to the highest bidder.
 - We got to get to that meet. And we got to get out of here before Vivian finds out we know about it and calls it off.
-- Come on, let's go before your girls k*ll each other.
+- Come on, let's go before your girls k\*ll each other.
 - You don't have to tell me twice.
 - Vivian: Everything's still locked down.
 - (whispers): Hold your fire.
-- They'll never k*ll me. You don't know that.
+- They'll never k\*ll me. You don't know that.
 - No interruptions, guard.
 - (chuckles)
 - Riley: Hello again, Frost.
-- Chuck: Sarah, the w*apon's been moved; Vivian's selling it.
+- Chuck: Sarah, the w\*apon's been moved; Vivian's selling it.
 - If she turns up, keep her alive so the meet still happens.
 - What do you want with me?
 - I really just want to see you dead.
@@ -417,7 +417,7 @@
 - And you two will just stay here and get ready for the wedding.
 - Stay here? What? You're taking us off our own mission?
 - I-I appreciate you trying to protect us, Mom, I do, but Morgan is my best friend, and we've been on Vivian Volkoff for months.
-- In which time she's gone from harmless coed to one of the world's top w*apon dealers.
+- In which time she's gone from harmless coed to one of the world's top w\*apon dealers.
 - Which is why I had to step in in the first place, to fix your mistake, sweetheart.
 - Our mistake? Um...
 - I don't mean to be critical, but obviously, you've been very busy getting ready for the wedding, and your minds are elsewhere.
@@ -461,7 +461,7 @@
 - How do you guys feel that went?
 - Hey, what do you think?
 - I finally got the accent down.
-- (in bad accent): Don't move or I will k*ll you whereas you stand and not even your madre will recognize your corpse.
+- (in bad accent): Don't move or I will k\*ll you whereas you stand and not even your madre will recognize your corpse.
 - (spits)
 - Yeah.
 - If I had my druthers, you'd stay topside selling microwaves.
@@ -501,8 +501,8 @@
 - You noticed.
 - Come on, seriously, you got nothing to worry about.
 - We're going to be with you the whole time on the comms, not to mention the fact that we will be monitoring the video feed through these glasses.
-- And Casey will be on the opposite rooftop with a sn*per r*fle.
-- You know how he likes to sh**t things from far away.
+- And Casey will be on the opposite rooftop with a sn\*per r\*fle.
+- You know how he likes to sh\*\*t things from far away.
 - I do, yeah. (chuckles)
 - Chuck: You can do this, Morgan, you can totally be a bad guy.
 - Okay, yeah, it's going to be great.
@@ -511,28 +511,28 @@
 - (Morgan hums along with Chuck)
 - (humming intensifies)
 - This'd better not take long.
-- I already tried to k*ll three people at this table.
+- I already tried to k\*ll three people at this table.
 - (in Italian accent): Yes.
 - What do you mean?
 - No, you heard me the first time.
-- sh**t the puppy.
+- sh\*\*t the puppy.
 - I am so sick of feeding him.
-- k*ll the puppy.
+- k\*ll the puppy.
 - Ciao.
 - So hard to get good henchmen nowadays, hmm?
 - Si, si.
 - Thorium signature detected.
 - Looks like they're bringing in the Norseman. Casey?
 - Vivian: Welcome, gentlemen, I'm so sorry to have kept you waiting.
-- You're all here for the same reason: a chance to purchase one of the deadliest w*apon ever created-- the Norseman device.
-- By locking onto a target's DNA, it can k*ll a single person in the middle of a crowd with 100% accuracy.
+- You're all here for the same reason: a chance to purchase one of the deadliest w\*apon ever created-- the Norseman device.
+- By locking onto a target's DNA, it can k\*ll a single person in the middle of a crowd with 100% accuracy.
 - Perfecto.
 - There's no way to run from it, even on the other side of the world.
 - Whoever ends up with it has an enormous advantage, but, truth is... it's an advantage I intend to keep.
 - (groans with pain)
 - (men groaning in agony)
 - Morgan: What do I do, guys?
-- Casey: Morgan, Morgan, you have to die, or they're going to k*ll you. Do it.
+- Casey: Morgan, Morgan, you have to die, or they're going to k\*ll you. Do it.
 - Oh, no!
 - Aah!
 - (body hits floor)
@@ -541,9 +541,9 @@
 - I got him in my sights.
 - If it gets hot, I'll take 'em all out.
 - Riley: Don't feel bad, Vivian.
-- Every man in this room would have k*ll you without a second thought.
+- Every man in this room would have k\*ll you without a second thought.
 - That's why we collected their DNA.
-- This one-- he k*ll all the families of his rivals.
+- This one-- he k\*ll all the families of his rivals.
 - Sick.
 - And this one... he gassed an entire village of innocents just to eliminate... one enemy.
 - Sicker.
@@ -573,10 +573,10 @@
 - You're on it, go.
 - Copy that.
 - Looks like they're taking it out of the building.
-- I'm going to help them secure the w*apon.
+- I'm going to help them secure the w\*apon.
 - You stay here and keep Alex's boyfriend safe.
 - Roger that.
-- w*apon's leaving the building.
+- w\*apon's leaving the building.
 - You ready? Yeah.
 - Always wanted to say this-- fasten your seat belt.
 - Literally, you should fasten your seat belt right now.
@@ -604,7 +604,7 @@
 - And try not to move.
 - (groans)
 - (grunts)
-- (g*n, man groans)
+- (g\*n, man groans)
 - Morgan?
 - Morgan, can you hear me? !
 - (body hits floor)
@@ -613,7 +613,7 @@
 - Yeah. Yeah.
 - (grunts)
 - Oh...
-- Casey, I think you sh*t me.
+- Casey, I think you sh\*t me.
 - What about the rest?
 - Yeah, they're all dead.
 - Casey, that was amazing!
@@ -626,7 +626,7 @@
 - (tires squealing)
 - (tires squealing)
 - (sensor beeps)
-- The w*apon's in the trunk.
+- The w\*apon's in the trunk.
 - I'm going to get something to open it.
 - You all right?
 - Don't pretend to care.
@@ -748,7 +748,7 @@ Oh.
 - Please don't do this.
 - I already have.
 - What's going on?
-- I think Vivian's going to try and k*ll my mom.
+- I think Vivian's going to try and k\*ll my mom.
 - Oh, God, what is that noise? !
 - Oh.
 - Oh...

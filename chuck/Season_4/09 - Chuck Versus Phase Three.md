@@ -126,7 +126,7 @@
 - Where can I find the Belgian?
 - You know, you don't understand how high the stakes are here.
 - You're gonna tell me exactly what I want to know!
-- Listen, Casey, I think Sarah's about to go all k*ll Bill on this dude.
+- Listen, Casey, I think Sarah's about to go all k\*ll Bill on this dude.
 - And rumor has it that Beckman knows somebody stormed in the embassy and stole a national.
 - Now, I know I'm the new guy here, but I think that's kind of international incident-y, isn't it?
 - Walker knows what lines not to cross.
@@ -189,10 +189,10 @@
 - You do it.
 - Okay.
 - Nothing.
-- sh**t.
+- sh\*\*t.
 - I'm late.
 - I can't believe that I have to work for two days.
-- This is all I'm gonna think about the whole time. It's gonna k*ll me.
+- This is all I'm gonna think about the whole time. It's gonna k\*ll me.
 - Babe, remember, we're staying calm.
 - Okay? You go to work and you don't worry.
 - Maybe I'll just call Chuck and we'll figure it out.
@@ -264,10 +264,10 @@
 - Even the toughest spies in the world are just racing against that biological clock.
 - Tick, tick, tick, tock.
 - You got me.
-- I'm just a needy, love-crazed girl on a husband hunt... who's trained in over 200 ways to k*ll you.
+- I'm just a needy, love-crazed girl on a husband hunt... who's trained in over 200 ways to k\*ll you.
 - Afraid yet?
 - The Belgian has a hideout in the jungles of northern Thailand, near the Burmese border.
-- That jungle is filled with nothing but k*ll.
+- That jungle is filled with nothing but k\*ll.
 - I'm going with you.
 - You're not going where I'm going.
 - I'll do anything to get him back, and I'm not going to take you down with me.
@@ -320,7 +320,7 @@
 - Casey, it's Chuck.
 - Fine.
 - Deal? Deal.
-- No b*ll*ts for you. What?
+- No b\*ll\*ts for you. What?
 - Come on. We're going to Thailand. Ow!
 - You can talk to me.
 - I heard the Belgian has a hideout here.
@@ -361,9 +361,9 @@
 - He's taken somebody very important to me.
 - I don't like the Belgian, so I will tell you where he is.
 - But first, a little fun.
-- I will give you the information if you can b*at my best fighter.
+- I will give you the information if you can b\*at my best fighter.
 - It's been months since he's had a good match.
-- He k*ll too fast.
+- He k\*ll too fast.
 - I think you might make things entertaining.
 - So... yes?
 - This ends now!
@@ -389,13 +389,13 @@
 - Come on. Let's get out of here.
 - A deal's a deal.
 - The fight's not over.
-- I b*at your guy, you tell me where the Belgian is.
+- I b\*at your guy, you tell me where the Belgian is.
 - I'm gonna finish this.
 - Seriously, does no one care? There's a cobra in there!
 - Oh, whoa, whoa, whoa, whoa.
-- You are not getting b*ll*ts for a long, long time.
-- There's a lot of b*ll*ts.
-- Tons and tons of b*ll*ts.
+- You are not getting b\*ll\*ts for a long, long time.
+- There's a lot of b\*ll\*ts.
+- Tons and tons of b\*ll\*ts.
 - I can't work with this. Nando!
 - Posidrive screwdriver, stat!
 - What is this? This is not a pos...
@@ -447,7 +447,7 @@
 - The moron told me he blabbed about the proposal.
 - I'm not leaving until I find him.
 - Neither am I.
-- Wow. It's like your g*n is your soul.
+- Wow. It's like your g\*n is your soul.
 - Your metaphorical "yes" to a question she couldn't possibly bring herself to ask.
 - Okay, emotion later. Tonight we find Chuck!
 - Rear with the gear. You ride in the back.
@@ -474,14 +474,14 @@
 - See? See? I told you this is just a dream.
 - A dream that hurts. Ow.
 - Here. Okay.
-- Here's my pitch: What if you we didn't use g*n this time, okay?
-- If you guys don't use g*n, they don't use g*n.
-- If they don't use g*n, we have this lovely little mission where nobody gets sh*t.
+- Here's my pitch: What if you we didn't use g\*n this time, okay?
+- If you guys don't use g\*n, they don't use g\*n.
+- If they don't use g\*n, we have this lovely little mission where nobody gets sh\*t.
 - You see what I'm saying?
 - Hmm, a diversion instead.
 - A magnet.
 - Ready, Morgan?
-- g*n. Let's use lots of g*n!
+- g\*n. Let's use lots of g\*n!
 - What do you think it feels like to watch your life disappear?
 - Chuck?
 - Hey, Chuck.
@@ -529,7 +529,7 @@
 - ♪ ♪
 - I have some friendship bracelets.
 - All right, this-this is, like, a violation of my civil rights.
-- Looks like we didn't need the g*n after all.
+- Looks like we didn't need the g\*n after all.
 - What is up with this she-male thing?
 - Chuck, it's okay.
 - Ellie... Ellie, help me.

@@ -12,7 +12,7 @@
 - Yeah? She says that?
 - Good, good, good.
 - Make sure her head's in the game, okay?
-- This is kind of her big sh*t to prove to me she has something to bring to this relationship.
+- This is kind of her big sh\*t to prove to me she has something to bring to this relationship.
 - Feel me?
 - Hey, nothing but feeling you.
 - Good, good, good.
@@ -206,7 +206,7 @@
 - Hey, I think we have some company.
 - Chuck: Who's that?
 - Casey: Old ironside is ben lo pan.
-- He's the local big sh*t businessman.
+- He's the local big sh\*t businessman.
 - Owns, like, half of chinatown.
 - And there's mei-ling.
 - We're on.
@@ -218,7 +218,7 @@
 - Does that mean, like, a 60-yard cushion or would you say the regular tail rules apply in this situa...
 - Glocks on a crotch rocket. My kind of gal.
 - Those aren't glocks.
-- They're chinese army-issue p*stol.
+- They're chinese army-issue p\*stol.
 - She's not here on a spy mission.
 - She's here to assassinate the guy in the wheelchair.
 - You sure?
@@ -261,14 +261,14 @@
 - They think we're with her.
 - What?
 - They think we're with her.
-- No k*ll sh*t.
+- No k\*ll sh\*t.
 - I hate playing nice.
-- g*n. g*n.
+- g\*n. g\*n.
 - Listen to Sarah and Casey; stay in the car.
 - Hey, the wheelchair guy.
 - Hey, let me help you get out of here.
 - Yeah, help me! Help me!
-- A lady's trying to k*ll me.
+- A lady's trying to k\*ll me.
 - My car, this way.
 - I think I'm fine now.
 - Here, here you go.
@@ -289,7 +289,7 @@
 - You were trying to...
 - Rescue him.
 - Until you got in the way.
-- Sarah: Federal agent! Drop your g*n!
+- Sarah: Federal agent! Drop your g\*n!
 - No, no, no! No, no, no, s-sar-Sarah...
 - Chuck, are you okay?
 - Yeah.
@@ -323,7 +323,7 @@
 - She went off the grid and she disobeyed orders coming here.
 - Yeah, but her superiors didn't even give her a choice. Come on!
 - Sarah, I'd have done the same thing, if it was Ellie. I'd have done the same thing.
-- Minus the sh**ting apart the club part.
+- Minus the sh\*\*ting apart the club part.
 - I know how you feel.
 - It was hard for me, too, when I first started.
 - But the truth is we can't save everyone, Chuck.
@@ -347,7 +347,7 @@
 - We'll take that mantle.
 - Right?
 - Yes.
-- Listen, you're not gonna let me take the b*llet on this one, right, guys?
+- Listen, you're not gonna let me take the b\*llet on this one, right, guys?
 - Yes. Absolutely. Nice knowing you.
 - Nerd herd. Bartowski speaking.
 - Mei-ling: I'm looking at you right now.
@@ -419,17 +419,17 @@
 - I guess they got here early, dude.
 - Oh, hey, I think that's for me.
 - Please tell me that's not real.
-- The g*n, not the clipboard.
+- The g\*n, not the clipboard.
 - Real enough?
 - Listen, listen, they agreed to help if you would just defect.
 - What?
 - It's really not that bad here, you know.
 - The chinese food's pretty good. Have you tried sizzling shrimp?
-- Drop the g*n! Drop it!
+- Drop the g\*n! Drop it!
 - Let go...
-- sh**t me, I sh**t him.
+- sh\*\*t me, I sh\*\*t him.
 - Chuck: Hey, hey, I got an idea.
-- How about a new plan that involves less sh**ting.
+- How about a new plan that involves less sh\*\*ting.
 - Casey... Casey...
 - You agreed to help if she defected, right?
 - I would never...
@@ -709,7 +709,7 @@
 - No.
 - Good.
 - You're my only hispanic on the sales team.
-- You quit, the affirmative action g*ons will be all over my ass.
+- You quit, the affirmative action g\*ons will be all over my ass.
 - O-kay.
 - Well, listen, I sold over $700 worth of stereo equipment.
 - Puts me in second place.

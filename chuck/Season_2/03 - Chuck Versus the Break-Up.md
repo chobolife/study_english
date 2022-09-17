@@ -7,12 +7,12 @@
 - Hey!
 - Here, take the case.
 - Mr. Anderson.
-- No need to sh**t, okay?
+- No need to sh\*\*t, okay?
 - You got it, sweetheart?
 - Yeah.
 - Yeah, I got it.
 - Well... give it to him.
-- Nice sh*t, Mrs. Anderson.
+- Nice sh\*t, Mrs. Anderson.
 - Why, thank you, Mr. Anderson.
 - Chuck.
 - Hi.
@@ -49,7 +49,7 @@
 - This is what I'm talking about.
 - I'm worried about Lester as the new assistant manager.
 - Why, is he making you work?
-- Please, Chuck, I have mad-work avoidance k*ll.
+- Please, Chuck, I have mad-work avoidance k\*ll.
 - True... true.
 - No, he's drunk with power, man.
 - I once read that Mussolini started in retail.
@@ -364,7 +364,7 @@
 - I'd rather be drawn and quartered.
 - Let's go, Morgan.
 - We can't go.
-- Mitt is going to k*ll us, dude!
+- Mitt is going to k\*ll us, dude!
 - Hey, unhand me, now.
 - All right, let's get it together here.
 - What?
@@ -429,9 +429,9 @@
 - She's leaving out the back door.
 - Sarah, what are you doing?
 - Chuck's in danger.
-- That FULCRUM agent will k*ll him if we don't get...
+- That FULCRUM agent will k\*ll him if we don't get...
 - No-- our covers are on that microchip.
-- If we don't get it, all of us get k*ll.
+- If we don't get it, all of us get k\*ll.
 - Sarah!
 - Bartowski and the CIA-- how could it not go wrong?
 - You gotta believe me!
@@ -539,20 +539,20 @@
 - You really ought to think about toning down the entrances a notch.
 - Sorry, comes with the job.
 - Uh, look, I've...
-- I've already had a pretty long day, and I gotta get to work, so if you have any life-changing b*mb that you'd like to drop on me, could you please save them for later?
+- I've already had a pretty long day, and I gotta get to work, so if you have any life-changing b\*mb that you'd like to drop on me, could you please save them for later?
 - I'm worried about Sarah.
 - There's nothing to be worried about.
 - She got a minor concussion and a few bruises-- she'll be fine.
 - No, that's not what I'm worried about.
 - She went off mission.
-- And not only did we lose the microchip and the FULCRUM agent, the two of you almost got k*ll.
+- And not only did we lose the microchip and the FULCRUM agent, the two of you almost got k\*ll.
 - Okay, she went off mission to protect me, which by the way, is her job and wins her points in my book.
 - Sarah has feelings for you, Chuck.
-- Feelings that will get her k*ll.
+- Feelings that will get her k\*ll.
 - People we deal with are cold-blooded assassins.
 - They have no emotions, no feelings.
 - The only chance we have against FULCRUM is to think and act like they do.
-- Anything less gets us k*ll.
+- Anything less gets us k\*ll.
 - Sarah knows what she's doing, Bryce.
 - Sarah Walker's room.
 - Oh, room 808.
@@ -659,13 +659,13 @@
 - Don't you need this?
 - Give us the chip, Mr. Hayes.
 - Don't move!
-- Drop your w*apon!
+- Drop your w\*apon!
 - Sorry, fellas.
 - Someone's paid us a lot of money to take that chip.
 - Hold on.
 - Wait!
 - Don't do anything.
-- No sh**ting.
+- No sh\*\*ting.
 - Excuse me, gentlemen.
 - May I have your attention, please?
 - Um...
@@ -673,14 +673,14 @@
 - I'm holding $4. 5 million in unmarked bills.
 - Now, I'm not sure what the current going rate for thug-for-hire work is, but I'm feeling pretty confident that it's a lot less than this.
 - Now, all I ask is that you let Von Hayes and my two friends here go, and the money's all yours.
-- Or you can die horrible deaths in a hail of g*n.
+- Or you can die horrible deaths in a hail of g\*n.
 - The choice is yours, really.
 - That was amazing!
 - Thank you, Jorge.
 - No, don't mention it.
 - All right.
 - No, no, no-- don't encourage him.
-- You know, a little appreciation wouldn't k*ll you.
+- You know, a little appreciation wouldn't k\*ll you.
 - I mean, I did get the microchip back.
 - You also gave away $4. 5 million in taxpayer money.
 - Nobody's perfect.
@@ -704,8 +704,8 @@
 - Got it?
 - Yeah, I got it.
 - Take it.
-- Bryce: Take the sh*t, Sarah!
-- Sarah, take the sh*t!
+- Bryce: Take the sh\*t, Sarah!
+- Sarah, take the sh\*t!
 - Take it!
 - Oh!
 - Well, you want something done right... you do it yourself.
@@ -739,13 +739,13 @@
 - Neither do I.
 - Oh!
 - Can I get a background clearance on a one Anna Wu?
-- Nice sh*t, Miss Wu.
+- Nice sh\*t, Miss Wu.
 - I have a candidate for possible field work.
 - No.
 - Chuck.
 - What did I say about the entrances?
 - We need to talk about Sarah.
-- She had a chance to take the sh*t back there and she didn't.
+- She had a chance to take the sh\*t back there and she didn't.
 - She hesitated and almost cost us the microchip and your life.
 - I know.
 - What are you going to do about it?
@@ -780,7 +780,7 @@
 - Look...
 - Look...
 - I'm sorry.
-- Look, we both know how I feel about you, so I'm just gonna sh**t straight.
+- Look, we both know how I feel about you, so I'm just gonna sh\*\*t straight.
 - Sarah, you're the greatest thing that's ever happened to me.
 - You're beautiful, you're smart, you laugh at all of my stupid jokes, and you have this horrible habit of constantly saving my life.
 - The truth is, you're everything that I thought I ever wanted and more.

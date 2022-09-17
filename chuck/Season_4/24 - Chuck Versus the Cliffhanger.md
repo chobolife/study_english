@@ -6,11 +6,11 @@
 - Ellie: Dad used this program to input a new identity into an operative, but once he went undercover, something went wrong.
 - The program took over.
 - Chuck: Agent X is Alexei Volkoff?
-- The CIA created one of the most m*rder men in the history of the world.
+- The CIA created one of the most m\*rder men in the history of the world.
 - You know what happens if they find out we know?
-- They order a guy like me to put a b*llet in each one of our heads.
+- They order a guy like me to put a b\*llet in each one of our heads.
 - Riley: The Norseman device.
-- It can k*ll a sing person in the middle of a crowd with 100% accuracy.
+- It can k\*ll a sing person in the middle of a crowd with 100% accuracy.
 - God, what is that noise?
 - Sarah, Sarah, Sarah, no, no, no, no, no, help me!
 - (guests gasping)
@@ -33,14 +33,14 @@
 - Perfect.
 - We'll be ready for anything.
 - Chuck: The poison is called thorium.
-- I don't know much about it other than seeing it k*ll a room full of men.
+- I don't know much about it other than seeing it k\*ll a room full of men.
 - Thorium is a radioactive metal, not a poison.
 - Was it liquid or solid?
 - Liquid, yellowish.
 - It's linked to her DNA somehow.
 - Then the thorium's been synthesized.
 - Devon, do you have any ideas?
-- Poison g*n aren't in the textbooks. She's burning up.
+- Poison g\*n aren't in the textbooks. She's burning up.
 - I need a bath basin stat.
 - Hypothermia will decrease the heart rate and hopefully slow down any tissue damage.
 - Chuck, if she's going to survive the next 24 hours, we need to know exactly how this poison works.
@@ -78,7 +78,7 @@
 - Casey, you're going pale.
 - I go pale, you don't go pale.
 - Remember when I told you opening up the Agent X files would draw out a remorseless son of a bitch that would destroy our whole team without breaking a sweat?
-- This is the guy they hire to k*ll that guy.
+- This is the guy they hire to k\*ll that guy.
 - Agent Bartowski, Colonel Casey.
 - Chuck: Listen, pal, I don't know who you are and frankly I don't care.
 - I need Volkoff to save Sarah Walker's life.
@@ -137,7 +137,7 @@ Original Air Date on May 16, 2011
 - Sorry, Mom.
 - Don't get all icy on me, Volkoff.
 - I come in peace.
-- This transfer is not about k*ll you.
+- This transfer is not about k\*ll you.
 - CIA wants you for some testing, that's all.
 - Testing?
 - Regarding Agent X.
@@ -164,9 +164,9 @@ Original Air Date on May 16, 2011
 - You're coming with me.
 - I am?
 - Why?
-- Vivian sh*t Sarah with The Norseman--
+- Vivian sh\*t Sarah with The Norseman--
 - I don't have time to explain everything right now.
-- Who sh*t whom with what?
+- Who sh\*t whom with what?
 - Bartowski, you are galactically insubordinate.
 - I'm almost impressed.
 - I'm taking Volkoff with me.
@@ -201,7 +201,7 @@ Original Air Date on May 16, 2011
 - My fiancée has been poisoned by The Norseman, and right now, I need your help to save her life.
 - Right, right, The Norseman.
 - Um, it was developed alongside the Intersect.
-- And it was a w*apon of deterrence.
+- And it was a w\*apon of deterrence.
 - They were going to collect the DNA of all the top black marketeers in the world.
 - Oh, you could whack 'em if they got out of line.
 - That's smart. Reagan smart.
@@ -280,8 +280,8 @@ Original Air Date on May 16, 2011
 - They'll be happy to give us a free jump to Russia.
 - They love mixing it up with the Reds.
 - Decker: Bartowski!
-- (g*n cocking)
-- g*n. You may be the Intersect, boy, but you can't outrun a b*llet.
+- (g\*n cocking)
+- g\*n. You may be the Intersect, boy, but you can't outrun a b\*llet.
 - (sighs)
 - (grunting)
 - (electrical humming, groaning)
@@ -341,7 +341,7 @@ Original Air Date on May 16, 2011
 - You know I'm not gonna bail out on Walker.
 - You think I'm just gonna accept your offer, try to escape with Frost and Chuck.
 - But it's a setup.
-- And when I make my move, you k*ll us all.
+- And when I make my move, you k\*ll us all.
 - In the report, you make yourself out to be the good guy, right?
 - A real hero.
 - It's all right.
@@ -468,8 +468,8 @@ Original Air Date on May 16, 2011
 - Can I help you?
 - My name is Charles Car-- Chuck Bartowski, and I'm here to see Vivian Volkoff.
 - And what is this in regard to?
-- She wants to k*ll me.
-- (g*n cocking)
+- She wants to k\*ll me.
+- (g\*n cocking)
 - I don't believe it.
 - Charles Carmichael.
 - I'm impressed.
@@ -506,8 +506,8 @@ Original Air Date on May 16, 2011
 - Don't you see, Vivian?
 - You're a good person and you come from a good family.
 - You've fallen into the wrong world, the wrong life, but this isn't you.
-- You're not a k*ll.
-- I k*ll Sarah in cold bl*od.
+- You're not a k\*ll.
+- I k\*ll Sarah in cold bl\*od.
 - But you haven't, you haven't yet, there's still time.
 - You can give me the antidote and I can save her.
 - No.
@@ -685,7 +685,7 @@ Original Air Date on May 16, 2011
 - My life was changed forever.
 - My friends were put in danger.
 - My family...
-- My father was k*ll, Decker.
+- My father was k\*ll, Decker.
 - (laughs)
 - (static)
 - A plan? Sounds more like a conspiracy.

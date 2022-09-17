@@ -3,8 +3,8 @@
 - Hi, I'm Chuck. Here are a few things that you might need to know.
 - I'm putting together a new team, and I want you to lead them.
 - So this was your idea? Use my father's program to make your own Intersects?
-- Vicki, no! Don't sh**t!
-- (beeping) Chuck, are you about to disarm a nuclear b*mb using fruit juice?
+- Vicki, no! Don't sh\*\*t!
+- (beeping) Chuck, are you about to disarm a nuclear b\*mb using fruit juice?
 - Agent Bartowski, you will oversee all aspects of the Intersect project from here on out.
 - Mrs. Woodcomb? Yes?
 - I believe that I have something of yours.
@@ -51,7 +51,7 @@
 - Morgan: In charge. Well, man, I'm-I'm-I'm moved, here.
 - I'm so proud of you. Well, thanks. I-I appreciate the sentiment, Morgan. But it's really not that big a deal.
 - Although it does seem like it's been four years in the making.
-- Glad it hasn't gone to your head. I'm just saying, I may have saved the city by disarming a nuclear b*mb using a juice box... Yes, you did.
+- Glad it hasn't gone to your head. I'm just saying, I may have saved the city by disarming a nuclear b\*mb using a juice box... Yes, you did.
 - But, be careful, 'cause remember last time you were in charge, you led our party of D and D adventurers to their fiery deaths.
 - (Chuck laughs, clears his throat)
 - We've been over this, Morgan, okay?
@@ -238,14 +238,14 @@
 - I'm going to tell Brody he's the new Intersect.
 - A choice I feel very confident... (grunts)
 - What the... ?
-- It's bl*od.
+- It's bl\*od.
 - Ew.
 - And there's so much of it.
 - It's coming from over there.
 - (gasping)
 - Well, there goes your first choice.
 - Dear Lord!
-- There's been a m*rder!
+- There's been a m\*rder!
 - So, Large Mart claims that this kidnapping is in retaliation.
 - See, I know no one here would break a two-year prank detente with the Large Mart because, I as your leader, have forbid it.
 - Why? Because it's just that important.
@@ -266,7 +266,7 @@
 - I can't believe he's dead.
 - How could this happen on my watch to my top recruit? Who would do this?
 - Well, nobody's been in Castle for a week besides us, Bentley and the recruits.
-- That means the k*ll is still among us.
+- That means the k\*ll is still among us.
 - That's it, all of them.
 - Uh-uh.
 - (with British accent): And the one in your skivvies, mate.
@@ -283,32 +283,32 @@
 - We will be going over all of the surveillance footage and interrogating each and every one of you.
 - Now, Casey, Sarah, a little sidebar.
 - Looks like some of us are above suspicion.
-- Yes. Why do they get to keep their w*apon?
+- Yes. Why do they get to keep their w\*apon?
 - Yeah, who the hell are they?
 - Whoa, whoa, whoa, whoa. Okay, enough of that.
 - Casey here has been a part of Team Bartowski proudly, for years now, and has saved my life countless times.
 - Oh, I get it now.
 - You're the Intersect's brainless heavy.
-- Colonel Casey would never k*ll anyone... who didn't deserve it.
+- Colonel Casey would never k\*ll anyone... who didn't deserve it.
 - What about her?
-- Uh, I think I can safely say that my fiancee here would never k*ll anyone... who didn't deserve it.
+- Uh, I think I can safely say that my fiancee here would never k\*ll anyone... who didn't deserve it.
 - Your fiancee, huh?
 - Now I see it. What is that supposed to mean?
 - Wait, ba-ba-ba-ba, okay, okay.
 - You go back over there. You go back over there.
 - You come over here.
 - As I was saying, it is not Casey, nor is it Sarah.
-- So therefore, the k*ll must be one of you.
+- So therefore, the k\*ll must be one of you.
 - Right. Let's blame the swarthy, bearded guy.
 - No, no.
-- Lewis: I have lots of friends who are t*rrorists.
+- Lewis: I have lots of friends who are t\*rrorists.
 - This is just what my face looks like!
 - I didn't spend the last ten years in a cave for my country to have to deal with this.
 - I'm totally out of here.
 - Oh, and by the way, I'm Greek.
 - Greek? I wouldn't have guessed that.
 - Damian, wait!
-- Don't sh**t anyone, Casey.
+- Don't sh\*\*t anyone, Casey.
 - Damian, wait.
 - Wait.
 - Damian, halt. Please halt.
@@ -317,7 +317,7 @@
 - (beeping)
 - Damian, no!
 - Just get me out h here.
-- 'He's losing a lot of bl*od.
+- 'He's losing a lot of bl\*od.
 - I need a doctor!
 - I'm grabbing some bandages.
 - Let's just put some pressure on the wou. .
@@ -325,26 +325,26 @@
 - Sarah, everything is off-line.
 - We can't access the surveillance videos anymore, and all communication channels with CIA are dark.
 - Good job getting the emergency lights back up.
-- The b*mb was linked to the three others.
+- The b\*mb was linked to the three others.
 - The main power grid is out.
 - Since the doors were already on lockdown, we're in here without any support. We're trapped?
 - This is not going well.
 - Listen to me, Chuck, the most important thing about leadership is to convince everybody that you have everything under control.
 - What if instead Casey was in charge, yeah?
 - Or maybe you could be in charge. It doesn't work like that.
-- I had my sh*t.
+- I had my sh\*t.
 - Almost nuked the Inland Empire.
 - These people have been following you for a week.
 - Chuck, look, you're not in charge by accident.
-- You did disarm a nuclear b*mb containing fruit juice.
+- You did disarm a nuclear b\*mb containing fruit juice.
 - Okay, you can do this.
 - We're right behind you.
 - Thanks.
 - Okay, so... so here's the thing.
-- We are officially checked in, now, with a k*ll, but not to worry... I have everything under control.
+- We are officially checked in, now, with a k\*ll, but not to worry... I have everything under control.
 - (yells) (electrical crackling)
 - I feel calm.
-- Bloody hell, we're sitting here disarmed and the meat head has all the g*n.
+- Bloody hell, we're sitting here disarmed and the meat head has all the g\*n.
 - Casey, listen, you need to swallow this, okay? What's most important now is to support Chuck. He needs to look like the boss. Fine.
 - I still don't trust an American operative with a British accent.
 - Well, it's not my fault.
@@ -406,7 +406,7 @@
 - I would never do anything like this.
 - Oh, wouldn't you?
 - I mean, you've already gone after my sister, so clearly you are willing to do anything to benefit your own project.
-- Including m*rder.
+- Including m\*rder.
 - And you're the only one who knew that Brody was my first choice. Brody made you light up like a 13-year-old girl.
 - Everyone knew he was your first choice.
 - What? Really?
@@ -429,7 +429,7 @@
 - There's no torture going on in here!
 - Although there is no clear definition.
 - (quietly): Sarah...
-- Look, we're gonna get you some more k*ll very soon.
+- Look, we're gonna get you some more k\*ll very soon.
 - But first, you're gonna answer a few more questions, okay?
 - For example, why is your bag covered in sand, huh?
 - Which happens to be a great way to throw off our X-ray equipment. Mighty convenient.
@@ -439,7 +439,7 @@
 - Old school. I like it.
 - It doesn't even work... because there's sand in it.
 - (groans)
-- Lewis, my tech guy... and suspiciously, an elite b*mb specialist.
+- Lewis, my tech guy... and suspiciously, an elite b\*mb specialist.
 - You knew I had high hopes for you.
 - Maybe that was your motivation.
 - I mean, you knew that Brody was my first choice and that you were my second.
@@ -447,14 +447,14 @@
 - You didn't, you didn't know that?
 - Oh, looky what we have here!
 - Sharp! Can you explain this?
-- Uh, it's my kn*fe.
-- Yes, but why do you have a kn*fe used by an IRA b*mb maker in your bag?
-- Because I k*ll an IRA b*mb maker and I took it from him.
-- Casey: Walker, Bartowski, you figure out who the k*ll is yet?
+- Uh, it's my kn\*fe.
+- Yes, but why do you have a kn\*fe used by an IRA b\*mb maker in your bag?
+- Because I k\*ll an IRA b\*mb maker and I took it from him.
+- Casey: Walker, Bartowski, you figure out who the k\*ll is yet?
 - No luck. It could be any one of them.
-- All we know is that whoever the k*ll is, they were sitting in that chair.
+- All we know is that whoever the k\*ll is, they were sitting in that chair.
 - I'm not even sure that we know that much.
-- (device trills) Actually, Sarah, I'm pretty certain, as there is a b*mb strapped to the bottom of the chair.
+- (device trills) Actually, Sarah, I'm pretty certain, as there is a b\*mb strapped to the bottom of the chair.
 - We gotta go right now!
 - Did you feel that?
 - I haven't felt anything for years.
@@ -463,7 +463,7 @@
 - My ears are ringing! I can't hear anything!
 - Are you okay?
 - (coughing)
-- (g*n hammer cocks)
+- (g\*n hammer cocks)
 - Walker, glad you're still alive.
 - Yeah, I'm good, too. Thanks, buddy.
 - (Sarah coughs)
@@ -473,9 +473,9 @@
 - Unless we die here.
 - Then he'll have to wait.
 - Everyone's here except Lewis.
-- Sarah: Yeah, of course, the b*mb expert.
-- He must have set up the b*mb so he could get away, which means...
-- Lewis is the k*ll.
+- Sarah: Yeah, of course, the b\*mb expert.
+- He must have set up the b\*mb so he could get away, which means...
+- Lewis is the k\*ll.
 - Seriously?
 - He was my second choice.
 - This is not just Car BM we're talking about here.
@@ -492,20 +492,20 @@
 - Okay, Damian's unconscious, but he's still alive, for now.
 - (electrical whirring)
 - Look, the good news is we can trust each other again.
-- Lewis is clearly the one who planted the b*mb and k*ll Brody, who probably caught him in the process.
+- Lewis is clearly the one who planted the b\*mb and k\*ll Brody, who probably caught him in the process.
 - Brody!
 - (gasps)
 - We're gonna need all hands on deck.
 - Lewis is in Castle with nowhere to go.
-- That guy can build a b*mb out of anything.
+- That guy can build a b\*mb out of anything.
 - Watch for trip wires, booby-traps.
 - Yeah, also remember it's important that we capture this guy alive.
 - Okay? We need to find out who he's working for.
 - Why he would have sabotaged Castle.
 - You just gonna stand around and talk about it, leader?
 - No, I'm gonna find Lewis and I'm gonna take that bastard down.
-- (g*n cock)
-- Listen, Director, I just wanted to apologize for accusing you of m*rder.
+- (g\*n cock)
+- Listen, Director, I just wanted to apologize for accusing you of m\*rder.
 - And if you promise to stay away from my sister, I think we can get past it.
 - Maybe even become friends.
 - Do you know what your problem is?
@@ -544,7 +544,7 @@
 - That means Lewis is still out there.
 - And all I've got is you. Whoa! Where you going?
 - I'm going to the Intersect room.
-- It's b*mb and it's the safest place in Castle.
+- It's b\*mb and it's the safest place in Castle.
 - Don't you... ?
 - Director, stop! I command you!
 - Hey, hey! I don't wanna pull rank here, but you can't just walk away from me like that.
@@ -562,46 +562,46 @@
 - We got you, Lewis.
 - There's nowhere left to go.
 - (hydraulic whirring)
-- I think we can safely say that Lewis is not the k*ll.
+- I think we can safely say that Lewis is not the k\*ll.
 - Brilliant deduction, Sherlock.
 - It was bad. I mean I've seen bad, but this was grizzly.
-- That means the k*ll's still out there.
+- That means the k\*ll's still out there.
 - Leaves just the ladies. Figures.
 - All right, let's finish this.
 - It's not me, so that leaves you.
 - My sentiments exactly.
-- All right, everybody shut up and put your w*apon down.
+- All right, everybody shut up and put your w\*apon down.
 - Unless it's one of them.
-- Whoa-whoa-whoa! Drop your g*n.
-- You drop your g*n! I want this to be over!
+- Whoa-whoa-whoa! Drop your g\*n.
+- You drop your g\*n! I want this to be over!
 - This is a mess. Okay, leader, whatcha got?
-- Who's the k*ll?
-- There's been a m*rder!
+- Who's the k\*ll?
+- There's been a m\*rder!
 - I know who did it.
 - What?
-- At first, I thought Brody's k*ll had to be Lewis, since it made sense that my second choice would want to k*ll my first choice.
+- At first, I thought Brody's k\*ll had to be Lewis, since it made sense that my second choice would want to k\*ll my first choice.
 - So I'm not your first or second choice. That's good to know.
 - No, no, no, no, no, no, look, look, I loved all of you guys.
 - Really. It's just that there can only be one number one and one number two, but they're both dead now.
-- And if it makes you feel any better, I did suspect you of being the k*ll for a little while, mainly because of your...
+- And if it makes you feel any better, I did suspect you of being the k\*ll for a little while, mainly because of your...
 - volatile emotional state.
 - (gasps) Sorry.
-- But you're not a m*rder.
+- But you're not a m\*rder.
 - While going through your things, I found the pregnancy stick.
 - You're expecting.
 - Congratulations. I hope you're blessed with a boy.
 - So, which brings me to where my suspicions have been pointing the entire time.
 - You must be joking.
-- Only one person was unaccounted for during Brody's and Lewis's m*rder...
+- Only one person was unaccounted for during Brody's and Lewis's m\*rder...
 - My opinion is you're going to screw it up.
 - ... and who has unique access to Castle's infrastructure.
 - (whirring)
 - I'd be very careful.
 - (whispers): I know it isn't you.
 - Casey: What?
-- She had ample opportunity to k*ll me, and she didn't take it, okay?
+- She had ample opportunity to k\*ll me, and she didn't take it, okay?
 - I just wanted everyone on this side of the room so I could quietly tell you: it's Damien.
-- He's the k*ll, and he's probably armed.
+- He's the k\*ll, and he's probably armed.
 - Let's do it.
 - I'll flank him on the left.
 - I got your right.
@@ -616,22 +616,22 @@
 - I wasn't even one of your choices.
 - 'Cause you don't want to die.
 - You've wanted out of here all along.
-- Brody caught you planting the expl*sives in Castle.
+- Brody caught you planting the expl\*sives in Castle.
 - What are you doing?
-- Chuck: That's why you k*ll him, and had to cover your tracks.
+- Chuck: That's why you k\*ll him, and had to cover your tracks.
 - (groans)
-- But when we locked this place down, you knew it was only a matter of time before we knew that you were the k*ll.
+- But when we locked this place down, you knew it was only a matter of time before we knew that you were the k\*ll.
 - And that's when you really committed.
 - By blowing yourself up.
-- Chuck: Knowing where the expl*sives were placed, you used the door to shield yourself from the blast.
+- Chuck: Knowing where the expl\*sives were placed, you used the door to shield yourself from the blast.
 - Bold move.
 - I had no choice.
-- But the b*mb locked all the doors.
+- But the b\*mb locked all the doors.
 - So you tried a new method.
-- Thinking that if we had a k*ll in mind, we'd get you out. So, you planted a b*mb under your chair, during your interrogation.
+- Thinking that if we had a k\*ll in mind, we'd get you out. So, you planted a b\*mb under your chair, during your interrogation.
 - Ah! This is torture!
 - You're torturing me!
-- When the b*mb went off, you used the chaos as cover to k*ll and hide Lewis.
+- When the b\*mb went off, you used the chaos as cover to k\*ll and hide Lewis.
 - But unfortunately for you, we found him.
 - So now we know what happened, but we don't know why.
 - Who are you working for, Damian?
@@ -642,12 +642,12 @@
 - You know what you have to do.
 - We can't let you leave.
 - You know that.
-- So just put the b*mb down.
+- So just put the b\*mb down.
 - No, thanks.
 - It's your choice, boss.
-- (g*n)
+- (g\*n)
 - (groans)
-- Sarah, the b*mb's been activated.
+- Sarah, the b\*mb's been activated.
 - It's okay, Chuck, you can do this.
 - I can, normally, yes, but not this fast. There are so many security measures, I just can't defuse it in that amount of time.
 - Chuck, keep everybody as far away from the Intersect room as possible. No, Bentley!
@@ -657,7 +657,7 @@
 - The power's out, the doors won't shut!
 - There's a manual release.
 - No. No, no, no, no, there's got to be another way.
-- (g*n hammer cocks)
+- (g\*n hammer cocks)
 - This is what a leader does.
 - Hey.
 - I hotwired the control panel, using my stupid pocket protector, thank you very much.
@@ -666,7 +666,7 @@
 - (squealing)
 - Oh! (squeals)
 - (grunts)
-- Congratulations on solving the m*rder mystery and for saving Castle from destruction.
+- Congratulations on solving the m\*rder mystery and for saving Castle from destruction.
 - And a special commendation to you, Chuck.
 - You were a true leader.
 - Thank you, General.
@@ -711,7 +711,7 @@
 - Yeah, of course it is.
 - (pig grunting) Oh, hey.
 - Chuck: Let me guess.
-- Jeff and Lester stole the porcine v*ctim, Large Mart snatched Big Mike in retaliation, he was able to liberate himself, but they still torched the big B. M. on your doorstep.
+- Jeff and Lester stole the porcine v\*ctim, Large Mart snatched Big Mike in retaliation, he was able to liberate himself, but they still torched the big B. M. on your doorstep.
 - You, you left out, uh... nothing, no, that's right, that's exactly right. I figured as much.
 - Yeah, pretty much. What happened to you?
 - It's been a long day.
@@ -749,11 +749,11 @@
 - Beckman: Good. You're all here.
 - I wanted to get in touch with you right away.
 - We've interrogated Damian, and he wasn't trying to obtain the Intersect.
-- He was simply hired to b*mb Castle.
+- He was simply hired to b\*mb Castle.
 - Have we figured out who he was working for?
 - It turns out Damian was wired $10 million by none other than Vivian Volkoff.
 - It appears she's going after the man who took down her father.
-- Wait! Wait, wait, Vivian Volkoff is trying to k*ll me?
+- Wait! Wait, wait, Vivian Volkoff is trying to k\*ll me?
 - Your team will be contacted should any more information surface. For now, remain on high alert.
 - I'm someone's nemesis?
 - For real, this time.

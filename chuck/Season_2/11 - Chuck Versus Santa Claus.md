@@ -40,7 +40,7 @@
 - Anna: I say he crashes and we end up with a stand-off, maybe hostages.
 - Never going to happen.
 - Please, you guys are amateurs.
-- This has "b*at" written all over it.
+- This has "b\*at" written all over it.
 - Lester: Okay, bring it in then. Bring it in, everybody. Bring it in.
 - Well, it's nice to see everyone's in the Christmas spirit this morning.
 - This is how we roll...
@@ -49,7 +49,7 @@
 - Round up the freaks, have everyone meet me at Santa's village. Pronto!
 - This is it, people.
 - D-day.
-- You ready for w*r?
+- You ready for w\*r?
 - You got what it takes? !
 - Take a sniff, Grimes!
 - Tell this band of misfits what you smell.
@@ -63,7 +63,7 @@
 - So, don't!
 - Hey, thank you.
 - Hey, what's going on?
-- We, uh, we decided we'd b*at the rush and take advantage of the friends and family discount.
+- We, uh, we decided we'd b\*at the rush and take advantage of the friends and family discount.
 - Oh, don't worry about getting me a gift, babe.
 - You already did.
 - I did?
@@ -120,7 +120,7 @@
 - All: Chuck!
 - Actually, I'm not technically in charge.
 - I don't want to hurt anyone, Chuck.
-- So, as long as no one gets brave, no one gets sh*t, okay? !
+- So, as long as no one gets brave, no one gets sh\*t, okay? !
 - Okay.
 - I think we're safe. Yeah.
 - Um, this store has a very strict "no bravery policy. "
@@ -143,7 +143,7 @@
 - Not even a speeding ticket in the past ten years.
 - Well, Nathan picked himself the wrong place to be naughty instead of nice.
 - Now, I get to play with my new toy I got myself for Christmas.
-- General, if we go in g*n blazing, Chuck's cover will be blown.
+- General, if we go in g\*n blazing, Chuck's cover will be blown.
 - The guy seems pretty timid, not someone the local PD couldn't handle.
 - What are you saying, Agent Walker?
 - I'm saying that Chuck has family and friends in there, and if we blow Chuck's cover, then not only he will have to go underground, but so will everyone else.
@@ -158,7 +158,7 @@
 - It's an electronic store, Major.
 - Not Basra.
 - Get it under control.
-- This is Maureen Mitsubishi, KPFW News, reporting from the Burbank Buy More, where some unlucky employees are spending the day before Christmas with an armed g*n instead of their loved ones.
+- This is Maureen Mitsubishi, KPFW News, reporting from the Burbank Buy More, where some unlucky employees are spending the day before Christmas with an armed g\*n instead of their loved ones.
 - Who's in charge here?
 - Well, I am, sir. Al Powell. Burbank PD.
 - Who are you?
@@ -187,7 +187,7 @@
 - That's a terrible picture of me.
 - Hey, you can put your hands down.
 - You know, the truth is I'm really not a bad guy once you get to know me.
-- When you're not crashing your car into electronics stores and waving a g*n around?
+- When you're not crashing your car into electronics stores and waving a g\*n around?
 - Yeah.
 - Look, I know it's no excuse, but I lost my job, man.
 - All I wanted was to get a few gifts for my kids so we could celebrate Christmas.
@@ -298,7 +298,7 @@
 - (screaming)
 - No, no, no, Ned!
 - Chuck, what's going on?
-- Ned, Ned, please, please, please don't sh**t that g*n.
+- Ned, Ned, please, please, please don't sh\*\*t that g\*n.
 - Who are they?
 - They're harmless.
 - They're harmless, okay?
@@ -308,25 +308,25 @@
 - Hi.
 - And this is John Casey, who's even more harmless than she is.
 - John Casey.
-- Ned, please, just uncock the g*n.
+- Ned, please, just uncock the g\*n.
 - Okay.
 - How do I do that?
 - 'Cause the truth is, I never used one of these before.
 - There's probably a button on it, like a safety or something like that.
 - Just go ahead and push...
 - No, no, no!
-- (g*n) Oh, my God. Chuck!
-- We have g*n.
-- I repeat: we hear g*n.
+- (g\*n) Oh, my God. Chuck!
+- We have g\*n.
+- I repeat: we hear g\*n.
 - Ned: Oh! Oh! Oh!
 - Casey: My foot!
 - I'm so sorry.
 - I'm so sorry. Are you okay?
-- I didn't mean to sh**t you, I promise.
+- I didn't mean to sh\*\*t you, I promise.
 - We need a SWAT team down here pronto.
 - Chuck: It's okay, everyone.
 - It was a mistake.
-- An accidental sh**ting.
+- An accidental sh\*\*ting.
 - But Casey is going to be just fine.
 - You idiot. You owe me a toe, Bartowski.
 - (nervous chuckle)
@@ -341,7 +341,7 @@
 - You're the one who scared him.
 - You okay?
 - I'm just scared.
-- I've never been this close to a g*n before.
+- I've never been this close to a g\*n before.
 - Yeah, me, neither.
 - You know what? We'll... we'll be okay.
 - We just have to stick together.
@@ -360,7 +360,7 @@
 - So am I.
 - Chuck: Wait. Hold on.
 - This is a very, very bad idea, okay?
-- Ned sh*t Casey on accident.
+- Ned sh\*t Casey on accident.
 - He's not trying to hurt anybody.
 - We need to let the police handle this.
 - Chuck's right. Let the cops handle this.
@@ -378,16 +378,16 @@
 - Chuck: Yeah, coming right now.
 - Don't do anything.
 - Do nothing. I will be right back.
-- Hey, hey, I, uh... I feel terrible about sh**ting your friend's toe off.
+- Hey, hey, I, uh... I feel terrible about sh\*\*ting your friend's toe off.
 - No, no, no, no, that's okay.
-- Sometimes, I feel like sh**ting him myself.
+- Sometimes, I feel like sh\*\*ting him myself.
 - This is Chuck.
 - Okay, okay, talk to me, Chuck.
-- We heard g*n.
+- We heard g\*n.
 - What's going on in there?
 - Everything's under control.
 - Everything is-is just fine.
-- There was an accidental sh*t fired and someone lost the majority of their toe, but besides that, everything's okay.
+- There was an accidental sh\*t fired and someone lost the majority of their toe, but besides that, everything's okay.
 - (growls)
 - Mauser: Put him on the phone.
 - I want to talk to him now.
@@ -604,7 +604,7 @@
 - (both chuckle)
 - I have no idea what you're talking about, Lieutenant.
 - Do you see, uh, Ned over there?
-- I'd hate to see him sh**t your pretty little sister if he thought you were not cooperating with me.
+- I'd hate to see him sh\*\*t your pretty little sister if he thought you were not cooperating with me.
 - Look, I'm, I'm just an analyst, okay?
 - Please don't hurt anyone.
 - Chuck, you're way more than just an analyst.
@@ -613,7 +613,7 @@
 - The same Bryce Larkin that stole the Intersect from us.
 - Bryce Larkin is dead.
 - And I'm done negotiating.
-- (cocks g*n)
+- (cocks g\*n)
 - Wait.
 - Wait, wait, wait, wait. Stop him. Stop him.
 - Please stop him.
@@ -633,7 +633,7 @@
 - No.
 - Well, then would you mind if I said good-bye to her, please?
 - Okay.
-- But if you say or do anything to call attention to me or your situation, Ned's gonna sh**t her, capisce?
+- But if you say or do anything to call attention to me or your situation, Ned's gonna sh\*\*t her, capisce?
 - Yeah.
 - Okay, good.
 - Go ahead.
@@ -692,7 +692,7 @@
 - (chuckling)
 - (grunting)
 - (groans)
-- You may have b*at me, Agent Walker, but FULCRUM's won.
+- You may have b\*at me, Agent Walker, but FULCRUM's won.
 - I know Chuck Bartowski's the Intersect.
 - Chuck's secret is safe.
 - And you're going straight to a CIA detention facility, never to be seen or heard from again.
@@ -705,7 +705,7 @@
 - It's going to be the end of his pathetic existence.
 - So take me in, Agent Walker.
 - Ready to go.
-- (silenced g*n)
+- (silenced g\*n)
 - Oh, God...
 - ♪ ♪
 ♪ ♪
@@ -749,6 +749,6 @@
 - I'm so glad that you have it.
 - Yeah, me, too.
 - Let me ask you something.
-- What do you do when you see your girlfriend do something so horrific, it's permanently b*rned into your brain?
+- What do you do when you see your girlfriend do something so horrific, it's permanently b\*rned into your brain?
 - I don't know, buddy.
 - But I know exactly what you mean.

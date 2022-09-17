@@ -18,7 +18,7 @@
 - Other side of the street. You should be hitting a one-way.
 - Head south to initiate intercept.
 - Roger that.
-- You okay? Your bl*od pressure just went through the roof.
+- You okay? Your bl\*od pressure just went through the roof.
 - (horn beeps)
 - I'm fine.
 - How much time till intercept?
@@ -229,7 +229,7 @@ Original Air Date on November 11, 2011
 - Think it through, moron.
 - You walk out on us, you never walk back.
 - Please, save it, all right, everybody?
-- You had the greatest w*apon on the planet and you chose not to use me.
+- You had the greatest w\*apon on the planet and you chose not to use me.
 - That's on you.
 - So you went and told Verbanski about the Intersect?
 - Morgan, we were just trying to protect you, that's all.
@@ -252,7 +252,7 @@ Original Air Date on November 11, 2011
 - You... !
 - Just let him go.
 - Casey: What do you want me to do?
-- You want me to k*ll him? 'Cause I'll k*ll him.
+- You want me to k\*ll him? 'Cause I'll k\*ll him.
 - Better yet, let's keep him alive.
 - You can work him over for a while. Yeah.
 - No, Dad, I don't want you to hurt Morgan.
@@ -274,7 +274,7 @@ Original Air Date on November 11, 2011
 - You know, he's right.
 - We should head to the Buy More.
 - That backup juicer's probably on its last leg.
-- Yeah, that should k*ll a couple hours.
+- Yeah, that should k\*ll a couple hours.
 - Just got to make it to dinner, right?
 - Something is wrong with Morgan.
 - This isn't like him.
@@ -323,13 +323,13 @@ Original Air Date on November 11, 2011
 - Hey, what's the big idea?
 - (coughs) Get up, Jeff.
 - Use your legs.
-- I am going to take a kn*fe and fork and just eat those chubby little cheeks.
+- I am going to take a kn\*fe and fork and just eat those chubby little cheeks.
 - (crying)
 - Yes, Uncle Lester...
 - What are you doing, man? You're scaring her.
 - No.
 - Okay? And what are you doing?
-- Are you trying to k*ll yourself?
+- Are you trying to k\*ll yourself?
 - I'm just taking off the exhaust pipe, trying to squeeze a few more horses out of the beast.
 - Ever hear of carbon monoxide, hmm, guys?
 - Can't leave your engine running.
@@ -351,13 +351,13 @@ Original Air Date on November 11, 2011
 - My biological clock is tick-tocking.
 - (men grunting)
 - Sarah: You realize this is breaking and entering.
-- Verbanski can sh**t us all with impunity.
+- Verbanski can sh\*\*t us all with impunity.
 - Well, her little goon Grimes stole our mission.
 - We're going to steal it back.
 - So this has nothing to do with revenge against Gertrude and Morgan?
 - Absolutely not.
 - If we don't get the bounty on Zorn, Carmichael Industries goes belly up.
-- And if we don't stop Zorn from posting those files, no telling how many agents are going to get b*rned.
+- And if we don't stop Zorn from posting those files, no telling how many agents are going to get b\*rned.
 - Sarah: Fine. Where are we going?
 - The zip drive's in your girlfriend's office, Casey.
 - The only problem is getting through the door.
@@ -481,11 +481,11 @@ Original Air Date on November 11, 2011
 - You know what I'm capable of.
 - Just hand it over before someone gets hurt.
 - Sarah: Sorry, Morgan.
-- (g*n clicking)
+- (g\*n clicking)
 - (sighs) God, I love the Intersect.
 - Oh, really?
 - That's what we're going to do here?
-- (g*n clicks)
+- (g\*n clicks)
 - Zorn arrives in L.A. tonight.
 - Business meeting downtown.
 - Just enough time for him to switch planes and disappear.
@@ -609,10 +609,10 @@ Original Air Date on November 11, 2011
 - If we land Zorn, there's no telling what kind of business Beckman is going to send us.
 - Okay.
 - We don't stop them, Gertrude's going to put us out of business. This isn't about business.
-- (g*n cocking)
+- (g\*n cocking)
 - Chuck, what are you doing?
 - I'm going to talk to my friend.
-- Morgan. Don't sh**t.
+- Morgan. Don't sh\*\*t.
 - Take him out before he spooks the target.
 - I wouldn't do that if I were you.
 - What'd you think, Chuck, you and your team were just gonna swoop in here and snatch up Zorn?
@@ -620,9 +620,9 @@ Original Air Date on November 11, 2011
 - This isn't about Zorn. I'm here to help you, Morgan.
 - Oh, right, right. Like before, when you pulled my pants down and you tranq'd me? !
 - (door opens)
-- (g*n cocking)
-- (g*n)
-- Stop sh**ting! What do you want?
+- (g\*n cocking)
+- (g\*n)
+- Stop sh\*\*ting! What do you want?
 - Mats Zorn, you're under arrest.
 - Mats Zorn, you're under arrest.
 - (grunting)
@@ -646,18 +646,18 @@ Original Air Date on November 11, 2011
 - Yes, Morgan!
 - Do you?
 - (helicopter powering up)
-- (cocks g*n)
+- (cocks g\*n)
 - Holy hell! Is that real?
 - Turn off the engine, Zorn!
 - Aah.
 - Stop the engine or I will blow us all to hell!
-- Morgan, you're not a k*ll.
+- Morgan, you're not a k\*ll.
 - Shut up, Chuck, okay? How would you know?
 - Because you got pantsed by Meredith Lester in seventh grade.
 - Chuck, you've got to unlock his memory.
 - I don't even remember seventh grade.
 - Sure you do.
-- Put the g*n down, Morgan, and try to remember what she did to you.
+- Put the g\*n down, Morgan, and try to remember what she did to you.
 - Even if I did remember, Chuck-- why?
 - Why would I want to remember being humiliated by some stupid girl?
 - Because then you'd remember how we got back at her.
@@ -693,7 +693,7 @@ Original Air Date on November 11, 2011
 - Morgan!
 - Oh, God...
 - (coughing)
-- The auxiliary t*nk's gonna blow the whole roof!
+- The auxiliary t\*nk's gonna blow the whole roof!
 - Hey, Chuck!
 - I knew you were into me, John.
 - Shut up, Gertrude.
@@ -711,7 +711,7 @@ Original Air Date on November 11, 2011
 - If I take the Smith and Wesson, it'll show her that I'm rugged and dependable.
 - Maybe the Sig, she'll think I'm cool and sophisticated.
 - I'll just take 'em both.
-- So you're taking Verbanski to the g*n range on your first date?
+- So you're taking Verbanski to the g\*n range on your first date?
 - Weird move, huh?
 - No, I think she's going to love it.
 - Well, good luck.
@@ -739,7 +739,7 @@ Original Air Date on November 11, 2011
 - What do you care if something's a good idea of not.
 - Could I have the money, please?
 - It just sounds... really dangerous.
-- Yeah. I know. What if we k*ll him?
+- Yeah. I know. What if we k\*ll him?
 - That's totally worth 20 bucks.
 - I will not be party to the reckless endangerment of a coworker.
 - And, if I might add, a friend.
@@ -821,7 +821,7 @@ Original Air Date on November 11, 2011
 - (tires screech)
 - We have another problem, Chuck.
 - There's something I thought you should see.
-- This is a k*ll order. This has gotta be a mistake.
+- This is a k\*ll order. This has gotta be a mistake.
 - Morgan told anyone who wanted to hear he had the Intersect.
 - The CIA does not like that.
 - It was a mistake.

@@ -131,7 +131,7 @@
 - All I do know is that I want you to be in it.
 - Please, I really have to tell you.
 - No.
-- No g*n, no lies, just us.
+- No g\*n, no lies, just us.
 - Just like I've always wanted it.
 - I've recently come into a little bit of money.
 - So, any place you want to go, any place at all as long as it's sunny, with little umbrella drinks.
@@ -161,7 +161,7 @@
 - I-I can't, I can't, I can't give you that.
 - Oh, you'll find a way, I'm sure.
 - Oh, sorry, I forgot the threat part.
-- If you don't deliver that Cube within a half hour, 40 minutes tops with traffic, I'm going to k*ll the bride.
+- If you don't deliver that Cube within a half hour, 40 minutes tops with traffic, I'm going to k\*ll the bride.
 - Nice.
 - Hey, Chuck.
 - Sorry, can I talk to you real quick?
@@ -174,7 +174,7 @@
 - It's the rings.
 - It's the rings. I have to go home and get them.
 - Find Sarah, pull her aside, and specifically tell her that I forgot the rings.
-- The wedding is in 20 minutes. Ellie is gonna k*ll you.
+- The wedding is in 20 minutes. Ellie is gonna k\*ll you.
 - Thanks for that.
 - Unless...
 - I stall the wedding.
@@ -225,10 +225,10 @@
 - That's top secret. Not even Beckman...
 - No, I need it, Bryce. I need it. My family's in danger.
 - Ted Roark and his FULCRUM team are at the wedding.
-- He's going to k*ll Ellie unless I bring him the Cube.
+- He's going to k\*ll Ellie unless I bring him the Cube.
 - Roark can't have it.
 - No.
-- He'll m*rder everyone.
+- He'll m\*rder everyone.
 - No. You're going to give them me.
 - They think you're the Intersect.
 - They've been looking for me all along.
@@ -261,7 +261,7 @@
 - Ted Roark and his men are inside.
 - He's alive?
 - How did... ?
-- Did you bring a g*n?
+- Did you bring a g\*n?
 - I'll think of something.
 - Please, check the chapel and the bridal chamber.
 - Make sure there's nobody else.
@@ -307,7 +307,7 @@
 - Today is my sister's wedding day, and believe me, you don't want to see her angry.
 - Where's the Intersect, Chuck?
 - Uh, a-about that...
-- k*ll him.
+- k\*ll him.
 - Ho! Ho! Ho! Ho!
 - Ho down. Ho down. I mean, hold on.
 - Just hold on a second, all right?
@@ -322,7 +322,7 @@
 - We leave, they stay, nobody else needs to know.
 - Terrific plan.
 - Thing of it is, FULCRUM wants Chuck here dead no matter what.
-- So, with that said, sh**t Mr. Bartowski, or...
+- So, with that said, sh\*\*t Mr. Bartowski, or...
 - Sarah, take him.
 - Oh, God, not the flowers!
 - Not the centerpieces.
@@ -331,10 +331,10 @@
 - Get up!
 - Okay.
 - Oh, God.
-- Someone just sh**t me now.
+- Someone just sh\*\*t me now.
 - I can help you with that, Chuck.
 - Mm.
-- A real g*n wedding.
+- A real g\*n wedding.
 - Just think, that terrible pun is the last thing you'll ever hear.
 - Hello, Ted.
 - Waited 20 years to do that.
@@ -420,7 +420,7 @@
 - I'm not with FULCRUM.
 - Go ahead and pull the trigger.
 - I don't want to look at your face.
-- You just k*ll three Marines in cold bl*od.
+- You just k\*ll three Marines in cold bl\*od.
 - Yeah.
 - But none of them saved my life.
 - Hi.
@@ -498,7 +498,7 @@
 - That man isn't CIA.
 - Bryce.
 - Bryce is getting the upload tonight.
-- They're going to k*ll him.
+- They're going to k\*ll him.
 - They'll download the Intersect into their team instead.
 - Well, if they know about Bryce, they know about Casey.
 - Sarah...
@@ -536,7 +536,7 @@
 - Bryce, Casey and Sarah are pinned down outside.
 - I'm on it.
 - Oh, my God... oh, my God.
-- Oh, my God, you've been sh*t.
+- Oh, my God, you've been sh\*t.
 - Yeah.
 - I'm really sorry about this, Chuck.
 - No.
@@ -562,7 +562,7 @@
 - You have to do this.
 - All right?
 - You have to destroy that computer, and then get out of here.
-- Yeah, but you can b*at them.
+- Yeah, but you can b\*at them.
 - You're a real... hero, Bryce.
 - Bryce.
 - Oh, my God.
@@ -594,6 +594,6 @@
 - Chuck, did you just flash?
 - He uploaded it.
 - Oh, Chuck me.
-- k*ll him.
+- k\*ll him.
 - Chuck?
 - Guys... I know kung fu.

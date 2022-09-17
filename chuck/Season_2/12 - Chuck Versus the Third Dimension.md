@@ -24,7 +24,7 @@
 - I'm normally much more respectful of women even in my dreams.
 - It's just that, you know, anxiety and fear can-can really, um... affect your dream life.
 - And what are you afraid of?
-- I watched you k*ll that FULCRUM agent in cold bl*od.
+- I watched you k\*ll that FULCRUM agent in cold bl\*od.
 - Sarah, I am... I am not like you, okay?
 - I might have all these government secrets in my brain, but that does not make me a real spy.
 - I need to tell you this in reality, not in my dream.
@@ -140,7 +140,7 @@
 - I'm sure you're wondering why would someone want Tyler Martin dead.
 - Not really. I mean, have you heard his music?
 - It's overly produced, the lyrics are completely banal.
-- I mean, Facebook even has a group called I Want To k*ll Tyler Martin.
+- I mean, Facebook even has a group called I Want To k\*ll Tyler Martin.
 - Not that I'm a member.
 - I wouldn't ever...
 - That's just wrong.
@@ -340,7 +340,7 @@
 - And this here is Chuck.
 - Chuck is in my band.
 - Yeah... yeah, I'm in his band all right.
-- Drummer-- just laying the b*at down.
+- Drummer-- just laying the b\*at down.
 - Like a little drummer boy.
 - Come, they told me.
 - Pa-rump-a-pum-pum.
@@ -395,7 +395,7 @@
 - We got a problem.
 - These girls want to take us upstairs and do despicable things to us.
 - Tyler, Tyler, that's... that's not such a great idea.
-- All the best nights of my life have g*n with that very sentence.
+- All the best nights of my life have g\*n with that very sentence.
 - Which brings us to the final leg of our triathlon.
 - Good lord, is that...
 - Yeah, Butterman, it is.
@@ -477,7 +477,7 @@
 - Interesting tactical decision there.
 - Well, time-out, listen, he woke up and I couldn't stop him.
 - Okay, I don't have a knockout karate chop like you guys.
-- That's not part of my k*ll set.
+- That's not part of my k\*ll set.
 - Where am I?
 - And how was I?
 - Mr. Martin, we're with the government.
@@ -485,7 +485,7 @@
 - Wait, there was an elevator.
 - Chuck, you were there.
 - T-Two girls.
-- One of them had a g*n.
+- One of them had a g\*n.
 - I-It was pointed at me.
 - Tyler, Tyler, it's all right. Just like Casey said, we're here to protect you. I need to call my manager.
 - No, Mr. Martin, I don't think that's a good idea because we don't know who's involved.
@@ -495,7 +495,7 @@
 - You can't do that!
 - You're going to give the guy brain damage or liver problems.
 - Too late on both counts.
-- I know why they're trying to k*ll him.
+- I know why they're trying to k\*ll him.
 - I know why they want him dead.
 - What?
 - His back, the tattoo on his back.
@@ -511,20 +511,20 @@
 - He's an idiot, Bartowski, just like you.
 - Should have never left the two of you alone.
 - You know, Chuck, Casey is right.
-- I mean, you could have gotten yourself k*ll.
+- I mean, you could have gotten yourself k\*ll.
 - What exactly were you thinking?
 - What was I thinking? I'll tell you what I was thinking.
 - I was thinking like I wasn't a spy.
 - Okay? I was trying to have a little bit of fun, and I knew the second I called you two, it would all be over.
 - But Chuck, you are a spy, and you should know better than to put yourself in a dangerous situation where I can't protect you.
 - Is it really so wrong for me to want a night off?
-- I was having a really good time, too, until the assassins stole my pants and tried to k*ll me.
+- I was having a really good time, too, until the assassins stole my pants and tried to k\*ll me.
 - I've earned it.
 - I deserve it.
 - I'm losing consciousness.
 - Casey!
 - My ears couldn't take it.
-- Either that or I sh**t him.
+- Either that or I sh\*\*t him.
 - You ready for a taste of the sweet life tonight, buddy?
 - Yeah, sure, sure.
 - Backstage passes.
@@ -559,7 +559,7 @@
 - Well, then convince him.
 - Wait, no, no.
 - No, no, guys, hey, this is way too dangerous.
-- Tyler could get k*ll.
+- Tyler could get k\*ll.
 - Those are nightmares tattooed on his body, Chuck.
 - We have to take Gambir down tonight.
 - Okay, okay, fine, fine, you go in there and tell him he has to put his life on the line because he was a pawn in someone else's game.
@@ -587,7 +587,7 @@
 - Hey, man.
 - You okay?
 - No. No, I'm not okay.
-- Don't know where I am, how I got here, and someone's trying to k*ll me.
+- Don't know where I am, how I got here, and someone's trying to k\*ll me.
 - On the plus side, your friend's tranqs are out of this world.
 - Yeah, it's one of his few good qualities.
 - I've never been in a situation like this before, life or death.
@@ -596,7 +596,7 @@
 - What do you want me to do?
 - We would like for you to perform tonight at your special concert.
 - That's madness.
-- People are trying to k*ll me.
+- People are trying to k\*ll me.
 - Yes, and you can help us catch them.
 - You can help the world, the entire world, by doing this, for real.
 - You could go back to living your life again.
@@ -650,7 +650,7 @@
 - Open this door.
 - It's him. It's him.
 - Who?
-- The guy who's trying to k*ll you?
+- The guy who's trying to k\*ll you?
 - Here? I thought you said we were safe.
 - I know you're in there, Mr. Martin.
 - Oh, I need another drink.
@@ -694,7 +694,7 @@
 - Using Tyler's manager and his tattoos to pass the info off to your buyers.
 - You take one more step, I send this e-mail and everyone knows.
 - Proving that the cell is mightier than the sword.
-- Or, or a very large kn*fe, as it might be in this case.
+- Or, or a very large kn\*fe, as it might be in this case.
 - Go! Excuse me. Move!
 - Put it down.
 - Put it down!
@@ -746,7 +746,7 @@
 - Man's gotta run free after being locked up so long.
 - Yeah, yeah, well, um, Big Mike, do mind if I ask you what Butterman was in the can for?
 - I mean, you talking robbery? Drugs?
-- m*rder?
+- m\*rder?
 - Butterman?
 - Yeah.
 - God, no!
@@ -793,7 +793,7 @@
 - Look, if-if there's something bothering you, then please tell me.
 - I know part of your job is to have all these secrets in your head, but you're not supposed to keep them from me.
 - I know. I know.
-- I saw you sh**t that FULCRUM agent on Christmas Eve after they took over the Buy More.
+- I saw you sh\*\*t that FULCRUM agent on Christmas Eve after they took over the Buy More.
 - And when I asked you about it...
 - I lied.
 - Yeah.

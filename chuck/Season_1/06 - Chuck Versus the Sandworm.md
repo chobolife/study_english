@@ -31,7 +31,7 @@
 ♪♪♪♪
 - He's got it?
 - He's the man, the man.
-- He wants his w*apon.
+- He wants his w\*apon.
 - Morgan is so awesome. He can eat anything.
 - Bartowski.
 - Yeah! Yes!
@@ -203,7 +203,7 @@
 - The intersect was correct to alert us.
 - We've been looking for lazslo mahnovski since he escaped from los robles national labs last month.
 - Who is he?
-- w*apon designer. Government brain.
+- w\*apon designer. Government brain.
 - The target graduated college age 14.
 - Ph. D. At 17.
 - Been with us ever since, working for a clandestine engineering subcontractor.
@@ -216,12 +216,12 @@
 - Nice try, buddy, but, uh, halloween's tomorrow, okay?
 - Or today, or today.
 - It could be today if you want it to be today.
-- I didn't k*ll anybody.
+- I didn't k\*ll anybody.
 - Look, i-i never said you did.
 - Then why am I on the fbi list?
 - I don't know. Just calm down.
 - I was framed, okay.
-- You have to believe me. I am not a m*rder.
+- You have to believe me. I am not a m\*rder.
 - Okay, okay. I believe you.
 - But, fyi...
 - ♪♪♪
@@ -229,10 +229,10 @@
 - He's talking to pentagon operations right now.
 - I tapped into the encrypted video feed at the store.
 - I helped design that home theater system.
-- Look, i-i-i don't know-- g*n!
+- Look, i-i-i don't know-- g\*n!
 - Get it. Get it. Get it.
 - I got it, I got it. I got it.
-- Is that a water g*n?
+- Is that a water g\*n?
 - No.
 - I'm pretty sure it's dripping on my face.
 - I'm sorry.
@@ -346,7 +346,7 @@
 - Seems you already know, Chuck.
 - I can't believe you've been prying into my most intimate moments...
 - You know what?
-- I swear to god, if I find out you've been spying on my sister, I will k*ll you, Casey.
+- I swear to god, if I find out you've been spying on my sister, I will k\*ll you, Casey.
 - Intimate moments?
 - Not really an issue thus far.
 - At least, not in the sense of traditional two-person intimacy.
@@ -388,7 +388,7 @@
 - It doesn't even matter.
 - Of course it matters.
 - Isn't this what you wanted?
-- They went through the trouble of framing me for m*rder.
+- They went through the trouble of framing me for m\*rder.
 - What's going to happen when they get me back?
 - A slap on the wrist?
 - There's got to be someplace you can hide me.
@@ -397,13 +397,13 @@
 - So this kid just escaped?
 - Look, we tried everything we could to prevent this whole thing from happening.
 - And what exactly is this?
-- A mentally unstable w*apon designer, off his meds, and currently running around los angeles.
+- A mentally unstable w\*apon designer, off his meds, and currently running around los angeles.
 - And how do you know all this?
 - Lazslo was my asset.
 - I was the one who found him.
 - I was the one who trained him, and I'm definitely the one who's going to be bringing him back.
 - Look, I'm just going to be completely straight with you, walker.
-- We believe that he is looking to make a b*mb.
+- We believe that he is looking to make a b\*mb.
 - And god help whoever's in his way when lazslo decides to go off.
 - Welcome to buy more.
 - ♪♪
@@ -418,9 +418,9 @@
 - Oh, and I hope you don't mind, I kind of helped myself to the...
 - To the bond ouevre.
 - Oh, check you out.
-- A view to a k*ll?
+- A view to a k\*ll?
 - That's a bold choice. Why? Is it a good one?
-- Oh, dude, christopher walken playing some evil n*zi villain?
+- Oh, dude, christopher walken playing some evil n\*zi villain?
 - Grace jones as some a 'roid rage sex assassin?
 - I think, actually, on second thought, i'm going to stay for the beginning.
 - Sit.
@@ -453,7 +453,7 @@
 - What do you think?
 - Don't you get it, Chuck?
 - Zorin is like us.
-- The n*zi used him for his superior gifts the way our government uses me and you.
+- The n\*zi used him for his superior gifts the way our government uses me and you.
 - I don't... Too bad zorin didn't have this home theater system.
 - Screw flooding silicon valley.
 - Do you know what we can do with this system if we really wanted to, Chuck?
@@ -463,7 +463,7 @@
 - We keep a fleet of b-2s in guam, kept on nuclear alert, just in case.
 - What are you doing?
 - Putting my tax dollars to work, Chuck.
-- Would you like to play a nice game of thermonuclear w*r?
+- Would you like to play a nice game of thermonuclear w\*r?
 - What about texas?
 - What did texas ever do that was so great?
 - Nine hours...
@@ -479,7 +479,7 @@
 - We can always play later.
 - We can!
 - We can play...
-- b*mb, b*mb, b*mb...
+- b\*mb, b\*mb, b\*mb...
 - Thing later...
 - I'm going to go get us some more popcorn.
 - So, here, why don't you...
@@ -506,7 +506,7 @@
 - Just relax, everything is going to be cool.
 - Everything is not going to be cool.
 - What the hell?
-- You're going to k*ll us! You're going to k*ll us!
+- You're going to k\*ll us! You're going to k\*ll us!
 - Well, Chuck, it's been fun.
 - Don't...
 - Oh... Oh!
@@ -552,7 +552,7 @@
 - I never, I never said anything...
 - Boo! Aah!
 - Did I scare you, Chuck?
-- You better be scared, 'cause I'm about ready to k*ll me a job interview, partner.
+- You better be scared, 'cause I'm about ready to k\*ll me a job interview, partner.
 - Ka-pow!
 - Lazslo is not headed east.
 - He's going to the santa monica pier.
@@ -618,7 +618,7 @@
 - Relax, Chuck.
 - She's all yours.
 - What did you just do?
-- You just armed a b*mb.
+- You just armed a b\*mb.
 - That would have taken me hours to get through the fingerprint recognition system.
 - Why are you doing this? What?
 - Blowing stuff up?
@@ -627,8 +627,8 @@
 - Yeah? Hey, someone just armed the herder to sedf-destruct.
 - Yeah. I know.
 - It was me.
-- Disarm the b*mb right now!
-- You disarm the b*mb!
+- Disarm the b\*mb right now!
+- You disarm the b\*mb!
 - How?
 - Cut the wire. which one? The red one.
 - You got to cut a wire, Chuck!

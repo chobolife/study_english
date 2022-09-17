@@ -4,7 +4,7 @@
 - There are a few things you might need to know.
 - Don't hurt him again.
 - I won't.
-- The hotel's booked, so we should probably go if we're gonna b*at traffic.
+- The hotel's booked, so we should probably go if we're gonna b\*at traffic.
 - With this list, it's just a matter of time before we learn the identities of FULCRUM's agents.
 - Oh, wow!
 - Chuck, look at this view!
@@ -40,7 +40,7 @@
 - FULCRUM's working him over about now.
 - He's not gonna last an hour.
 - No, you're wrong.
-- They don't know Chuck's the Intersect, and they don't know Jill has been b*rned.
+- They don't know Chuck's the Intersect, and they don't know Jill has been b\*rned.
 - Well, if it ain't torture... what are they doing to him?
 - We have ways to make you talk, Mr. Bartowski.
 - Do your worst.
@@ -298,11 +298,11 @@
 - I plan to eliminate you.
 - Jill, please don't do this.
 - Believe me, Chuck.
-- I don't want to. I'm not a k*ll.
+- I don't want to. I'm not a k\*ll.
 - This isn't what I do for a living.
 - You pull that trigger, and it is what you do for a living.
 - You already broke my heart.
-- Is it necessary for you to sh**t it as well?
+- Is it necessary for you to sh\*\*t it as well?
 - You're right.
 - Okay, Chuck, here's the truth.
 - There's a FULCRUM operative down there.
@@ -330,7 +330,7 @@
 - Eliminate him.
 - What, here?
 - Don't think.
-- sh**t him in the head and let's go.
+- sh\*\*t him in the head and let's go.
 - Did-did you... did you just say...
 - Let's talk about this first.
 - Think I should just leave if there's a... ow!
@@ -341,7 +341,7 @@
 - Sorry, sorry, excuse me!
 - Mr. Bartowski.
 - You need to come with me.
-- Um, you told Jill to sh**t me.
+- Um, you told Jill to sh\*\*t me.
 - Why would I ever go anywhere with you?
 - I'd rather not leave your body here on the ride.
 - What if some kid saw it?
@@ -378,8 +378,8 @@
 - Anything goes wrong, we call you.
 - Good.
 - Remember, you three are the last line of defense against...
-- Yeah, but, can I... this is a bit k*ll.
-- k*ll?
+- Yeah, but, can I... this is a bit k\*ll.
+- k\*ll?
 - Dude.
 - Grimes, my first store was The Husky Lad: Big and Tall.
 - "For the more than average man. "
@@ -388,7 +388,7 @@
 - That was a dark day, Morgan.
 - Husky lads throughout Burbank went without britches for Christmas.
 - The store closed before the new year.
-- So, no... it's not k*ll.
+- So, no... it's not k\*ll.
 - It's business.
 - Sure.
 - Um, but before you lock us in, um, isn't there some sort of law or rule about locking us in the store? I mean, what if there's a fire?
@@ -572,7 +572,7 @@
 - I don't believe this.
 - FULCRUM told you to dump me?
 - I didn't have a choice.
-- I guess in your defense, when they told you to k*ll me, you didn't do it.
+- I guess in your defense, when they told you to k\*ll me, you didn't do it.
 - So, I guess that means something.
 - It does.
 - I never wanted to hurt you, Chuck, ever.
@@ -587,7 +587,7 @@
 - Chuck?
 - Chuck, what's the matter?
 - You promised that you wouldn't hurt them.
-- Put the g*n on the table, take the cuffs off now.
+- Put the g\*n on the table, take the cuffs off now.
 - I'm sorry, I'm sorry.
 - I let her out.
 - It's my fault. I'm sorry.
@@ -603,11 +603,11 @@
 - You did an excellent job, my dear.
 - Show him the access screen for the Joint Intelligence Database.
 - Um, I'm sorry. I don't know how to do that.
-- Do it now or I'll k*ll your friends, starting with the blonde.
+- Do it now or I'll k\*ll your friends, starting with the blonde.
 - Thank you, Chuck.
 - This was all a trick, wasn't it?
 - I mean, you guys just did all this just to get in here and access our computer.
-- Y-You, you let her sh**t you.
+- Y-You, you let her sh\*\*t you.
 - Devious, aren't we? Move him.
 - Oh, baby.
 - Jill, you're making a big mistake.
@@ -645,7 +645,7 @@
 - Why?
 - Because you don't know who you're playing against.
 - These cells might be bulletproof, but they can't withstand that.
-- The blast will k*ll them, but I'll bet your cell will be fine.
+- The blast will k\*ll them, but I'll bet your cell will be fine.
 - Chuck, don't do anything.
 - Stay in that cell, Bartowski.
 - Jill?
@@ -673,7 +673,7 @@
 - What's going on?
 - What are we doing?
 - Look... you're taking the Matrix, okay?
-- All-wheel drive, touch screen navi, iPod capability, and a full t*nk of gas.
+- All-wheel drive, touch screen navi, iPod capability, and a full t\*nk of gas.
 - It's the perfect getaway car.
 - Just get in and drive as far as you can.
 - I won't call it in, I swear.
@@ -691,7 +691,7 @@
 - You should know I wanted to help you.
 - I was going to let you get away.
 - Chuck, no.
-- But when you were about to k*ll Sarah, you made the decision for me.
+- But when you were about to k\*ll Sarah, you made the decision for me.
 - You're under arrest, Jill, and I'm breaking up with you.
 - I'm sorry, Sarah.
 - I should have listened to you from the beginning.

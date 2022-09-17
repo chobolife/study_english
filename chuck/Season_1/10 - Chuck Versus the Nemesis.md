@@ -190,13 +190,13 @@
 - Don't do this, Bryce.
 - We're all on the same side here.
 - What side is that?
-- I've got a sh*t.
+- I've got a sh\*t.
 - No, you don't.
 - You'll be fine.
-- No sh**ting! No sh**ting!
-- I'm susceptible to b*ll*ts.
+- No sh\*\*ting! No sh\*\*ting!
+- I'm susceptible to b\*ll\*ts.
 - The access code!
-- I'll k*ll him, Sarah!
+- I'll k\*ll him, Sarah!
 - Between you and me, I think he means it.
 - Five-one-six-zero-two.
 - Sarah?
@@ -219,7 +219,7 @@
 - Who's your friend?
 - You step back.
 - Okay.
-- I wouldn't want you to k*ll some random person.
+- I wouldn't want you to k\*ll some random person.
 - I'd feel just terrible.
 - Tell your people that I'm gone.
 - This is your chance, Bryce.
@@ -330,15 +330,15 @@
 - Um, hey, hey.
 - Sorry.
 - Uh, I have a question for you.
-- Um, what-what do you think Bryce meant when he said, "Casey, care to... Care to try again?" 'cause call me crazy, but I got the weirdest feeling like it was you who k*ll him.
+- Um, what-what do you think Bryce meant when he said, "Casey, care to... Care to try again?" 'cause call me crazy, but I got the weirdest feeling like it was you who k\*ll him.
 - Good guess.
 - Are you ser...
 - Does Sarah know about that?
 - It's in my report.
 - Why would you...
-- Do that? Why did you k*ll Bryce? x Orders.
+- Do that? Why did you k\*ll Bryce? x Orders.
 - Your old nemesis is a very dangerous human being, cúuck.
-- You get a chance to sh**t Bryce larkin, you sh**t to k*ll.
+- You get a chance to sh\*\*t Bryce larkin, you sh\*\*t to k\*ll.
 - Guys, no shoptalk tonight.
 - We got a bird to eat.
 - Hey, john, can you help me stuff this monster?
@@ -428,7 +428,7 @@
 - ãExcuse me.
 - Sweetheart, is thút, um, tartar sauce?
 - You're getting rusty.
-- Bryce, I have a g*n do I need to use it?
+- Bryce, I have a g\*n do I need to use it?
 - I'm unarmed.
 - And I'm sorry.
 - Two dudes, one raft, whitewater rapids.
@@ -466,7 +466,7 @@
 - Okay, I might have made a mistake.
 - Nice work, CIA.
 - Hey.
-- No g*n at thanksgiving.
+- No g\*n at thanksgiving.
 - It's not thanksgiving without sweet potatoes covered in marshmallows.
 - Okay, Ellie, I got to tell you right now, I am getting really excited.
 - Oh, god.
@@ -499,7 +499,7 @@
 - Okay, okay, okay, okay.
 - I'm closing the door. I'm closing the door.
 - I'm walking into the apartment.
-- Please, do not sh**t me.
+- Please, do not sh\*\*t me.
 - I need you to listen to me.
 - Put it down, Bryce.
 - The intersect was a mission.
@@ -538,7 +538,7 @@
 - I don't remember it.
 - But you know why they did it.
 - Yeah.
-- Well, should I pop some popcorn or b*at the answer out of you?
+- Well, should I pop some popcorn or b\*at the answer out of you?
 - No thanks. I'll talk.
 - Darn it.
 - You know the first part already.
@@ -687,7 +687,7 @@
 - It's really busy.
 - So I should probably get back to work.
 - ?????????? And Sarah wadker five minutes ago.
-- I have seven trained k*ll stationed throughout the store.
+- I have seven trained k\*ll stationed throughout the store.
 - If you look over there...
 - You can also see that my men have neutralized Mr. Casey.
 - See, here's the thing, Charles.
@@ -702,7 +702,7 @@
 - Chuck, the registers are down.
 - I can't get them back up.
 - What should I do?
-- You say more than one word and I'll k*ll him right here.
+- You say more than one word and I'll k\*ll him right here.
 - Pineapple.
 - Let's go.
 - Pineapple.
@@ -731,7 +731,7 @@
 - Some kid could find this.
 - Lock the doors.
 - Stay down, Chuck.
-- This is when the sh**ting starts.
+- This is when the sh\*\*ting starts.
 - Right... Right now?
 - They really are great.
 - Come on, Chuck, let's go.
@@ -745,7 +745,7 @@
 - You all right, Chuck?
 - Does it look like I'm all right?
 - I need to ask you something.
-- sh**t.
+- sh\*\*t.
 - Not you, please.
 - Khi-ja?
 - Khi-ja?

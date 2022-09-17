@@ -128,7 +128,7 @@
 - I'll check with my people.
 - Your ex-girlfriend's boss,
 - Guy LeFleur, is the head research scientist for the European company Cole-MacGregor Pharmaceuticals.
-- And my six has reports that he may have developed a w*apon which he plans to sell to the highest bidder.
+- And my six has reports that he may have developed a w\*apon which he plans to sell to the highest bidder.
 - Is Jill involved?
 - It's your job to find out, Chuck.
 - Casey and Sarah will surveil Dr. LeFleur.
@@ -156,7 +156,7 @@
 - Please. We lost Big Mike to donuts years ago?
 - I shudder to think how people like you would respond to an actual catastrophe.
 - A fire, an earthquake...
-- An all-out race w*r.
+- An all-out race w\*r.
 - And that is why Michael and I have decided to implement an emergency preparedness course.
 - And it just so happens that one of your colleagues knew someone willing to teach it.
 - Buenos dias, class.
@@ -164,7 +164,7 @@
 - I love volunteer work, Chuck.
 - Besides, CPR's a breeze.
 - A child could learn it.
-- Well, then maybe you have a sh*t.
+- Well, then maybe you have a sh\*t.
 - Uh, hey, everybody, you're in great hands.
 - Awesome is who certified me.
 - You might be certified, Chuck.
@@ -504,7 +504,7 @@
 - Of course, she'll just think I'm a stalker.
 - She doesn't think you're a stalker.
 - So...
-- Why do you think Guy was k*ll?
+- Why do you think Guy was k\*ll?
 - What is this place?
 - Why was I blindfolded?
 - It's a secret CIA compound.
@@ -527,8 +527,8 @@
 - He wasn't involved.
 - Your boss, Guy, however...
 - Maybe Guy was involved, but not how you think.
-- Guy had discovered an antiviral serum for a strain of influenza used in a w*apon, an airborne influenza so deadly it could k*ll a person within one hour if exposed.
-- Now, a couple of days ago, Guy learned that our company secretly sells the influenza w*apon.
+- Guy had discovered an antiviral serum for a strain of influenza used in a w\*apon, an airborne influenza so deadly it could k\*ll a person within one hour if exposed.
+- Now, a couple of days ago, Guy learned that our company secretly sells the influenza w\*apon.
 - That's why Guy planned to present our research at the convention, so that the company couldn't cover it up any more.
 - I guess it's up to me to do that now.
 - No, no, no, no, no, no, no, no.
@@ -597,7 +597,7 @@
 - This isn't funny anymore.
 - Look, it's an emergency, okay?
 - I know that my credibility with you is at an all-time low but you need to listen to me.
-- The w*apon has been released at the conference center.
+- The w\*apon has been released at the conference center.
 - How do you know about the virus?
 - Because, Jill... I'm a CIA agent.
 - Oh, my God, Chuck, you really need to get some help.
@@ -648,7 +648,7 @@
 - Yeah.
 - Yeah...
 - Okay, that has a modified version of the viral strain.
-- Now your body metabolizes the poison and the antiviral serum is going to be created from your bl*od.
+- Now your body metabolizes the poison and the antiviral serum is going to be created from your bl\*od.
 - Poison? Poison? !
 - I thought I was getting the antidote?
 - You just gave me poison? !
@@ -665,26 +665,26 @@
 - It's a long story, but the headline is I'm our only hope for survival.
 - And here I thought things couldn't get any worse.
 - Okay, inside the briefcase, is a medisyringe, multi-dose injector.
-- I need you to extract 60 cc's of your own bl*od, put it through the centrifuge, and then inject one cc of the antiviral serum into each of those infected.
+- I need you to extract 60 cc's of your own bl\*od, put it through the centrifuge, and then inject one cc of the antiviral serum into each of those infected.
 - Okay, okay.
 - Casey, here-- No, no, no, no, no, no.
-- Casey, you have, you have to take the g*n.
+- Casey, you have, you have to take the g\*n.
 - Huh?
-- Take the g*n. And you have to--
-- You have to take my bl*od, okay?
-- So just take my bl*od.
+- Take the g\*n. And you have to--
+- You have to take my bl\*od, okay?
+- So just take my bl\*od.
 - Okay.
 - Okay.
-- Take the g*n, Chuck.
-- Take the g*n, Chuck.
+- Take the g\*n, Chuck.
+- Take the g\*n, Chuck.
 - Huh?
 - What?
-- Take the g*n.
+- Take the g\*n.
 - Take the...
 - Oh, God.
 - Chuck, what's happening?
 - I need-- I need help right now. Casey's fading fast!
-- The just g*n dropped!
+- The just g\*n dropped!
 - And it shattered!
 - That was the only syringe!
 - Okay, uh, stay calm.
@@ -751,7 +751,7 @@
 - Jill Roberts now knows Chuck's an asset.
 - What do you want us to do about it?
 - I want you to do nothing.
-- The assassin Agent Walker sh*t was a member of Fulcrum.
+- The assassin Agent Walker sh\*t was a member of Fulcrum.
 - A rogue CIA agent.
 - We don't know the extent of their penetration.
 - If Jill knows something they may make a play for her.

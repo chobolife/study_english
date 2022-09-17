@@ -88,7 +88,7 @@
 - I used to be like that... Oh. Gonna pick... ? Gonna one-arm that thing?
 - Okay, that's, uh...
 - I used to do that myself, but I forgot my weight belt.
-- One of our agents was k*ll in Milan last night... while he was tracking this woman.
+- One of our agents was k\*ll in Milan last night... while he was tracking this woman.
 - Sofia Stefanova.
 - Hiyo.
 - Who do we have taking our surveillance pics? Because those are tremendous.
@@ -98,18 +98,18 @@
 - We can all acknowledge that Miss Stefanova is quite fetching.
 - Mm.
 - But don't be fooled by her appearance.
-- We believe she's the executor... of Volkoff's most important w*apon deals.
-- Uses her cover as a runway model to travel the world... get access to the most powerful people... and deliver w*apon like this.
-- Stefanova stole an amm*nit*on clip containing smart b*ll*ts... from a w*apon development facility outside Paris.
+- We believe she's the executor... of Volkoff's most important w\*apon deals.
+- Uses her cover as a runway model to travel the world... get access to the most powerful people... and deliver w\*apon like this.
+- Stefanova stole an amm\*nit\*on clip containing smart b\*ll\*ts... from a w\*apon development facility outside Paris.
 - Mr. Bartowski.
-- Uh, what are smart b*ll*ts?
+- Uh, what are smart b\*ll\*ts?
 - [BUZZES]
 - Microchip-controlled. They have a built-in GPS.
-- The b*llet guides itself to the target.
+- The b\*llet guides itself to the target.
 - Yeah. Something a good spy would never need.
 - You should get some.
 - Beckman: That's exactly what I need you to do.
-- Stefanova plans to sell the w*apon at a party during Milan Fashion Week.
+- Stefanova plans to sell the w\*apon at a party during Milan Fashion Week.
 - I'm sending you two to intercept them.
 - Colonel Casey... after the Yves St. Laurent incident... you will have to sit this one out.
 - Stab one guy with a stiletto.
@@ -144,7 +144,7 @@
 - Achilles... ? How do you know... ?
 - Grimes told me.
 - That pipsqueak will talk to anyone he thinks is listening.
-- [g*n CLICKS]
+- [g\*n CLICKS]
 - Chuck, beautiful women have a lot of baggage.
 - You should be happy Walker's is just a suitcase.
 - Any sign of Sofia?
@@ -153,7 +153,7 @@
 - How much Project Runway have you been watching?
 - There she is.
 - Gotta be in the purse.
-- Chuck: Smart b*ll*ts?
+- Chuck: Smart b\*ll\*ts?
 - All right. I got this one.
 - Ah.
 - Excuse me?
@@ -192,13 +192,13 @@
 - Let's go.
 - Okay, remain calm. Remain calm.
 - Should I throw it?
-- [b*mb CLICKS]
+- [b\*mb CLICKS]
 - Why did it click? Clicks are bad.
 - A pressure sensor. If you let go, it'll explode.
 - [LAUGHS]
 - Go, quick, quick, quick. Quick.
 - Do what you do. Ahem.
-- [b*mb TICKING QUICKLY]
+- [b\*mb TICKING QUICKLY]
 - Sarah, listen.
 - I can't die without you knowing that I accept you for who you are.
 - Your unpacking, it doesn't matter to me.
@@ -236,12 +236,12 @@
 - Proud of us, really. How well we work together.
 - Sarah: Any sign of Sofia?
 - Uh, no. Are you mad at me?
-- If the w*apon wasn't in her purse, she didn't have it with her at the party... because that dress didn't conceal much.
+- If the w\*apon wasn't in her purse, she didn't have it with her at the party... because that dress didn't conceal much.
 - I wasn't... I wasn't looking.
 - I wasn't looking, first of all. It's a very stressful situation... watching one's life flash before one's eyes like that.
 - And at the end of the day, you have to admit, I did say I love you.
 - That's what should matter.
-- Lf we hadn't have stopped that b*mb... your last words would've been about my weird unpacking thing.
+- Lf we hadn't have stopped that b\*mb... your last words would've been about my weird unpacking thing.
 - Sorry. I should never have done that.
 - I don't even care. I don't. Spies pack light. I get it.
 - Yes. We do pack light.
@@ -282,7 +282,7 @@
 - General, look... if even I can see through this cover... what's an enemy spy gonna think?
 - What do you propose?
 - You look really pretty right now.
-- Hmm, just saying, with the bl*od rushing to your head... it brings out the color in your cheeks.
+- Hmm, just saying, with the bl\*od rushing to your head... it brings out the color in your cheeks.
 - Hey. Spider-Man kiss?
 - No.
 - Okay. Maybe later. Hmm.
@@ -309,7 +309,7 @@
 - Just stand guard. That's what you're here for.
 - [BEEPING]
 - [WHISPERS] What do we do now?
-- [WHISPERS] We cant leave without the w*apon.
+- [WHISPERS] We cant leave without the w\*apon.
 - Can you see anything?
 - Are you serious?
 - No, I'm serious.
@@ -320,7 +320,7 @@
 - Miss Sofia.
 - Don't turn around.
 - I have something I need to tell you, Miss Sofia. I love you.
-- [g*n COCKS]
+- [g\*n COCKS]
 - Sofia: Don't move.
 - [MUMBLES]
 - Look at me.
@@ -341,7 +341,7 @@
 - Sarah: Chuck, run!
 - Chuck: Move!
 - [CHUCK GRUNTS]
-- You get the w*apon?
+- You get the w\*apon?
 - You bet.
 - Stop!
 - Put some clothes on.
@@ -364,7 +364,7 @@
 - Sorry to disturb you, but there's a man from the Better Business Bureau... here to bestow the Buy More with an Award for Excellence.
 - He needs the manager to accept it.
 - I'll be right there.
-- We need new bl*od upstairs.
+- We need new bl\*od upstairs.
 - Hopefully your woolly friend, Mr. Grimes, will come through.
 - Wha... ? Um, come... What? Come through with what?
 - Let's just say he's recruiting.
@@ -398,7 +398,7 @@
 - We just came here to give you your jobs back.
 - What job?
 - Your old jobs. Buy More's been rebuilt.
-- Nobody thinks that you b*rned it down.
+- Nobody thinks that you b\*rned it down.
 - What? Cars have been following us for months.
 - How do you know they weren't just driving behind you?
 - Wait. Wait, wait, wait.
@@ -425,7 +425,7 @@
 - Hey, Devon. Need some help?
 - No. No, no, no. I'm good.
 - Just shopping. But I was in the Buy More.
-- Everyone there was super attractive and highly k*ll.
+- Everyone there was super attractive and highly k\*ll.
 - It was like I work there.
 - But why would I work in the Buy More?
 - Hmm?
@@ -491,7 +491,7 @@
 - Security cam footage.
 - Why wear the same dress twice when she has a closet full of options?
 - Because maybe it's not just a dress.
-- The technology's in the microchip, not the b*llet.
+- The technology's in the microchip, not the b\*llet.
 - The chips...
 - Hidden in the dress.
 - The sequins.
@@ -546,8 +546,8 @@
 - Chuck: Unh.
 - I love you, Sarah.
 - Chuck!
-- [g*n]
-- [g*n COCKS]
+- [g\*n]
+- [g\*n COCKS]
 - I think you've got something of mine.
 - [GRUNTING]
 - Drop it.

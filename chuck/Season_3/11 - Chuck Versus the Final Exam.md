@@ -18,7 +18,7 @@
 - Who needs to be neutralized.
 - You know, John, I know you like to play make-believe, that you're some kind of military tough guy, but the truth is that you're just a schmuck that works in an electronics store.
 - With us.
-- Well, I guess you didn't hear that Big Mike sent Morgan down to El g*n for a management seminar for the next three days, leaving me in charge as assistant manager.
+- Well, I guess you didn't hear that Big Mike sent Morgan down to El g\*n for a management seminar for the next three days, leaving me in charge as assistant manager.
 - What a special moment for you.
 - I assume, then, that you've been made aware of the "no touching" policy here at the store.
 - Granted, it's mostly for Jeff, but it holds company-wide, friend.
@@ -37,7 +37,7 @@
 - Baby steps.
 - More like baby kicks to the groin.
 - We got to get you reinstated, buddy.
-- Without a license to k*ll, you are a menace to society.
+- Without a license to k\*ll, you are a menace to society.
 - Hey, listen, listen.
 - I'm going to talk to Beckman.
 - I'm going to tell her if she doesn't give you your job back, I'm quitting.
@@ -194,7 +194,7 @@
 - Pretty much.
 - Really?
 - So... so you're saying that's got all the greatest hits in it, huh?
-- All the, uh, daring escapes, and last-second b*mb defusions, and... and I would hope, uh, all of the world-class stakeout mixes.
+- All the, uh, daring escapes, and last-second b\*mb defusions, and... and I would hope, uh, all of the world-class stakeout mixes.
 - Yeah.
 - Everything is in here.
 - We've definitely been through a lot.
@@ -285,7 +285,7 @@
 - If I had made a different decision back then.
 - Look, I know we couldn't be together before because I wasn't a real spy, but if I pass this test, we wouldn't have to choose between the job and us.
 - If I pass this test, we could be together.
-- That is, of course, if you're willing to give it another sh*t.
+- That is, of course, if you're willing to give it another sh\*t.
 - Did you see him? Did you flash?
 - No, I... no, I didn't.
 - Should I have?
@@ -366,7 +366,7 @@
 - I'm dealing directly with the Ring now.
 - Your services are no longer needed.
 - Oh, God... Oh, my God...
-- The mole just k*ll Anatoli.
+- The mole just k\*ll Anatoli.
 - Forget Anatoli. The mole is leaving.
 - You gotta get a look at his face.
 - We've got it, Chuck.
@@ -476,9 +476,9 @@
 - We've arranged for him to meet Chuck at the restaurant.
 - And Chuck has to bring him in?
 - No.
-- Chuck has to k*ll him.
+- Chuck has to k\*ll him.
 - What?
-- Chuck has to k*ll him?
+- Chuck has to k\*ll him?
 - You're giving him his Red Test tonight?
 - That's right.
 - Why didn't you tell me?
@@ -493,7 +493,7 @@
 - Perry is a seasoned agent, and he is gonna do anything to save himself.
 - And if Chuck freezes, then... then... we could lose him.
 - And that's why you'll be there.
-- If you give him the order, if you tell him to k*ll Perry, he'll do it.
+- If you give him the order, if you tell him to k\*ll Perry, he'll do it.
 - Hi.
 - Wow.
 - You look great.
@@ -526,9 +526,9 @@
 - We have arranged for you to meet him here at the restaurant in five minutes time.
 - He knows you are CIA.
 - And he will remain cautious, and probably try to maintain his cover.
-- The final part of your mission is to k*ll him.
+- The final part of your mission is to k\*ll him.
 - Are you being serious right now? Are you kidding me?
-- k*ll him here, now? I can't do that.
+- k\*ll him here, now? I can't do that.
 - Then you won't become a spy.
 - But then... we couldn't...
 - No. Probably not.
@@ -566,7 +566,7 @@
 - These people... the Ring... You have no idea.
 - Oh, I have an idea.
 - Then you know these people weren't going to put me in jail.
-- They were going to k*ll me.
+- They were going to k\*ll me.
 - You're not here to arrest me either.
 - I should have known.
 - You might as well be one of them.
@@ -591,9 +591,9 @@
 - What does all this mean, Casey?
 - I mean, technically, I failed my test.
 - You need to understand that to Walker, Shaw, and Beckman, you passed the test.
-- To them, you k*ll Perry, doing exactly what you were trained to do.
+- To them, you k\*ll Perry, doing exactly what you were trained to do.
 - Yeah, except that I didn't do it, you did.
-- Chuck, I'm a civilian, which means technically, under the law, what happened tonight was m*rder.
+- Chuck, I'm a civilian, which means technically, under the law, what happened tonight was m\*rder.
 - No one can know the truth about that ever... not even Sarah.
 - She'd be implicated, too.
 - But all that means that I'm still not a real spy.
@@ -602,7 +602,7 @@
 - Hey...
 - Why did you do it?
 - Because you weren't going to.
-- You're not a k*ll, Chuck.
+- You're not a k\*ll, Chuck.
 - Thanks.
 - Come on, Sarah.
 - Where are you?
@@ -632,7 +632,7 @@
 - No name, just a photo.
 - And it was all happening the way it was supposed to.
 - And then she dropped something, like a piece of jewelry, and... and I just couldn't do it,  not with her on the ground like that, so I just kept walking.
-- And then, in a reflection, I saw her reaching for a w*apon.
+- And then, in a reflection, I saw her reaching for a w\*apon.
 - Well, at least I thought I saw her reaching.
 - And I wanted to go back and check to make sure, but it was, uh, there was no time.
 - It's never easy.

@@ -69,10 +69,10 @@
 - Casey, what are you doing here?
 - Did Beckman call?
 - No, I'm just... returning something.
-- A. 50-cal sn*per r*fle?
-- Why are you checking w*apon out of the armory?
+- A. 50-cal sn\*per r\*fle?
+- Why are you checking w\*apon out of the armory?
 - I was just plinking on the range.
-- Don't want a beautiful w*apon like this to feel neglected.
+- Don't want a beautiful w\*apon like this to feel neglected.
 - Well, what about us? Do you think Beckman has secretly sidelined our team?
 - Yeah, why else would our missions dry up like this?
 - I don't know, maybe the Intersect has made the world a more peaceful place.
@@ -80,7 +80,7 @@
 - What is that about?
 - Well, you think we're stir-crazy.
 - Think about how Casey feels.
-- I mean, he hasn't sh*t someone in two weeks.
+- I mean, he hasn't sh\*t someone in two weeks.
 - That we know of.
 - Casey is up to something and I am going to get to the bottom of it.
 - Sarah... Sarah.
@@ -152,7 +152,7 @@
 - That's why it's the perfect tail vehicle.
 - Chuck: Of course, yes, you're right, focus.
 - Time to find out what kind of game Casey's playing.
-- (g*n hammers cocking) Easy.
+- (g\*n hammers cocking) Easy.
 - Your boss is expecting me.
 - I wasn't expecting you, I was expecting Dragan, and I wasn't expecting him for two days.
 - Slight change of plans.
@@ -161,12 +161,12 @@
 - My employer will be happy to do business elsewhere.
 - Please... excuse my lack of hospitality.
 - Chuck: He's all alone.
-- What's he trying to do... get himself k*ll?
+- What's he trying to do... get himself k\*ll?
 - Don't you want to open it?
 - I would trust Dragan with my life.
 - You, on the other hand, John Casey, NSA agent, not so much.
 - What exactly was your plan... to just walk in here and arrest me, all alone? (chuckles)
-- (g*n cock) SARAH: He's not alone.
+- (g\*n cock) SARAH: He's not alone.
 - He wouldn't go undercover without his team.
 - Chuck: Yeah, honestly, what do you take him for?
 - What are you doing here?
@@ -202,11 +202,11 @@
 - You've still got the Intersect, baby.
 - Let's go introduce ourselves, shall we?
 - Rick: So I said to him, "You can keep your larger magazine capacity.
-- "When it comes to stopping power, nothing b*at my. 45. "
+- "When it comes to stopping power, nothing b\*at my. 45. "
 - That is hilarious.
 - That hilarious.
 - . 45s.
-- Great work back there, by the way, with the, with the g*n and the bad guys and the... b-b-boo!
+- Great work back there, by the way, with the, with the g\*n and the bad guys and the... b-b-boo!
 - Took 'em all out.
 - That was impressive. I'm sorry, but I never got your actual names, and I really don't want to keep calling you Greta.
 - I'm assuming GRETA's probably an acronym for...
@@ -418,7 +418,7 @@
 - Are you using the five-milligram darts?
 - Ten.
 - Please tell Casey I put up a good fight.
-- (sh**ting)
+- (sh\*\*ting)
 - Great. Now all we need is something with Casey's handprint on it so we can access the secret part of Castle.
 - Ooh. What are these?
 - These have a camera inside of them that'll scan for any bioresidue.
@@ -476,9 +476,9 @@
 - Yeah? Well, my father never wanted his invention to be used like this. Drop it.
 - That computer is property of the U. S. government.
 - Call off your dogs, Casey.
-- Captain, put the g*n down. Now.
+- Captain, put the g\*n down. Now.
 - First you put the computer down, Bartowski.
-- Or I'll put a b*llet in that obsolete brain of yours.
+- Or I'll put a b\*llet in that obsolete brain of yours.
 - Bentley: That's enough.
 - I'd do as she says, Mr. Bartowski.
 - Unlike you, my Intersects aren't afraid to pull the trigger.
@@ -497,7 +497,7 @@
 - His emotional sensitivity.
 - His over-reliance on his handlers.
 - His inability to terminate targets.
-- You clearly fixed that glitch. Vicki here almost sh*t Chuck.
+- You clearly fixed that glitch. Vicki here almost sh\*t Chuck.
 - If you'll excuse us, we have a mission to complete.
 - Dragan Pichushkin, our primary target, is currently en route to an airfield outside of Los Angeles.
 - Our analysts at Langley believe that he is on this aircraft, which was...
@@ -546,18 +546,18 @@
 - Bentley: I'm confident that your new team can handle a few bodyguards.
 - Not them, that.
 - He's not moving parts.
-- Pichushkin's moving a fully-assembled b*mb.
+- Pichushkin's moving a fully-assembled b\*mb.
 - We can assume he's going to use it.
 - Director, we need backup.
 - You have two GRETA's. What else do you need?
 - My old team, Chuck and Sarah.
 - It's a five-man job.
 - You sure you're not just being sentimental?
-- Pichushkin's delivering live expl*sives to a metropolitan center.
+- Pichushkin's delivering live expl\*sives to a metropolitan center.
 - Thanks to the Intersect, we're equipped with live ordnance disposal.
 - No, the colonel is right.
 - This is a perfect job for Chuck Bartowski.
-- b*mb disposal?
+- b\*mb disposal?
 - I mean, seriously?
 - Don't they have robots for stuff like this?
 - It's the only way Bentley would let you come on the mission.
@@ -565,8 +565,8 @@
 - Casey: Okay, team, target lands in inside ten.
 - You two, help me neutralize Dragan's security team, and take him into custody. Alive.
 - You're a vital part of this mission, Chuck. Don't forget it.
-- And try not to drop the b*mb, Chuck.
-- Once we have the b*mb, ***
+- And try not to drop the b\*mb, Chuck.
+- Once we have the b\*mb, \*\*\*
 - Use the Intersect to defuse it.
 - I know you're a little scared, Chuck, but the suit will protect you.
 - I saw The Hurt Locker, Casey, okay?
@@ -582,9 +582,9 @@
 - Good luck, Chuck.
 - It's your favorite... apple juice.
 - ♪ ♪
-- (r*fles cocking)
-- Oh, oh, Sarah, they are outnumbered and g*n.
-- Those guards are carrying a*t*matic w*apon.
+- (r\*fles cocking)
+- Oh, oh, Sarah, they are outnumbered and g\*n.
+- Those guards are carrying a\*t\*matic w\*apon.
 - Oh! Holy crap! Those two are like Terminators.
 - They just took out five guys in the blink of an eye.
 - Welcome to America, Mr. Pichushkin.
@@ -596,17 +596,17 @@
 - That's a suitcase nuke.
 - It's a... I'm sorry.
 - Did Casey just say... ?
-- Dragan: So you have your b*mb.
-- (p*stol cocking)
+- Dragan: So you have your b\*mb.
+- (p\*stol cocking)
 - But I have detonator.
 - So I think it's better if we just part ways, Da?
 - Casey, let him go.
 - Sarah: I've got my eyes on Dragan.
 - Sar...
 - Help Walker.
-- You stay with the b*mb.
+- You stay with the b\*mb.
 - You need to disarm this now.
-- This b*mb is a Frankenstein with a hundred different components.
+- This b\*mb is a Frankenstein with a hundred different components.
 - There's nothing in the Intersect about how to defuse this.
 - I can help with this!
 - Chuck: Casey? Hold on.
@@ -617,28 +617,28 @@
 - (beeping)
 - I am detonator.
 - Very simple.
-- My heart stop, b*mb start.
-- So you have choice: you can sh**t me, and hundreds of thousands of people will die in nuclear blast.
-- Or I k*ll you.
+- My heart stop, b\*mb start.
+- So you have choice: you can sh\*\*t me, and hundreds of thousands of people will die in nuclear blast.
+- Or I k\*ll you.
 - Not easy choice.
-- Vicki, no, don't sh**t!
+- Vicki, no, don't sh\*\*t!
 - (rapid beeping)
 - What did you do? !
 - (steady tone)
 - (device whirring)
 - What the hell just happened?
-- Your trigger-happy new partner just armed the b*mb.
+- Your trigger-happy new partner just armed the b\*mb.
 - (panting)
 - Ooh! Portable fission device, five-kiloton yield.
 - Yeah, we covered that. Sir, our best chance is to fly as far away from civilization as possible.
 - What? ! We're in the middle of LA County!
-- It's a difference between 100, 000 casualties and a million. We gotta move this b*mb now.
+- It's a difference between 100, 000 casualties and a million. We gotta move this b\*mb now.
 - No, no. Casey, no, that's not an option.
 - We have to disarm it.
 - You've got the same computer I've got.
 - It can't be disarmed.
 - I can do this, Casey.
-- b*mb's all yours, Bartowski.
+- b\*mb's all yours, Bartowski.
 - You can't be ser... Move.
 - Okay.
 - Just like old times, huh?
@@ -647,7 +647,7 @@
 - Okay, Casey, first of all, I need you to pull out the primary device.
 - Slowly, carefully.
 - We're gonna have to improvise our way through this one.
-- Improvi... ? ! It's a nuclear b*mb.
+- Improvi... ? ! It's a nuclear b\*mb.
 - Stow it, Captain.
 - Okay, now, Sarah, that hockey puck-looking thing on the end there? That's the detonator.
 - I need you to twist and pull... gently.
@@ -663,7 +663,7 @@
 - Casey... my juice box.
 - Please have sodium, please have sodium, please have sodium.
 - Yeah, it does! Yes, yes, yes.
-- Chuck, are you about to disarm a nuclear b*mb using fruit juice?
+- Chuck, are you about to disarm a nuclear b\*mb using fruit juice?
 - Okay, do it.
 - (crackles)
 - (whirring)
@@ -673,12 +673,12 @@
 - Love you.
 - I love you, too.
 - (both chuckle)
-- Try not to drop the b*mb, Rick.
+- Try not to drop the b\*mb, Rick.
 - Whoa!
 - Looks like things have gotten a little crowded in castle.
 - As I told you before, this operation requires only one team.
 - I concur. I've read Colonel Casey's report.
-- In addition to threatening Agent Bartowski's life, your team managed to k*ll the man you were supposed to capture and accidentally arm a nuclear b*mb.
+- In addition to threatening Agent Bartowski's life, your team managed to k\*ll the man you were supposed to capture and accidentally arm a nuclear b\*mb.
 - General, I take full responsibility for my team.
 - The truth is, Director Bentley, you should never have pursued the Intersect field trial without consulting the original Intersect.
 - Agent Bartowski, that is why you will oversee all aspects of the Intersect project from here on out.

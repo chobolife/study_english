@@ -22,7 +22,7 @@
 - Release of "Spy Attack" is less than two hours away.
 - Somebody restack these DVD players. And I need a lot more blank CDs.
 - No. Get these consoles out of there. Guys, I need a lane going through here.
-- All right? I vlogged about listening k*ll last night.
+- All right? I vlogged about listening k\*ll last night.
 - Did anybody watch? No.
 - And it shows.
 - I don't think you're taking this seriously.
@@ -33,8 +33,8 @@
 - You're beyond De Niro. This is Russell Crowe serious.
 - Okay, listen. Biggest game of the year drops tonight.
 - Fans have been camped out for a week.
-- A week without consoles and simulated k*ll.
-- You can cut their bloodlust with a kn*fe.
+- A week without consoles and simulated k\*ll.
+- You can cut their bloodlust with a kn\*fe.
 - Weren't you camped out last year?
 - Yeah. But that means I know what they're thinking.
 - And they expect a full-blown, hi-tech launch presentation.
@@ -113,7 +113,7 @@
 - Lock and load, Chuck.
 - Lock and...
 - Sarah, hang on. This chat.
-- [g*n COCKS]
+- [g\*n COCKS]
 - I mean, are we talking about like a chit-chat... or, you know, an FDR fireside chat?
 - Everything is fine. I just thought a night in might be nice.
 - A night in at the Buy More.
@@ -286,7 +286,7 @@
 - When did you start dating for reals?
 - But first we need a good-faith offering.
 - You know why she won't talk about this, Chuck? It makes her edgy.
-- I get it. You met my so-called husband/con v*ctim, right?
+- I get it. You met my so-called husband/con v\*ctim, right?
 - I toyed with normal life... played happy homemaker a while.
 - And as soon as he got serious, I robbed him blind.
 - My advice? Pull the ripcord before you get fried.
@@ -362,7 +362,7 @@
 - Computer: I'm sorry, I didn't get that.
 - [DOOR OPENS]
 - Chuck: Door 5.
-- [g*n COCKS]
+- [g\*n COCKS]
 - Fire emergency override. Where is it? Or you die.
 - Computer: The fire emergency override is behind my monitor.
 - Just press control, escape.
@@ -508,7 +508,7 @@
 - Chuck: Hey, this morning... I was going to Monte Carlo.
 - But instead, I spent the night as a canned good.
 - It's funny the way life can suck.
-- [g*n COCKS]
+- [g\*n COCKS]
 - Move and you die, tunnel rat.
 - All right, I got him.
 - Transport on the roof in two minutes.
@@ -531,10 +531,10 @@
 - Down. Down, down, down!
 - Volkoff must have intercepted our transport.
 - [GRUNTS]
-- Chuck, we'll handle the g*n.
+- Chuck, we'll handle the g\*n.
 - Go after the prisoner.
 - Ooh!
-- [g*n]
+- [g\*n]
 - Go for the exit. I got you covered.
 - Agh!
 - Casey!
@@ -552,7 +552,7 @@
 - On the count of three, two, one.
 - [GRUNTS]
 - Oof!
-- That was my last b*llet.
+- That was my last b\*llet.
 - [SIGHS]
 - The flea-ridden masses infest my house Do I cry? Perchance to die?
 - No, McFly This game launch will not be televised Enough. Just give us the game.
@@ -568,7 +568,7 @@
 - Thank you.
 - [ALL SHOUTING]
 - Freeze, Panzer.
-- Look awful shaky with that sh**t, boy.
+- Look awful shaky with that sh\*\*t, boy.
 - How's your aim in tight quarters?
 - Perfect.
 - Because that's the gas line.

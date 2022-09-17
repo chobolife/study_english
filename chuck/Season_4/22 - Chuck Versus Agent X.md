@@ -7,9 +7,9 @@
 - She's never lied to me.
 - Vivian: There was only one man my father was ever afraid of.
 - He went by the name Agent X.
-- I'm going to track him down and k*ll him.
+- I'm going to track him down and k\*ll him.
 - Then no one can touch me, ever.
-- (g*n cocks)
+- (g\*n cocks)
 - Man: Freeze!
 - Take it easy, Tiger, I'm-I'm here to help.
 - DS&T picked up some chatter of a possible break-in attempt.
@@ -35,7 +35,7 @@
 - Locate this signal, and we'll have exactly what Miss Volkoff wants.
 - This was too easy.
 - Have to imagine the CIA is being way more careful with the actual computer.
-- Oh, sh**t.
+- Oh, sh\*\*t.
 - Ellie, come on.
 - Hey, babe, doing a little last-minute prep for Chuck's bachelor party.
 - Can you give me a little sunscreen pre-coat?
@@ -66,7 +66,7 @@
 - What about you, Casey?
 - Any casino preferences?
 - No. Forget the casinos.
-- Best thing about Vegas are the g*n ranges.
+- Best thing about Vegas are the g\*n ranges.
 - Brought some of my fancytargets.
 - Well, I got some bad news.
 - See you guys on Monday.
@@ -152,7 +152,7 @@ Original Air Date on May 2, 2011
 - Even if you've been to the City of Sin before, you've never been with me.
 - Awesome, thank you so much for planning this trip.
 - Dude, you kidding? I live for this.
-- Captain: Okay, we need to think of this weekend like a w*r.
+- Captain: Okay, we need to think of this weekend like a w\*r.
 - Now you're talking my language.
 - When we get there, we immediately take over The Strip.
 - High rollin' on The Strip!
@@ -199,8 +199,8 @@ Original Air Date on May 2, 2011
 - I thought we were going to chase tail.
 - There's a huge yellow-bellied marmot population.
 - They love being chased.
-- Long as I can set up a g*n range.
-- Yeah, nature's g*n range-- the great outdoors.
+- Long as I can set up a g\*n range.
+- Yeah, nature's g\*n range-- the great outdoors.
 - Hey. You okay, buddy?
 - I know that you were looking forward to partying in Vegas most of all.
 - What? I knew we were going to Vecas!
@@ -230,7 +230,7 @@ Original Air Date on May 2, 2011
 - Got to admire the man for sticking to his strategy.
 - Morgan: Sure, and you know what? A hike actually sounds pretty invigorating right now.
 - I've never hiked in a tie. I know, right? Yeah.
-- Get the bl*od pumping.
+- Get the bl\*od pumping.
 - I mean, it could be just as fun as Vegas.
 - 'Cause this weekend is-is... it's about bonding after all, isn't it?
 - No. No, it isn't.
@@ -280,7 +280,7 @@ Original Air Date on May 2, 2011
 - I'm sorry. Okay, um...
 - (clears her throat) General, I need you to put me in touch with our agents in Las Vegas, please.
 - (cheering and screaming continue)
-- Ooh, um, is that a g*n? No.
+- Ooh, um, is that a g\*n? No.
 - This way.
 - CHUCK (sighs): Oh.
 - That's a... That's a pretty fantastic hike. Thanks.
@@ -301,7 +301,7 @@ Original Air Date on May 2, 2011
 - It's just that these secrets-- they're...
 - I feel like they're tearing my family apart.
 - Down, down.
-- k*ll that light.
+- k\*ll that light.
 - Ah!
 - Devon, why would you bring that to my bachelor party?
 - Oh, no. I must have grabbed Ellie's bag.
@@ -343,7 +343,7 @@ Original Air Date on May 2, 2011
 - You know why I'm here, don't you?
 - Is it because I've been a bad boy?
 - (laughs)
-- What's in the sh**t?
+- What's in the sh\*\*t?
 - Sodium pentathol-- truth serum.
 - Freaky.
 - I don't think that'll mix with what I'm on.
@@ -390,15 +390,15 @@ Original Air Date on May 2, 2011
 - What? What is it?
 - A splinter, I think.
 - Let me take a look.
-- Oh, please. Listen to me. There are men trying to k*ll us.
+- Oh, please. Listen to me. There are men trying to k\*ll us.
 - I can handle a little splinter, all right?
 - I mean... Ooh, it... it hurts!
 - (grunts)
-- Morgan, you ever k*ll a man?
+- Morgan, you ever k\*ll a man?
 - I'll tell you something.
 - The first one... the first one's the hardest.
 - There's no doubt about it. Wow. Really?
-- No, not really. They don't even give me a g*n on missions.
+- No, not really. They don't even give me a g\*n on missions.
 - Are you kidding me?
 - (grunts)
 - Captain: I'm a doctor.
@@ -408,21 +408,21 @@ Original Air Date on May 2, 2011
 - Captain: What if we met these guys at a bar?
 - You know, we could be frat brothers, for all I know.
 - Frat brothers-- these are mercenaries, dude.
-- (silenced g*n) Drinks? Beers?
+- (silenced g\*n) Drinks? Beers?
 - (body thuds)
 - You hear something?
 - No. You're having first "mish" jitters.
 - It's not my first "mish. " I think it's your first "mish. "
 - How are those spears coming?
-- You are lucky we didn't k*ll you with these spears!
+- You are lucky we didn't k\*ll you with these spears!
 - They are really sharp. I feel so bad for those mercenaries right about now-- zah!
 - You ought to. They're dead.
 - Dead? Well, what are these for?
 - They kept you out of my way.
 - Men, what's your status?
-- Oh, poor baby. you're fresh out of friends. Looks like Well, in that case, I'm just gonna have to come out there and k*ll you myself.
-- The captive's unconscious. k*ll him.
-- (laughs) I see you've had kn*fe training.
+- Oh, poor baby. you're fresh out of friends. Looks like Well, in that case, I'm just gonna have to come out there and k\*ll you myself.
+- The captive's unconscious. k\*ll him.
+- (laughs) I see you've had kn\*fe training.
 - Let me give you one final lesson.
 - (grunting)
 - (grunting)
@@ -450,7 +450,7 @@ Original Air Date on May 2, 2011
 - So where is Orion's laptop?
 - Beckman thought that--
 - She was right-- Vivian Volkoff sent a team for it.
-- They tried to k*ll us.
+- They tried to k\*ll us.
 - I've got to tell Ellie what she got herself into.
 - If I didn't grab the wrong bag, you girls would have been ambushed.
 - I agree-- Ellie deserves to know.
@@ -637,13 +637,13 @@ Original Air Date on May 2, 2011
 - Oh, delightful.
 - Okay.
 - (clears throat)
-- (r*fle cocks)
+- (r\*fle cocks)
 - Woman: Tell me who you are, and what you want with my son-- before you make me go ruin my wallpaper.
 - Please, please, ma'am, I'm-I'm here to help your son.
 - I'm here to help Hartley. I'm with the CIA.
 - So, you're saying you work for the people who took my son?
 - Give me your sidearm.
-- Ma'am, I actually don't carry a g*n.
+- Ma'am, I actually don't carry a g\*n.
 - Hartley should never have been sent undercover.
 - He was a scientist.
 - When the CIA couldn't bring him in, they disavowed him.
@@ -656,12 +656,12 @@ Original Air Date on May 2, 2011
 - (gasps)
 - Are you gonna fix my son?
 - This is the place.
-- Looks like someone b*at us to it.
+- Looks like someone b\*at us to it.
 - Move out.
 - Not bad.
-- (g*n)
-- (g*n continues)
-- Great. We're g*n and outmanned.
+- (g\*n)
+- (g\*n continues)
+- Great. We're g\*n and outmanned.
 - What are you waiting for, laddie?
 - Lay down some fire.
 - Who are these people?
@@ -669,19 +669,19 @@ Original Air Date on May 2, 2011
 - Must have followed us. They're not after you.
 - They're after the same thing you came for.
 - Hartley's spy will.
-- (g*n continues)
+- (g\*n continues)
 - Oh. Here.
 - There's a vault in the cellar.
 - You'll find the spy will down there.
 - Go! We can handle this!
-- Oh, put down that damn sh**t.
-- There's a real g*n in the chest.
+- Oh, put down that damn sh\*\*t.
+- There's a real g\*n in the chest.
 - There.
 - I prepared for something like this.
 - You know how to feed one of these things?
 - Please! You're feeding me.
 - Where would you put a spy will?
-- (g*n continues)
+- (g\*n continues)
 - There go my primroses!
 - Eat lead, you bastards!
 - Bingo.
@@ -702,7 +702,7 @@ Original Air Date on May 2, 2011
 - (laughing)
 - (Mrs. Winterbottom continues laughing)
 - Oh, you remind me of my son.
-- He didn't care much for g*n, either.
+- He didn't care much for g\*n, either.
 - Whatever it was in this box, I hope it's what you're looking for.
 - (laughing)
 - I love this woman.
@@ -731,7 +731,7 @@ Oh, man, this is my jam!
 - No, no, no, no, no!
 - I blame you, Michael!
 - Wait.
-- Stop k*ll. Stop the k*ll.
+- Stop k\*ll. Stop the k\*ll.
 - What's that over yonder?
 - Boys, we're here.
 - (sighs with relief)
@@ -754,7 +754,7 @@ Oh, man, this is my jam!
 - Sarah: He's locked up now, but Alexei Volkoff is a very powerful, very evil arms dealer.
 - Yeah, but he wasn't. I mean, that's the thing.
 - Volkoff was a cover identity.
-- In reality, he was just a scientist who didn't like using g*n.
+- In reality, he was just a scientist who didn't like using g\*n.
 - So Dad's original Intersect created one of the world's most dangerous criminals for the CIA?
 - We should talk to Mom.
 - Chuck: Maybe she was trying to fix him, too, you know, in her own way.
@@ -765,10 +765,10 @@ Oh, man, this is my jam!
 - It ends here.
 - We're all gonna pretend we never saw this.
 - John, my dad clearly wanted Chuck and me to figure this out.
-- There must be a reason. Look, the CIA created one of the most m*rder men in the history of the world.
+- There must be a reason. Look, the CIA created one of the most m\*rder men in the history of the world.
 - There's powerful people who spent an enormous amount of energy covering that up.
 - You know what happens if they find out we know?
-- They order a guy like me to put a b*llet in each one of our heads.
+- They order a guy like me to put a b\*llet in each one of our heads.
 - I'm pretty sure your dad didn't want this to end that way.
 - Ellie: So we're supposed to just sweep this thing under the rug?
 - Ellie, we're talking about the CIA.

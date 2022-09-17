@@ -108,7 +108,7 @@
 - All right.
 - Guys, sounds like a blast.
 - Really, uh, but you can count me out on this one.
-- No more dangling me off of buildings, no more g*n being pointed at my head, no more putting my life in danger.
+- No more dangling me off of buildings, no more g\*n being pointed at my head, no more putting my life in danger.
 - I am going back to my peaceful, quiet, albeit degrading life at the Buy More, so have fun on the mission, and really love what you've done with the place.
 - Is there a problem with the asset?
 - No problem, General. I have the situation under control.
@@ -253,7 +253,7 @@
 - I-I would probably start with the, uh, bedroom eyes maybe.
 - You know, the old, uh, Bartowski eyebrow dance.
 - Then come in at you like this.
-- You know? And then I'd start firing the g*n at you, you know.
+- You know? And then I'd start firing the g\*n at you, you know.
 - Hey, baby...
 - Hey, don't encourage him!
 - This isn't happy hour at Chili's.
@@ -262,7 +262,7 @@
 - Be yourself?
 - You think a woman like this could ever fall for a guy like you?
 - I don't know.
-- Barring any national security emergency, I think I might have a sh*t.
+- Barring any national security emergency, I think I might have a sh\*t.
 - Be reasonable.
 - This is a gorgeous, sophisticated woman, and you're...
 - Passionate and-and sweet and caring.
@@ -302,7 +302,7 @@
 - But first, we're gonna need more gin.
 - ♪♪
 - Okay, you make sure his mic works.
-- I'll go load up the w*apon.
+- I'll go load up the w\*apon.
 - Well, it may not be the steamiest, but we probably have the strangest relationship in Los Angeles.
 - I doubt that.
 - Morgan is still dating, right?
@@ -314,10 +314,10 @@
 - Worked on me.
 - We need to talk about protection.
 - I don't think it's gonna get that far, Roan.
-- I mean a g*n.
+- I mean a g\*n.
 - Why do you think she's known as the Black Widow?
 - She's African-American and her husband died.
-- Because she k*ll all her mates.
+- Because she k\*ll all her mates.
 - Big Mike?
 - Hey. Uh, you wanted to see me?
 - First, I'm digging the new vest.
@@ -460,7 +460,7 @@
 - Way to go, Casanova.
 - You're going to have the Intersect in your head forever.
 - Okay, everybody, let's pack it up.
-- Roan, what is the fourth prong of the famous as*ault?
+- Roan, what is the fourth prong of the famous as\*ault?
 - The mission is over, Charles. It's too dangerous.
 - You're not ready for this.
 - I'm ready. What is it?
@@ -525,7 +525,7 @@
 - Hello, Roan.
 - You shouldn't have sent a boy to do a man's job.
 - Get out of there! Now!
-- No-no, wait, wait! Wait, wait, wait. Why would you... oh, my God, that's a huge kn*fe!
+- No-no, wait, wait! Wait, wait, wait. Why would you... oh, my God, that's a huge kn\*fe!
 - Look, you don't want to do this. ??
 - I'm a young guy... ??
 - Don't beg for you life, Mr. Carmichael.
@@ -570,7 +570,7 @@
 - I would love to help, but it's out of my hands.
 - Fine, if he's fired, I quit. that's your choice then.
 - If Anna leaves, I have to follow my heart.
-- I told you, you've got no sh*t.
+- I told you, you've got no sh\*t.
 - Jeffrey! Jeffrey! Jeffrey, stay here!
 - Without Jeff, this place blows.
 - What? !
@@ -579,7 +579,7 @@
 - You're all fired! You're all fired!
 - Do I have your attention now?
 - Do I have your attention now? !
-- You know, she's going to k*ll them.
+- You know, she's going to k\*ll them.
 - Well, I guess I'm just going to have to take my chances then.
 - But I can't save them alone.
 - I need your help, Roan.
@@ -665,7 +665,7 @@
 - Right. ??
 - Thank you for coming.
 - What I didn't mention last night was that everybody gets one practice spin.
-- So in all fairness, I got to give Morgan here another sh*t, okay?
+- So in all fairness, I got to give Morgan here another sh\*t, okay?
 - Here we go, come on now.
 - No one is spinning the wheel.
 - You want us back, you're going to have to make some changes around here.
@@ -698,7 +698,7 @@
 - You're determined to risk your life for these people?
 - They do it for me.
 - Then perhaps we should revise your plan.
-- Come up with something that doesn't get us all k*ll.
+- Come up with something that doesn't get us all k\*ll.
 - I'm open to that.
 - I have a package for Sasha Banacheck.
 - You need to sign.
@@ -726,12 +726,12 @@
 - I... wouldn't do that if I were you.
 - Roan.
 - Hello, Sasha.
-- I should have k*ll you years ago.
+- I should have k\*ll you years ago.
 - Yes. Probably.
-- Would you please drop your g*n?
+- Would you please drop your g\*n?
 - Who the hell is that?
 - That is Roan Montgomery.
-- Stand back, Roan... or I'll k*ll her.
+- Stand back, Roan... or I'll k\*ll her.
 - No, no, no, no.
 - Charles. Where are you?
 - I'm on the roof.
@@ -742,7 +742,7 @@
 - No. No, no, no, no, no.
 - Charles, time to be a spy.
 - I'm not. I'm not a spy.
-- Bring me the Cipher right now or I'll k*ll her!
+- Bring me the Cipher right now or I'll k\*ll her!
 - I guess you got to die sometime.
 - It'd just be nice if it wasn't today.
 - Sarah!

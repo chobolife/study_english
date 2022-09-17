@@ -20,7 +20,7 @@
 - Thinking about a little surf and turf, right? Half meatball, half tuna sub.
 - Then boom!Call of duty 4, modern warfare.
 - Me and you.
-- sn*per on my back watching me. Oscar delta.
+- sn\*per on my back watching me. Oscar delta.
 - I would love to, but i-i have plans tonight.
 - Don't sweat it. Me, too, slammed.
 - What are you and the lady doing?
@@ -135,14 +135,14 @@
 - Good.
 - You don't want to.
 - He thought I was dating some guy and he trashed his car.
-- Threatened to k*ll him.
+- Threatened to k\*ll him.
 - Believe me, the last thing you want is that lunatic swimming around in your head. stavros demetrios, a handsome playboy, owns and operates a number of la clubs.
 - I don't think he's that handsome.
 - He's the son of yari demetrios, the shipping magnate.
 - What do you mean by playboy?
 - What kind of intel do we have on that?
 - What we have is information that a volatile package is coming to los angeles.
-- The cargo itself is time-sensitive, which, knowing the demetrios family ties to the middle east, could mean a w*apon.
+- The cargo itself is time-sensitive, which, knowing the demetrios family ties to the middle east, could mean a w\*apon.
 - Chuck, we need you to get as close to stavros as possible and see if you flash on anything related to the shipment.
 - What? What? You want me to get close to my girlfriend's ex?
 - W do you want me to do that?
@@ -171,7 +171,7 @@
 - Want to catch a movie?
 - Grab a bite?
 - You're asking me out a day after I broke up with your friend?
-- All's fair in love and w*r, Sarah.
+- All's fair in love and w\*r, Sarah.
 - You know what you seem like to me?
 - Hmm?
 - A man who...
@@ -217,7 +217,7 @@
 - I brought you some lunch.
 - Oh, thank you.
 - Mmm, I smell salami, black olives tapenade.
-- Okay, this, this might actually have a sh*t at working out.
+- Okay, this, this might actually have a sh\*t at working out.
 - Well, Morgan approval, that's very big.
 - I seem to be getting that from all angles today.
 - Just had a moment with your ex.
@@ -418,7 +418,7 @@
 - What did you hear about last night?
 - And don't hold back.
 - I don't know what you're talking about.
-- I made a move on anna, and she sh*t me down, so, i...
+- I made a move on anna, and she sh\*t me down, so, i...
 - What? What? Anna? Anna? Really? I didn't know you liked anna.
 - What's like got to do with it?
 - I figured you have a girl, I should have a girl, too.
@@ -453,7 +453,7 @@
 - I, uh... Yeah, I think her voice-mail is broken.
 - It's very, very common.
 - I wanted to apologize for last night.
-- I suppose I jumped the g*n a little, and I didn't mean to interfere with your date.
+- I suppose I jumped the g\*n a little, and I didn't mean to interfere with your date.
 - Yeah, not sure it qualifies as a date when you're bugged with CIA mrophones and infiltrating an arms importer, but, hey, I'm new at this.
 - Well, it's hard to have a real relationship in this line of work.
 - Apparently, it's hard to have a fake one, as well.
@@ -474,7 +474,7 @@
 - Who's holding 29? 29!Twenty-nine!
 - Federal agent! Down on the ground!
 - Don't move!
-- Get the b*mb squad in here!
+- Get the b\*mb squad in here!
 - Let's go!
 - 44!Who's holding 44? 44?
 - 44!I have 44. Yes, yes, yes, yes!
@@ -483,7 +483,7 @@
 - 45, who's got 45?
 - You sure thas a good idea?
 - Yeah, why not?
-- If it's a b*mb in there, we're all gonna go.
+- If it's a b\*mb in there, we're all gonna go.
 - Might as well enjoy a last smoke.
 - It's all clear!
 - Agent Casey, you better take a look at this.
@@ -521,7 +521,7 @@
 - I have no idea.
 - If anything goes wrong with this shipment, we are dead.
 - Katalabaini, stavros?
-- These people will k*ll us.
+- These people will k\*ll us.
 - What the hell is coming in that's so important, eh?
 - I don't know and I don't want to know.
 - Our job is to make the delivery, not ask questions.
@@ -646,10 +646,10 @@
 - The fda's been running a task force against the demetrios family for the last few months.
 - You're going dn for ten to 20 in a federal pen.
 - For salami?
-- For g*n.
-- g*n?
-- The demetrios family's been shipping g*n into l. A.
-- , which means technically we can nail you for aiding and abetting t*rrorists.
+- For g\*n.
+- g\*n?
+- The demetrios family's been shipping g\*n into l. A.
+- , which means technically we can nail you for aiding and abetting t\*rrorists.
 - Or you can help us.
 - What would I have to do?
 - Give me the dock number where you're receiving your shipments from stavros.
@@ -670,11 +670,11 @@
 - No, no, no, no, no, no.
 - We're not on the same page anymore, yari, we're not even in the same chapter.
 - No, no, no, please don't!
-- You k*ll a whole family outside yerevan.
+- You k\*ll a whole family outside yerevan.
 - You stole their heirlooms, and you sold all of them on the russian black market except for that watch.
 - How do you know that?
 - Your name is vladimir snell.
-- Last year, you were paid $40, 000 to k*ll a man named leo koloff.
+- Last year, you were paid $40, 000 to k\*ll a man named leo koloff.
 - You told me we were paid 20.
 - He's lying. He'll say anything to get out of trouble.
 - He knows about yerevan.
@@ -688,24 +688,24 @@
 - Berth 19.
 - We've got five minutes till it expires, sir.
 - All right, let's go.
-- We'll just have to k*ll them.
-- Chuck: There's a w*apon in the shipment.
-- I think it's some kind of chemical b*mb.
+- We'll just have to k\*ll them.
+- Chuck: There's a w\*apon in the shipment.
+- I think it's some kind of chemical b\*mb.
 - We have to get to it before it blows.
 - I'll hold the fort.
-- You go get the b*mb go!
-- Sarah: The b*mb's at berth 19.
+- You go get the b\*mb go!
+- Sarah: The b\*mb's at berth 19.
 - Chuck, I want you to get a s far away from here as possible.
 - I'm coming with you.
 - No. Chuck.
-- You're not going anywhere near a live b*mb.
-- Do you know how to diffuse a b*mb?
+- You're not going anywhere near a live b\*mb.
+- Do you know how to diffuse a b\*mb?
 - Do you have an intersect in your head?
 - I didn't think so.
 - Hey!Chuck! Wait!
 - Go, dad, go!
 - Go, dad, go!
-- It's over, yari. Drop the w*apon.
+- It's over, yari. Drop the w\*apon.
 - Okay. You got me.
 - It's tommy.
 - We have a problem.
@@ -725,7 +725,7 @@
 - No.
 - I said go.
 - Oh, see.
-- So you're going to sh**t me to prevent me from getting blown up?
+- So you're going to sh\*\*t me to prevent me from getting blown up?
 - That's a great plan.
 - Why are you so stubborn?
 - Actually, I consider this a rare moment of courage.
@@ -791,7 +791,7 @@
 - Anna.
 - Honey?
 - Sweetie.
-- Whoever sh*t yari was here to pick up this package.
+- Whoever sh\*t yari was here to pick up this package.
 - Someone who didn't want yari to talk.
 - All clear.
 - Looks mean, but it's nonlethal.
@@ -802,7 +802,7 @@
 - Look, i-i was just wondering if you wanted to go out on a date tonight.
 - And by "date" I mean no gps and no mikes and no chaperos-- it'd just be us.
 - Oh, my god, Bryce.
-- Didn't I k*ll him?
+- Didn't I k\*ll him?
 - I'm thinking maybe we could hit up sbarro.
 - They just named a new pizza after Morgan, and, uh, you know, I kind of wanted to support him.
 - So...

@@ -51,7 +51,7 @@
 - Didn't hear you come in.
 - That's because I took off my heels.
 - Among other things.
-- I guess you heard you're not wanted for m*rder anymore.
+- I guess you heard you're not wanted for m\*rder anymore.
 - Beckman put a lid on that whole Decker thing.
 - Turns out, he was just a patsy, just...
 - I didn't fly halfway across the world to be debriefed.
@@ -156,7 +156,7 @@ Original Air Date on January 6, 2012
 ♪ Na-na na-na na-na ♪
 ♪ Na-na na-na na-na ♪
 - (whimpers)
-- Rocky Falcone, cologne wearing scumbag He's m*rder his way into becoming one of the biggest arms dealers in Miami.
+- Rocky Falcone, cologne wearing scumbag He's m\*rder his way into becoming one of the biggest arms dealers in Miami.
 - We have some business that he insists on conducting face-to-face.
 - You'll act as protection.
 - Where's the meet?
@@ -189,7 +189,7 @@ Original Air Date on January 6, 2012
 - And don't worry, I have already chosen what we'll watch.
 - "Downton Abbey. worry, I have already chosen An upstairs/downstairs costume drama in early 1900s England. "
 - Yeah, something tells me, not gonna be a lot of explosions in that one. Are you kidding?
-- What about the b*mb they drop on Edwardian convention?
+- What about the b\*mb they drop on Edwardian convention?
 - (scoffs)
 - Uh, listen, I-I-- yeah.
 - It's okay, you don't have to explain.
@@ -204,7 +204,7 @@ Original Air Date on January 6, 2012
 - Chuck is some kind of asset.
 - The only thing left to figure out is this.
 - There's a fourth member of their team.
-- He's their secret w*apon.
+- He's their secret w\*apon.
 - What are you guys doing?
 - He's seen too much. Grab him!
 - Morgan: Guys! Guys, guys, guys, guys.
@@ -215,7 +215,7 @@ Original Air Date on January 6, 2012
 - I was with you on the whole conspiracy theory thing, but seriously, this loser, a spy?
 - I mean, come on. Come on. Yeah, I mean, come on.
 - Either way, he's gonna tell Chuck we're on to him.
-- Fine. We'll k*ll him.
+- Fine. We'll k\*ll him.
 - What? No. Guys, I'm not gonna tell Chuck squat, all right?
 - I've been conducting my own investigation, and you guys are absolutely right.
 - You nailed it, all right?
@@ -298,15 +298,15 @@ Original Air Date on January 6, 2012
 - Well, very smart, Ms. Verbanski: meeting in public, bringing your own security team.
 - It's like you don't trust me. (chuckles)
 - (chuckles)
-- (g*n cocks) Easy, Casey.
+- (g\*n cocks) Easy, Casey.
 - This is my price.
 - And this is mine... provided the merchandise meets my specs.
 - Some woman, your boss.
-- I have a private w*apon range.
+- I have a private w\*apon range.
 - Meet me there at midnight.
 - And don't forget your checkbook.
 - Are you seriously considering going to an unsecured location?
-- John, I want those g*n.
+- John, I want those g\*n.
 - And when I want something...
 - Any... (clears throat) Anyhoo, I'd like to, uh, on behalf of our team, propose a toast to you because honestly, kudos. I like how you do business.
 - Know what I mean?
@@ -367,7 +367,7 @@ Original Air Date on January 6, 2012
 - And you?
 - Ms. Verbanski, do you always dress your security this well?
 - Looks soft.
-- Just show us the g*n, huh?
+- Just show us the g\*n, huh?
 - Yeah.
 - I present to you... the Aegis.
 - Please, have a try.
@@ -378,17 +378,17 @@ Original Air Date on January 6, 2012
 - Three million dollars.
 - No deal.
 - Actually, I'll take your money.
-- But you can leave me your g*n.
-- (g*n cocking)
+- But you can leave me your g\*n.
+- (g\*n cocking)
 - Casey, why aren't they dead?
 - Rocky: What your boss didn't tell you, is that the Aegis has a safety feature.
-- Each g*n can be coded so that it can't be fired at someone carrying an Aegis with the same code.
+- Each g\*n can be coded so that it can't be fired at someone carrying an Aegis with the same code.
 - It's a way of preventing friendly fire.
 - (laughing)
 - Ingenious, no?
 - Quite.
-- Except my team's w*apon don't have that safety feature.
-- And it would be a shame if someone got sh*t.
+- Except my team's w\*apon don't have that safety feature.
+- And it would be a shame if someone got sh\*t.
 - The price just changed, Rock. How does free grab you?
 - Okay, would someone like to please explain to me what the heck is going on?
 - So this was your plan all along. We were the loser team you hired so Rocky'd think you were vulnerable.
@@ -439,7 +439,7 @@ Original Air Date on January 6, 2012
 - I was telling Casey the truth.
 - I leveraged Rocky Falcone to give up his supplier.
 - Pedro St. Germain is notorious.
-- All g*n and narcotics that come up from the South flow through him. He has an enormous FBI bounty on his head if I'm not mistaken.
+- All g\*n and narcotics that come up from the South flow through him. He has an enormous FBI bounty on his head if I'm not mistaken.
 - And that's where the real mission comes in.
 - The FBI hired me to find St. Germain.
 - And Falcone kindly gave up his exact location in the Everglades.
@@ -478,7 +478,7 @@ Original Air Date on January 6, 2012
 - We strike from the east entrance.
 - Take St. Germain alive.
 - Figured it was only a matter of time before that rat Falcone sold me out.
-- You waving that g*n around for show or are you going to use it?
+- You waving that g\*n around for show or are you going to use it?
 - (laughing)
 - (cell phone ringtone)
 - Yeah? I take it this is an apology.
@@ -502,7 +502,7 @@ Original Air Date on January 6, 2012
 - Think they'll check to see if it's counterfeit?
 - Oh, I'm pretty sure they will. If all goes according to plan, they're not going to be in any condition to check anything.
 - Undetectable if the case is searched.
-- Walker, when I say the code word "CARE, " you start picking off the guards so I can get to my w*apon.
+- Walker, when I say the code word "CARE, " you start picking off the guards so I can get to my w\*apon.
 - And my job would be?
 - You're getaway driver.
 - Trust me, Chuck, you don't want to have anything to do with this.
@@ -551,7 +551,7 @@ Original Air Date on January 6, 2012
 - Because I care.
 - Okay, that's Casey. You've got to go.
 - Are you crazy? I'm not going to leave you here alone. No. I'll be fine in a minute.
-- Please, just take my g*n in case something goes wrong, okay?
+- Please, just take my g\*n in case something goes wrong, okay?
 - I'm not gonna need it, I have the AEGIS.
 - I love you.
 - Be safe, okay?
@@ -579,7 +579,7 @@ Original Air Date on January 6, 2012
 - Move, move!
 - ST. GERMAIN: Good show!
 - Very entertaining.
-- But g*n don't have safeties.
+- But g\*n don't have safeties.
 - Don't worry. I wore my seatbelt.
 - Hey.
 - Hey.
@@ -611,7 +611,7 @@ Original Air Date on January 6, 2012
 - Dresden. Ah... Dresden.
 - Harsh, cold.
 - Come with me. Two months, real danger.
-- Who knows? We could both get sh*t.
+- Who knows? We could both get sh\*t.
 - You know I'd love to.
 - But, um, two months is a long time to be away from here.
 - Mm, well... when you're ready, I'll be there.
@@ -631,8 +631,8 @@ Original Air Date on January 6, 2012
 - The housemaid is laying out coffee spoons with the dinner service.
 - There is going to be hell to pay at Downton Abbey tonight.
 - So...
-- Devon Woodcomb-- who, last time I checked, was an extremely handsome medical doctor-- and you think he's building a nuclear b*mb?
-- We know the location of the b*mb.
+- Devon Woodcomb-- who, last time I checked, was an extremely handsome medical doctor-- and you think he's building a nuclear b\*mb?
+- We know the location of the b\*mb.
 - We don't just think it; we know it!
 - Voilà!
 - That's a Outback coupon.

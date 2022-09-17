@@ -7,7 +7,7 @@
 - Sarah: So you just destroyed the whole system?
 - Of course not.
 - I just downloaded all the data to a more secure backup location.
-- All I want you to do is k*ll John Casey.
+- All I want you to do is k\*ll John Casey.
 - Casey: Throw me out the window.
 - There's a little platform down there.
 - Give this to Chuck.
@@ -103,8 +103,8 @@
 - We're gonna take down Volkoff. We? Really?
 - 'Cause you were kind of talking in the first person there, and I'm not usually invited on these sort of climactic missions, so...
 - I'm, I'm in, though.
-- I mean, which g*n do we grab?
-- No g*n.
+- I mean, which g\*n do we grab?
+- No g\*n.
 - We need...
 - Office supplies?
 - No, Morgan, we need a plan.
@@ -133,7 +133,7 @@
 - He's still alive.
 - Armand.
 - We have a problem in the form of Stephen Bartowski.
-- Orion was k*ll by The Ring.
+- Orion was k\*ll by The Ring.
 - Well, then somehow a dead man broke into my computer system last night.
 - He wants something very dear to me.
 - I'm gonna take Frost to a safer place.
@@ -217,7 +217,7 @@
 - All right? We know you designed the glass eye that Alexei Volkoff stored his Hydra Network on.
 - You two are in serious trouble.
 - Volkoff kidnapped me and forced me to create the Hydra Device.
-- He said he'd k*ll everyone I know, if I didn't do it.
+- He said he'd k\*ll everyone I know, if I didn't do it.
 - So you've never met the Contessa?
 - The Contessa?
 - No, that's where he took me to-to design the Hydra.
@@ -228,7 +228,7 @@
 - What do you think?
 - Beautiful.
 - Yeah. Well, um... bought the old girl years ago, on craigslist Dubai.
-- She's got anti-aircraft m*ssile, sonar stealth technology, and an old-fashioned ice cream parlor. (chuckles)
+- She's got anti-aircraft m\*ssile, sonar stealth technology, and an old-fashioned ice cream parlor. (chuckles)
 - I like to think of her as my floating fortress of fun.
 - Captain!
 - Welcome. Good to see you.
@@ -295,8 +295,8 @@
 - Chuck: The server room is right down there.
 - (sighs)
 - (whispering): Mom. Mom! Mom.
-- (silenced g*n) (soft groans)
-- When we get back, we need to have a serious talk about the benefits of tranq g*n.
+- (silenced g\*n) (soft groans)
+- When we get back, we need to have a serious talk about the benefits of tranq g\*n.
 - Chuck: There's the door to the server room.
 - I'll try to hack in.
 - Morgan: Hang on a second.
@@ -425,8 +425,8 @@
 - Joseph Stalin.
 - Good job I didn't tell you all my secrets, isn't it?
 - Just know... you did this.
-- sh**t them.
-- Mary: All right, then sh**t 'em, but not before I get one sh*t off, and one is all I need.
+- sh\*\*t them.
+- Mary: All right, then sh\*\*t 'em, but not before I get one sh\*t off, and one is all I need.
 - Get out of here, Chuck.
 - Morgan, go.
 - Go! Now!
@@ -434,7 +434,7 @@
 - Come on, come on, come on. Mom, come on!
 - You do realize for them to get out of here alive, you have to stay.
 - Yes, I know.
-- (g*n)
+- (g\*n)
 - Run!
 - Mom!
 - Chuck, come on! Mom!
@@ -447,8 +447,8 @@
 - You have nothing to say to me? No perfect excuses?
 - No "Trust me, Alexei"?
 - No. Nothing? !
-- Give me the g*n.
-- (g*n)
+- Give me the g\*n.
+- (g\*n)
 - No one touches my Frost.
 - Armand.
 - (panting)
@@ -484,7 +484,7 @@
 - I, uh...
 - I brought your bonsai.
 - Thought it might feel more like home.
-- Would have brought your g*n, but don't think they really would have let me through the door with those, so...
+- Would have brought your g\*n, but don't think they really would have let me through the door with those, so...
 - (chuckling)
 - (groans)
 - No, save your strength, Dad.
@@ -529,9 +529,9 @@
 - Isn't it time you moved on?
 - Bearing grudges.
 - A bit childish, isn't it?
-- You can't k*ll me.
+- You can't k\*ll me.
 - For the same reason your mother and your girlfriend couldn't.
-- What do you think's gonna happen to all those people you love if you put a b*llet between my eyes?
+- What do you think's gonna happen to all those people you love if you put a b\*llet between my eyes?
 - I have access to everyone.
 - (deep breaths)
 - I have to admit, it was a good plan.
@@ -544,11 +544,11 @@
 - (rapid beeping)
 - (steady electronic tone)
 - And now for the sister.
-- I told my men to k*ll your mother, if they didn't hear from me.
+- I told my men to k\*ll your mother, if they didn't hear from me.
 - And they won't.
 - So... cheers, Charles.
 - Here's to a family reunion.
-- (g*n hammer cocking)
+- (g\*n hammer cocking)
 - I can't believe you haven't figured out the solution yet.
 - Solution?
 - To what?
@@ -571,11 +571,11 @@
 - (rapid beeping) Something's wrong.
 - (grunts) SARAH: Mary, quick!
 - Oh!
-- Chuck: And of course,  never use a g*n...
+- Chuck: And of course,  never use a g\*n...
 - (click)
 - ... unless you absolutely have to.
-- Yeah, I probably should have told you, I have this... thing about b*ll*ts.
-- I was never going to k*ll you, Alexei.
+- Yeah, I probably should have told you, I have this... thing about b\*ll\*ts.
+- I was never going to k\*ll you, Alexei.
 - After all, I am my father's son, aren't I?
 - (computer chirps)
 - You made one mistake, Charles.
@@ -649,7 +649,7 @@
 - It's time to push.
 - Okay.
 - (microphone feedback squeaks, Ellie groans)
-- (hip-hop b*at plays over P. A. )
+- (hip-hop b\*at plays over P. A. )
 - Lester: ♪ Ah, push it ♪
 - Oh, God!
 - ♪ ♪

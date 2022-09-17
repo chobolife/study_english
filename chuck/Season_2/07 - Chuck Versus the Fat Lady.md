@@ -9,8 +9,8 @@
 - You know, there's nothing to be jealous about.
 - Chuck this is my boss, Guy LeFleur.
 - Hi. Nice to meet you.
-- MI-6 has reports that he may have developed a w*apon which he plans to sell to the highest bidder.
-- The assassin Agent Walker sh*t was a member of FULCRUM.
+- MI-6 has reports that he may have developed a w\*apon which he plans to sell to the highest bidder.
+- The assassin Agent Walker sh\*t was a member of FULCRUM.
 - If Jill knows something, they may make a play for her.
 - The sensor will be blind for 20 seconds.
 - Welcome to the world of international espionage.
@@ -59,7 +59,7 @@
 - Bogie at 5:00.
 - I'll handle this.
 - Really? A camera on the roof because of what?
-- All the t*rror1st activity on top of the Buy More?
+- All the t\*rror1st activity on top of the Buy More?
 - Okay, Casey may have been a little aggressive, but we just received our new mission.
 - Already?
 - Tomorrow we're going to break into Guy LeFleur's hotel room.
@@ -219,7 +219,7 @@
 - Very popular with Renaissance spies.
 - It's locked.
 - Hey-- beh, beh, beh.
-- The running, jumping, sh**ting people part of the job, that's all you guys.
+- The running, jumping, sh\*\*ting people part of the job, that's all you guys.
 - But the puzzles, that's all me.
 - I think it would be numerals one through 12 in a row.
 - But these boxes used a complicated Fibonacci sequence.
@@ -327,7 +327,7 @@
 - Why do you protect him?
 - What does that Charles have over you?
 - Um, 23 years of best friendship.
-- Oh, please. I know everything there is to know about the man, but you're not gonna hear it from me. And if you're looking for dirt, well, nothing to say, dude, 'cause Chuck Bartowski is the straightest sh**t I know.
+- Oh, please. I know everything there is to know about the man, but you're not gonna hear it from me. And if you're looking for dirt, well, nothing to say, dude, 'cause Chuck Bartowski is the straightest sh\*\*t I know.
 - Really?
 - That's right.
 - You have a bizarre sense of straightest.
@@ -403,7 +403,7 @@
 - Oh! No... actually, they're not.
 - Um, this is a key.
 - A key to a very super secret lock box.
-- The Culper Ring used to use stuff like that to pass information during the Revolutionary w*r days.
+- The Culper Ring used to use stuff like that to pass information during the Revolutionary w\*r days.
 - Wow, Chuck, that's impressive.
 - Yeah, nice going there, brainiac.
 - But before you go getting all full of yourself-- if this is the key, where's the lock?
@@ -426,13 +426,13 @@
 - This is a quick, quick, quick minute.
 - You know, government stuff.
 - Watch out.
-- Casey, that's a b*mb.
+- Casey, that's a b\*mb.
 - All right, rehearsal's over. Everyone out of here!
 - Come on, Chuck, let's go! We gotta go!
 - Wait! This doesn't make any sense.
 - Guy wanted to help people, not hurt them.
-- This isn't a b*mb, this is a clue.
-- Jill, if it looks like a b*mb and it ticks like a b*mb, then generally it's a b*mb.
+- This isn't a b\*mb, this is a clue.
+- Jill, if it looks like a b\*mb and it ticks like a b\*mb, then generally it's a b\*mb.
 - No, this is a puzzle we need to solve before the timer runs out.
 - And what if you're wrong?
 - That doesn't happen.
@@ -448,7 +448,7 @@
 - It's not happening.
 - Let's go. Chuck, come on!
 - Look, look, Jill has yet to be wrong, okay?
-- She says it's not a b*mb, I believe her.
+- She says it's not a b\*mb, I believe her.
 - Sir, we're sealing this place off.
 - It's a flash drive. This must be it.
 - That's how we do that, huh?
@@ -533,11 +533,11 @@
 - Midnight.
 - They took her! The hell you been?
 - You deliberately went off grid. Some guy just took Jill!
-- He said if I didn't bring him Guy's list of FULCRUM agents, he's gonna k*ll her.
+- He said if I didn't bring him Guy's list of FULCRUM agents, he's gonna k\*ll her.
 - That's not gonna happen. Yeah, of course not.
 - I'm gonna bring him the list, and I'm gonna get her back!
 - No, you're not.
-- They'll k*ll her either way.
+- They'll k\*ll her either way.
 - What? No. That can't happen.
 - Please, Casey, will you please help me?
 - No.
@@ -546,23 +546,23 @@
 - You've done enough damage already.
 - General, we have a situation.
 - Stop!
-- Walker, sh**t him! Chuck, freeze!
+- Walker, sh\*\*t him! Chuck, freeze!
 - Don't.
 - If you try to take that, I have to stop you.
 - Please, let me go!
 - This is treason, Bartowski.
 - Please, just let me go.
-- sh**t him, Walker.
-- sh**t him in the knee.
+- sh\*\*t him, Walker.
+- sh\*\*t him in the knee.
 - I'm sorry.
 - I have to.
 - It's Jill.
-- You could've sh*t him.
+- You could've sh\*t him.
 - He's the Intersect.
 - Is that all he is?
 - You could've at least kneecapped him.
 - I have a trace on Chuck. He's heading downtown.
-- You get the car, I'll get the g*n.
+- You get the car, I'll get the g\*n.
 - Jill!
 - Chuck.
 - Can we dispense with the pillow talk and just do this?
@@ -571,26 +571,26 @@
 - You've seen mine, now show me yours.
 - That's fine, but first I need to know that she's gonna be safe.
 - That's not how this works.
-- You hand over the list, or I sh**t you both.
+- You hand over the list, or I sh\*\*t you both.
 - That's not how this works either!
 - Go wait in the car, Chuck.
 - Don't move, Chuck.
 - Stay right where you are.
-- I've got a sharpsh**ter trained on you.
-- Now I have the sn*per.
+- I've got a sharpsh\*\*ter trained on you.
+- Now I have the sn\*per.
 - I-I still have the advantage.
-- Somebody give me the list, or I sh**t Chuck.
-- Yeah, go ahead and sh**t him.
-- You know, I was thinking about sh**ting him myself.
+- Somebody give me the list, or I sh\*\*t Chuck.
+- Yeah, go ahead and sh\*\*t him.
+- You know, I was thinking about sh\*\*ting him myself.
 - That's a great-- Why would you-- What, what? !
 - What are you, crazy? !
-- How about nobody, how about nobody sh**t Chuck? !
+- How about nobody, how about nobody sh\*\*t Chuck? !
 - I'm not Sarah, Chuck.
 - Give him that list, and I will end your miserable existence. It's your choice.
-- Would you rather I sh**t the girl?
-- Please don't. I would rather you not sh**t the girl-- just point the g*n back at me, please.
+- Would you rather I sh\*\*t the girl?
+- Please don't. I would rather you not sh\*\*t the girl-- just point the g\*n back at me, please.
 - No!
-- No, go ahead, sh**t the girl.
+- No, go ahead, sh\*\*t the girl.
 - Some situations, collateral damage is unavoidable.
 - No. It's always avoidable.
 - Look, I have it, okay? Here it is.
@@ -693,7 +693,7 @@
 - Hey. Hey, yeah, hey.
 - That's fine, I wasn't gonna pack that one anyway.
 - Oh, wait. Hey, no.
-- The hotel's booked, so... we should probably go if we're gonna b*at traffic!
+- The hotel's booked, so... we should probably go if we're gonna b\*at traffic!
 - Or we could just get the weekend started right now.
 - Uh, what-what about, what about the...
 - Hm... I have some spy moves of my own.

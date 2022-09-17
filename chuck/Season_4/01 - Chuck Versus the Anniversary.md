@@ -45,7 +45,7 @@
 - Buddy.
 - Yeah?
 - This is not the opening of a TV show. This is real life.
-- Is this the g*n you were looking for?
+- Is this the g\*n you were looking for?
 - Yes.
 - Got everything, dude. You ready to go?
 - [WHISPERS] She's still here?
@@ -125,14 +125,14 @@
 - We're easy to find. Her, not so much.
 - I'm done, man. I think I'm done.
 - Uh, listen, we have to try, right?
-- [g*n COCKS]
+- [g\*n COCKS]
 - Don't move, Chuck.
 - Harry: Get over here.
 - Morgan, Morgan, Morgan.
 - Coming, coming.
 - Harry: Give me them keys.
 - Yeah, here you go, sir. Here they are. Here are your keys.
-- Just please don't sh**t me or Chuck.
+- Just please don't sh\*\*t me or Chuck.
 - Look, if this has anything to do with my mom or Albania or Tangiers... or that café in Budapest...
 - That was not his fault.
 - Anyway, we have explanations for them.
@@ -159,7 +159,7 @@
 - Morgan: You know, Chuck, this does not happen to real spies.
 - I'm cornered. What do I do?
 - MAN [OVER PHONE]: Use the device.
-- [g*n COCKS]
+- [g\*n COCKS]
 - Sarah: Make a move and you're dead, Marco.
 - Please, make a move.
 - I thought you said the EMP was a fake.
@@ -171,7 +171,7 @@
 - The building elevators are knocked out.
 - Mr. Volkoff's agents will be here in minutes.
 - You're trapped.
-- Put down your g*n.
+- Put down your g\*n.
 - [GRUNTS]
 - He really should be here. Chuck's the Intersect.
 - Could use him on a mission like this. I hate cracking into computer systems.
@@ -325,7 +325,7 @@
 - And don't think you're going to find another job.
 - Why?
 - You, you, you.
-- That was you on the phone, wasn't it? You t*nk my interviews, didn't you?
+- That was you on the phone, wasn't it? You t\*nk my interviews, didn't you?
 - [PHONE RINGING]
 - Oh.
 - Hi, Sarah. Back in town?
@@ -425,7 +425,7 @@
 - Whoa. Whoa.
 - New Buy More rules.
 - Slides and trapdoors and the new super spy/Nerd Herder Greta.
-- Be still, my b*at heart. She digs me, I can tell.
+- Be still, my b\*at heart. She digs me, I can tell.
 - Morgan.
 - Mm-hm.
 - We need to get the car back.
@@ -471,7 +471,7 @@
 - For example, this Shimira Chicken.
 - Ah. Shimira.
 - Okay, Shimira is actually a nav system for spy subs.
-- This is not a menu for ordering food. This is a menu for ordering w*apon.
+- This is not a menu for ordering food. This is a menu for ordering w\*apon.
 - Wh... ? Why would your mom have that?
 - Let's call and find out.
 - Use your dad's encrypted phone.
@@ -483,7 +483,7 @@
 - MAN [OVER PHONE]: Who is this? Identify.
 - This is Carmichael. I work for The Ring.
 - Man: The Ring was eliminated.
-- We are an sh**t of The Ring.
+- We are an sh\*\*t of The Ring.
 - The New Ring.
 - I'm the head of security.
 - I'll need to see your organization firsthand if we agree to work.
@@ -570,7 +570,7 @@
 - Game time.
 - Yep.
 - This place is nuts.
-- Yeah, it's a Cold w*r relic, buddy.
+- Yeah, it's a Cold w\*r relic, buddy.
 - Oh, dude.
 - What is this?
 - Morgan, that's an EMP.
@@ -612,7 +612,7 @@
 - Awesome, awesome.
 - Anything?
 - Nothing coming up with her name.
-- I'm checking aliases, missions Dad thought she went on, w*apon she was after.
+- I'm checking aliases, missions Dad thought she went on, w\*apon she was after.
 - [COMPUTER BEEPING]
 - Hang on. Hang on. Wait a minute. "Frost. "
 - Frost.
@@ -637,7 +637,7 @@
 - We are.
 - Marco: Enough with the toes.
 - No one's coming.
-- I would love nothing more than to put b*ll*ts in both your heads.
+- I would love nothing more than to put b\*ll\*ts in both your heads.
 - Yeah, go ahead and do it. Don't jabber, just do it.
 - The problem is you're not the two agents I'm looking for.
 - In the past six months, two CIA agents... have gotten closer to Volkoff Industries than any other spy.
@@ -647,9 +647,9 @@
 - No idea.
 - Never seen them.
 - Chuck: Morgan, this way.
-- [g*n COCK]
+- [g\*n COCK]
 - Back, back, back.
-- [g*n COCK]
+- [g\*n COCK]
 - MAN [OVER RADIO]: Got them. They're in the building.
 - They're here. They must have come for you.
 - Well, that's their first mistake.
@@ -663,14 +663,14 @@
 - You've gotta flash. You've gotta get out.
 - I've heard enough.
 - This is a mistake. He's not a spy.
-- k*ll them.
+- k\*ll them.
 - No, please, no.
-- [g*n OVER RADIO]
+- [g\*n OVER RADIO]
 - Chuck?
 - [SCREAMS OVER RADIO]
 - Well, it all seemed a bit anticlimactic.
 - I'm gonna tear you limb from limb from limb.
-- Okay, I got it. Somebody please sh**t this guy.
+- Okay, I got it. Somebody please sh\*\*t this guy.
 - CHUCK [OVER RADIO]: Hello?
 - Yes, who is it?
 - Chuck: Look, you clearly have no idea who I am.
@@ -689,7 +689,7 @@
 - Saving your lives, okay? Let's just go with that for now.
 - Ahem, I'm good.
 - Cut me free.
-- I got some Russians to k*ll.
+- I got some Russians to k\*ll.
 - Chuck: Not yet.
 - There's one more thing I have to do.
 - I'm waiting for you, and I don't like to wait.
@@ -725,7 +725,7 @@
 - Any of you.
 - Yeah, we get it. Pull the trigger.
 - Okay, great. Great plan. Now what?
-- Now we deploy the best commie r*fle ever invented, comrade AK-47.
+- Now we deploy the best commie r\*fle ever invented, comrade AK-47.
 - Move it, move it.
 - Let's go, let's go.
 - Everybody alive?

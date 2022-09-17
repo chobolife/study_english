@@ -21,7 +21,7 @@
 - Copy that.
 - On my word, take them out, all of them.
 - The men in that room just slaughtered the couple that lived in this house.
-- Give them the opportunity, they'll k*ll you, too.
+- Give them the opportunity, they'll k\*ll you, too.
 - (men laughing)
 - Now move.
 - ♪
@@ -108,7 +108,7 @@ Original Air Date on December 30, 2011
 - It's nothing; I'll be back soon.
 - J-Just wait, just wait one second.
 - Hear me out.
-- Yes, I love you, so, of course, I'm going to want to know what's going on, why this mission needs to be so secretive, why you need so many g*n, but I'm willing to put all that aside.
+- Yes, I love you, so, of course, I'm going to want to know what's going on, why this mission needs to be so secretive, why you need so many g\*n, but I'm willing to put all that aside.
 - Really?
 - Really? Really?
 - (mouthing)
@@ -160,7 +160,7 @@ Original Air Date on December 30, 2011
 - I'm afraid that's above your pay grade.
 - This mission wasn't sanctioned by the CIA, was it?
 - Look, we did a good thing.
-- The men you took out k*ll that girl's entire family.
+- The men you took out k\*ll that girl's entire family.
 - She's the only heir to a massive fortune, so whoever has her has access to it.
 - She's the key.
 - And you want the money.
@@ -198,7 +198,7 @@ Original Air Date on December 30, 2011
 - Look, if I tell you, I'm not only compromising their safety, but your safety, as well.
 - Okay, so, when you see Ryker, what then?
 - What are you gonna do?
-- I'm gonna k*ll him, Chuck.
+- I'm gonna k\*ll him, Chuck.
 - Chuck: Still nothing.
 - Look, I know I typically overreact to stuff like this, but there's something about this entire situation that I do not like.
 - This time, you might be right, Bartowski.
@@ -296,7 +296,7 @@ Original Air Date on December 30, 2011
 - Where the hell is Ryker? !
 - Any sign of her?
 - Man: Nothing yet, sir.
-- (g*n clicks)
+- (g\*n clicks)
 - You didn't think I was just gonna use the front door, did you?
 - I knew you wouldn't use the front door.
 - You tell me everything Sean told you right now.
@@ -567,7 +567,7 @@ Original Air Date on December 30, 2011
 - (grunting)
 - ♪
 - (choking)
-- You came so close to keeping her safe, you really did, but I'm gonna k*ll you and then I'm gonna k*ll your mom.
+- You came so close to keeping her safe, you really did, but I'm gonna k\*ll you and then I'm gonna k\*ll your mom.
 - (choking) And then after I get that money, you know what I'm gonna do with that little girl?
 - Hmm?
 - Get up. (grunts)
@@ -578,7 +578,7 @@ Original Air Date on December 30, 2011
 - But you always manage to make the same mistake.
 - Even when you have a team, here you are all alone.
 - When the hell are you gonna learn?
-- (two g*n outside)
+- (two g\*n outside)
 - (grunts, stabs)
 - (panting)
 - I'm not alone.

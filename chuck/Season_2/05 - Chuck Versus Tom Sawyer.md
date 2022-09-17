@@ -1,11 +1,11 @@
 # Chuck Versus Tom Sawyer
 
-- Stu Brewster here, and I'd like you all to meet Jeffery Barnes, the new m*ssile Command world champ.
+- Stu Brewster here, and I'd like you all to meet Jeffery Barnes, the new m\*ssile Command world champ.
 - SAN FERNANO VALLEY, 1983
 - VALLEY VIDEO GAME CHAMPIONSHIPS
 - Thanks for joining us, Jeff.
 - My pleasure, Stu.
-- Now, Jeff, you've dedicated the last three years of your life to playing m*ssile Command.
+- Now, Jeff, you've dedicated the last three years of your life to playing m\*ssile Command.
 - You've managed to take a video game and raise it to a level that can only be described as an art form.
 - So let me ask the question on everybody's mind: What's next for Jeff Barnes?
 - What's next? Uh...
@@ -113,7 +113,7 @@
 - This is him... Chuck.
 - We finally meet, Chuck.
 - Hi.
-- SOMALIA TRAINING CAMPS DIRTY b*mb TRADE NUCLEAR w*apon TRAINING
+- SOMALIA TRAINING CAMPS DIRTY b\*mb TRADE NUCLEAR w\*apon TRAINING
 - Are you feeling all right?
 - No- yes!
 - Yes, I'm fine.
@@ -128,7 +128,7 @@
 - Hmm...
 - Farrokh Bulsara, CLASSIFIED born in the Asir Province, 1974.
 - The past ten years, he's been hopping between training camps from Syria to Somalia.
-- What does a global t*rror1st want with a nerd like Jeff?
+- What does a global t\*rror1st want with a nerd like Jeff?
 - Insightful question, Bartowski.
 - It's why we have an Intersect.
 - We want you to approach Jeff socially.
@@ -149,7 +149,7 @@
 - Do you know if he has any plans?
 - Tonight?
 - Uh, actually, I think he is hanging out with Jeff.
-- Nerd Herd, creepy, k*ll Jeff?
+- Nerd Herd, creepy, k\*ll Jeff?
 - Yeah.
 - I think it's time that you and I had a talk.
 - I hope you enjoyed your fro-yo?
@@ -232,8 +232,8 @@
 - Please don't be a porno.
 - Please, please don't be a porno.
 - And I'd like you all to meet Jeffery Barnes.
-- The new m*ssile Command world champ.
-- m*ssile Command?
+- The new m\*ssile Command world champ.
+- m\*ssile Command?
 - I used to kick ass at that game.
 - Well, I was the best.
 - By breaking the all-time record, you've won $100 in quarters and a year's supply of Slim Jim's.
@@ -251,7 +251,7 @@
 - He's deadweight.
 - You weren't kidding.
 - Go! Go!
-- He pukes on my upholstery, he's gonna wish we left him with the t*rrorists.
+- He pukes on my upholstery, he's gonna wish we left him with the t\*rrorists.
 - Search the place.
 - Should I be worried about him?
 - You know, um, Chuck is, uh...
@@ -321,12 +321,12 @@
 - Actually, we just got some fresh intel on your favorite video game designer.
 - There were a few things Morimoto left out of his bio.
 - Yeah. Guy secretly worked for Japanese military.
-- In 1980, they launched Morimoto's first-generation w*apon satellite.
-- The guy who created m*ssile Command commands actual m*ssile?
+- In 1980, they launched Morimoto's first-generation w\*apon satellite.
+- The guy who created m\*ssile Command commands actual m\*ssile?
 - Via satellite.
 - It's still up there- dormant, but presumed operational.
 - Anyone knows how to fire that puppy up, it's Morimoto.
-- And you think he's working with Farrokh and the t*rrorists?
+- And you think he's working with Farrokh and the t\*rrorists?
 - Well, he hasn't been seen in years.
 - We captured this image outside Morimoto's office about an hour ago.
 - What about Jeff?
@@ -393,11 +393,11 @@
 - You listening to Rush?
 - You are too late.
 - He took the code.
-- Who are they, t*rrorists?
+- Who are they, t\*rrorists?
 - I knew I should've never hidden the numbers inside the machine.
-- You hid the satellite code inside a game of m*ssile Command?
+- You hid the satellite code inside a game of m\*ssile Command?
 - Every game, hidden in the final board.
-- The k*ll screen.
+- The k\*ll screen.
 - A secret level only I could achieve.
 - The mathematics underlying the final board are too advanced.
 - It's like the music of the universe.
@@ -415,38 +415,38 @@
 - No, no, no, wait!
 - Go, go, go! It's a... wait, wait!
 - THE END General, we're sorry to report that Farrokh and his team have the code.
-- That, and they m*rder Morimoto.
+- That, and they m\*rder Morimoto.
 - That means that your duties are no longer required on this operation.
 - Casey, we're turning this matter over to the 30th Space Wing at Vandenberg.
 - Wait, you're launching an ICBM?
-- You think you can sh**t down that satellite before it sh**t us?
+- You think you can sh\*\*t down that satellite before it sh\*\*t us?
 - Morimoto's satellite will be passing over California in four hours.
-- Best case, we sh**t it down off the coast before its own m*ssile are armed.
+- Best case, we sh\*\*t it down off the coast before its own m\*ssile are armed.
 - The satellite falls to Earth with acceptable civilian casualties.
 - Wait a second, acceptable what?
 - I'd like to hear the bad version.
 - We miss.
 - What happens then?
-- Farrokh uses Morimoto's satellite to start World w*r III.
-- Hey, what about the... what about the k*ll screen?
-- Excuse me? - m*ssile Command - Morimoto said that the code is hidden in every arcade game.
-- If we can get to the k*ll screen, we can get the code, and then we can take control of the satellite.
+- Farrokh uses Morimoto's satellite to start World w\*r III.
+- Hey, what about the... what about the k\*ll screen?
+- Excuse me? - m\*ssile Command - Morimoto said that the code is hidden in every arcade game.
+- If we can get to the k\*ll screen, we can get the code, and then we can take control of the satellite.
 - We'll have our engineers take a...
-- No, look, the only way to get the code is by b*at the game, and the only person who can b*at the game...
-- Is b*rned to a crisp.
+- No, look, the only way to get the code is by b\*at the game, and the only person who can b\*at the game...
+- Is b\*rned to a crisp.
 - I was talking about Jeff.
 - So was I.
 - Casey, you coordinate with the Air Force while Mr. Bartowski pursues his... contingency plan.
 - But I promise you, one way or another, I am bringing that satellite down.
-- You want me to come out of m*ssile Command retirement?
+- You want me to come out of m\*ssile Command retirement?
 - You're serious?
 - Deadly.
 - I don't know, man.
 - Come on, what's the problem?
 - I guess I'm just cool with resting on my laurels and whatnot.
-- But Jeff... you could be the first guy to ever get to the k*ll screen.
+- But Jeff... you could be the first guy to ever get to the k\*ll screen.
 - Listen, it doesn't exist.
-- The k*ll screen's just a myth.
+- The k\*ll screen's just a myth.
 - I promise you, it's real, and you're the only one who can do it.
 - I'm a little out of shape, mentally.
 - Jeff, it's just a stupid video game!
@@ -461,7 +461,7 @@
 - How you had this incredible gift that you couldn't wait for the world to see.
 - Really? I said that?
 - Sure you did, Jeff.
-- About m*ssile Command?
+- About m\*ssile Command?
 - You were very compelling.
 - Okay, I'll do it.
 - I'll play.
@@ -483,12 +483,12 @@
 - Why don't you just go ask your buddy, Jeff?
 - He's in the break room.
 - We're putting together this like video game exhibition-thingy this afternoon.
-- Jeff's gonna make a run at the all-time m*ssile Command high score.
+- Jeff's gonna make a run at the all-time m\*ssile Command high score.
 - Whoa.
 - Hey, where are you going?
 - Sounds like you two guys got it all worked out.
 - Morgan, I desperately need your help, okay?
-- If Jeff doesn't break the m*ssile Command record...
+- If Jeff doesn't break the m\*ssile Command record...
 - What, Chuck? The world's gonna end?
 - Look, all I know is that I need your help.
 - Okay, I can't do this without you, buddy.
@@ -506,14 +506,14 @@
 - Oh, dude, she's all yours.
 - Great.
 - JEFF BARNES TO PLAY EXHIBITION!
-- m*ssile COMMAND JEFF BARNES TO PLAY EXHIBITION! m*ssile COMMAND THE GREAT ONE RETURNS JEFF BARNES AT BUY MORE ASAP!
+- m\*ssile COMMAND JEFF BARNES TO PLAY EXHIBITION! m\*ssile COMMAND THE GREAT ONE RETURNS JEFF BARNES AT BUY MORE ASAP!
 - Jeff! Jeff! Jeff! Jeff!
 - Jeff! Jeff! Jeff! Jeff!
-- I'm here at a Burbank electronics store where a local man prepares to break the m*ssile Command record.
+- I'm here at a Burbank electronics store where a local man prepares to break the m\*ssile Command record.
 - BLAST FROM THE PAST A FADING STAR SEEKS NEW GLORY
 - Now for those of you who weren't around a quarter century ago, Jeffrey Barnes first made his mark on... way back in 1983.
 - Sarah, Sarah- I know where Farrokh is.
-- The t*rrorists are using a television station to control the satellite; they're here in L.A.
+- The t\*rrorists are using a television station to control the satellite; they're here in L.A.
 - Chuck flashed.
 - He knows where they're controlling the satellite.
 - There is still time before the satellite is in range.
@@ -529,18 +529,18 @@
 - Jeff! Jeff! Jeff! Jeff! Jeff!
 - I'd like you all to meet Jeffrey Barnes.
 - Uh...
-- m*ssile Command world champ.
+- m\*ssile Command world champ.
 - I don't feel so hot.
 - What? No, no, no.
 - You're gonna be great. You look great.
-- You're gonna k*ll it, buddy.
+- You're gonna k\*ll it, buddy.
 - What was I thinking, man?
-- No one can get the k*ll screen.
+- No one can get the k\*ll screen.
 - I can't handle the math.
-- You've dedicated three years of your life to playing m*ssile Command.
+- You've dedicated three years of your life to playing m\*ssile Command.
 - It's too heavy.
 - It feels like my brain is about to...
-- What's next for Jeff Barnes, m*ssile Command world champ?
+- What's next for Jeff Barnes, m\*ssile Command world champ?
 - Get up for a second.
 - Hey.
 - I'll get some water.
@@ -549,8 +549,8 @@
 - Hey, hey.
 - Come on, buddy, come on!
 - Wake up, buddy! You got to play!
-- You got to get the k*ll screen, you got to get the code.
-- If we don't stop that satellite, they're gonna launch some crazy m*ssile into space and then-then... then it's World w*r III.
+- You got to get the k\*ll screen, you got to get the code.
+- If we don't stop that satellite, they're gonna launch some crazy m\*ssile into space and then-then... then it's World w\*r III.
 - Acceptable civilian casualties.
 - Oh, my God.
 - Hey, Chuck, what's up?
@@ -590,7 +590,7 @@
 - You suck, Bartowski.
 - Are you listening to Rush?
 - Music of the universe.
-- m*ssile Command.
+- m\*ssile Command.
 - The mathematical pattern underlying the game is exactly the same as-
 - Morgan.
 - Hey, uh, buddy, do, do we carry any Rush CDs in the store?
@@ -630,7 +630,7 @@
 - It doesn't matter.
 - No one will remember who threw the first stone.
 - Oh, my God.
-- Gentlemen, we have a k*ll screen.
+- Gentlemen, we have a k\*ll screen.
 - I got this.
 - Target's to range.
 - Releasing synchronized safeties.
@@ -640,8 +640,8 @@
 - Fire when ready, sir.
 - Chuck, what's happening?
 - Sarah, I did it!
-- I did it, I b*at the game.
-- I got to the k*ll screen.
+- I did it, I b\*at the game.
+- I got to the k\*ll screen.
 - I got the code!
 - The game- it follows a pattern.
 - It's just like Mr. Morimoto said- the music of the universe.
@@ -652,7 +652,7 @@
 - Gamma...
 - Sector...
 - Bob...
-- w*apon SEQUENCE TERMINATED
+- w\*apon SEQUENCE TERMINATED
 - Oh, my God.
 - Satellite's powering down.
 - Terminate launch sequence.
@@ -683,7 +683,7 @@
 - Good.
 - Thanks.
 - So...
-- m*ssile Command champion.
+- m\*ssile Command champion.
 - I got lucky.
 - You know.
 - Congrats.
@@ -692,16 +692,16 @@
 - Me? Uh-uh.
 - I'm cool.
 - Being number one is a real bitch.
-- Feels like the whole world is g*n for you, sometimes.
+- Feels like the whole world is g\*n for you, sometimes.
 - I can imagine.
 - So, what was it like?
-- The k*ll screen?
+- The k\*ll screen?
 - Forget it.
 - I'll see you tomorrow.
 - Oh, I am so proud of you!
 - Hey, relax.
 - It's just a video game.
-- Granted, I am the best m*ssile Commander in the world.
+- Granted, I am the best m\*ssile Commander in the world.
 - I'm not talking about a stupid video game.
 - I'm talking about this.
 - Sarah told us what's inside.
@@ -729,9 +729,9 @@
 - What about my last 12 credits?
 - Well, Casey and I decided that your exceptional field service ought to count for something and Stanford agreed.
 - Huh.
-- And by exceptional, you mean, like, uh, I don't know, decrypting w*apon codes?
+- And by exceptional, you mean, like, uh, I don't know, decrypting w\*apon codes?
 - Electrical Engineering.
-- Or running away from exploding games of m*ssile Command?
+- Or running away from exploding games of m\*ssile Command?
 - Physical Education.
 - You earned it, Chuck.
 - Thank you.

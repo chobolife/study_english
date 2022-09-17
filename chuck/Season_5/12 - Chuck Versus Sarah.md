@@ -9,7 +9,7 @@
 - Who are you?
 - Your handler.
 - Orders are in.
-- k*ll Chuck Bartowski.
+- k\*ll Chuck Bartowski.
 - Okay, guys, Sarah's out there.
 - She's still out there; we need to find her.
 - Quinn said that he's after the last remaining intersect, which means if we find it, we will probably find Quinn, and with him... Sarah.
@@ -22,7 +22,7 @@
 - Defense Advanced Research Projects Agency.
 - Morgan, if the CIA had a Q working for them, he'd be working right there.
 - And I've seen enough Intersect white rooms to know that they have one.
-- Guys, I know this is a long sh*t, But I have to do something to find her.
+- Guys, I know this is a long sh\*t, But I have to do something to find her.
 - I cannot continue to sit idly by and wait.
 - Are you with me?
 - Let's go. 100%.
@@ -82,7 +82,7 @@
 - We believe that Bartowski and his team are responsible for both of their deaths.
 - And I wish I could just let you forget everything horrible that this man has done, but Chuck Bartowski needs to be stopped.
 - He's a traitor.
-- And you want me to k*ll him?
+- And you want me to k\*ll him?
 - Yes.
 - But first, I need you to retrieve something that he's stolen from us.
 - A pair of Intersect glasses.
@@ -104,7 +104,7 @@ Original Air Date on January 27, 2012
 ♪ Na-na na-na na-na ♪
 ♪ Na-na na-na na-na ♪
 - (whimpers)
-- (Butcher's kn*fe pounds)
+- (Butcher's kn\*fe pounds)
 - Wow, you are...
 - You are really going to town on that thing, huh?
 - I'm just cutting the chicken up.
@@ -124,7 +124,7 @@ Original Air Date on January 27, 2012
 - I can't put my finger on it.
 - Sarah just seems different.
 - Look, of course she's not acting like herself.
-- Okay, she was kidnapped by some homicidal maniac on a Japanese b*llet train, and then in order to escape, she had to k*ll the dude and walk home from his secret base barefoot!
+- Okay, she was kidnapped by some homicidal maniac on a Japanese b\*llet train, and then in order to escape, she had to k\*ll the dude and walk home from his secret base barefoot!
 - Wow, she really is incredible, huh?
 - Yeah, yeah, maybe you're right, maybe you're right.
 - Maybe I just need to try and make her feel, you know, a little more relaxed.
@@ -183,10 +183,10 @@ Original Air Date on January 27, 2012
 - What are you babbling about?
 - I just get nostalgic, you know?
 - Quinn's dead, Sarah's home safe, so we're done, man. No more missions.
-- And no more g*n.
+- And no more g\*n.
 - Think about it, Casey. Five years.
 - I went from pipsqueaky sidekick to this.
-- And you, you were the most cold-blooded sn*per in the whole world, and now you're scrubbing our floors.
+- And you, you were the most cold-blooded sn\*per in the whole world, and now you're scrubbing our floors.
 - Well, if you would use a plate when you're eating taquitos, I wouldn't have to scrub the floors, would I?
 - Do you really think I've changed?
 - I'm so glad that Sarah's back.
@@ -248,7 +248,7 @@ Original Air Date on January 27, 2012
 - What do you want me to do?
 - You have to go with Chuck and download it onto the glasses yourself to ensure its protection.
 - It's up to you to keep it safe.
-- Then you can k*ll him.
+- Then you can k\*ll him.
 - Just wanted to get a little... sisterly advice.
 - (sighs)
 - I think if you can be safe, then you should do it.
@@ -287,7 +287,7 @@ Original Air Date on January 27, 2012
 - Hey, Casey, Chuck says you got to let me use your tranq darts.
 - What is she doing with these?
 - (whirring and chirping)
-- (g*n)
+- (g\*n)
 - (beeping)
 - (whirring)
 - (beeping, whirring and chirping)
@@ -353,9 +353,9 @@ Original Air Date on January 27, 2012
 - Just a second.
 - (beeps)
 - Casey: Walker!
-- Drop the g*n.
+- Drop the g\*n.
 - Sarah? Sarah, what are you doing?
-- Drop the g*n.
+- Drop the g\*n.
 - Now, I have the Intersect, and you can't destroy it, and you can't hurt anybody else with it.
 - Baby, what are you talking about?
 - Quinn told me the truth.
@@ -374,13 +374,13 @@ Original Air Date on January 27, 2012
 - Don't!
 - (whooshing)
 - (door clanks shut)
-- (g*n, electrical crackling)
+- (g\*n, electrical crackling)
 - (rhythmic beeping)
 - This can't be happening.
 - It doesn't make any sense.
 - (beeping quickens)
 - (rapid beeping)
-- She attached an expl*sive to the door.
+- She attached an expl\*sive to the door.
 - She could detonate it at any second.
 - No. No, she wouldn't.
 - We gotta take cover.
@@ -389,7 +389,7 @@ Original Air Date on January 27, 2012
 - They're locked inside.
 - They'll be arrested.
 - That's not your call.
-- (expl*si*n inside building)
+- (expl\*si\*n inside building)
 - (coughs) We gotta get out of here before more guards come.
 - What just happened?
 - Sarah, sh-she just...
@@ -426,7 +426,7 @@ Original Air Date on January 27, 2012
 - Okay, that's a little unfair.
 - It's the faulty Intersect talking.
 - It's kind of like what happened with me, only much, much worse.
-- Seeing as how she tried to k*ll us.
+- Seeing as how she tried to k\*ll us.
 - Quinn turned her. We have to consider the fact that maybe she's gone.
 - Hoe can you say that? She's your friend!
 - And she's not gone. Not completely anyway.
@@ -434,7 +434,7 @@ Original Air Date on January 27, 2012
 - All I have to do is remind her of who she really is.
 - You know, look, look, I have, I have the glasses.
 - Even if she doesn't remember me, I know that she wanted these.
-- She tried to k*ll us, Chuck.
+- She tried to k\*ll us, Chuck.
 - Can't pretend that everything is as it was.
 - Otherwise, she's gonna succeed next time.
 - And I'm not gonna lose you both.
@@ -474,14 +474,14 @@ Original Air Date on January 27, 2012
 - This is crazy, Sarah. Please.
 - Oh, Bartowski, if you try anything...
 - Sarah, what are you doing?
-- I'm gonna put a b*llet between your sister's eyes.
+- I'm gonna put a b\*llet between your sister's eyes.
 - Oh, my God.
 - Beckman: I've heard enough. You were right to contact me.
 - Go to that café.
 - But convince Sarah that you've hidden the Intersect glasses somewhere else.
 - I'm moving men into place at Regal Plaza.
 - Get Sarah there.
-- And then what? Have a sn*per take her out?
+- And then what? Have a sn\*per take her out?
 - We will do whatever it takes to ensure the safety of your sister while bringing in Agent Walker peacefully.
 - But, Chuck, you know that what happens in that plaza depends entirely on Sarah.
 - Sarah, I think that the Intersect may have damaged...
@@ -530,7 +530,7 @@ Original Air Date on January 27, 2012
 - Oh, God, are you okay? I'm okay.
 - What were you thinking?
 - I was thinking about protecting you.
-- Chuck, Sarah's trying to k*ll you.
+- Chuck, Sarah's trying to k\*ll you.
 - There's something seriously wrong with her, Chuck.
 - That's why I'm taking her somewhere that'll help her remember.
 - (grunts)
@@ -562,7 +562,7 @@ Original Air Date on January 27, 2012
 - Actually, you're not as good a liar as you think you are.
 - It's true, okay?
 - Our first kiss, not our, not our first cover kiss, but our first, our first real kiss...
-- was when we were trying to defuse a b*mb and we we thought we were gonna die, and I closed my eyes and...
+- was when we were trying to defuse a b\*mb and we we thought we were gonna die, and I closed my eyes and...
 - I felt you grab me and kiss me.
 - You kissed me.
 - And then there was a lot of pretending that it didn't happen and awkward back-and-forth and even dating other people, but one day, one day when I was sure...  that you could never love a nerd like me, you came over... and I asked you if you loved me.
@@ -597,9 +597,9 @@ Original Air Date on January 27, 2012
 - (Chuck panting)
 - (straining)
 - (panting)
-- (g*n cocking)
+- (g\*n cocking)
 - (panting)
-- You can k*ll me.
+- You can k\*ll me.
 - I will never hurt you.
 - I wrote that.
 - Yeah, you did.
@@ -616,7 +616,7 @@ Original Air Date on January 27, 2012
 - And, uh, I suppose I could explain it all to you, but honestly, you're not worth the time.
 - Quinn: Good-bye, Sarah.
 - Chuck: No!
-- (b*ll*ts ricocheting)
+- (b\*ll\*ts ricocheting)
 - Oh, my God, are you okay?
 - (sirens wailing in distance)
 - I'm wearing a vest.
@@ -633,7 +633,7 @@ Original Air Date on January 27, 2012
 - Where's Sarah?
 - She's gone.
 - Sarah's gone.
-- You're lucky the b*llet only hit your vest, bro.
+- You're lucky the b\*llet only hit your vest, bro.
 - Yes, it's the best news I've heard all day.
 - (groaning)
 - All right, all right, I'll get you something for the pain.
@@ -648,7 +648,7 @@ Original Air Date on January 27, 2012
 - Don't ever leave me.
 - Never.
 - Figured I'd find you here.
-- You can put the kn*fe down; I'm not here to fight.
+- You can put the kn\*fe down; I'm not here to fight.
 - What do you remember about me?
 - Your reputation, mostly.
 - Unfriendly, unforgiving and... unquestioning about your orders.
@@ -673,7 +673,7 @@ Original Air Date on January 27, 2012
 - Chuck broke up with me today.
 - Well, uh, Fake... Fake broke up with me, technically.
 - Day 56.
-- Chuck I were defusing a b*mb today, and there was a moment where we were sure we were going to die.
+- Chuck I were defusing a b\*mb today, and there was a moment where we were sure we were going to die.
 - He closed his eyes, and...
 - I kissed him.
 - I... kissed him.

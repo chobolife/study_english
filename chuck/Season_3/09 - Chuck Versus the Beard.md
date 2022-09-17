@@ -23,11 +23,11 @@
 - Did you flash?
 - Uh, yeah. Not, uh, not flashing.
 - You haven't flashed in a week, Chuck.
-- Ever since Rafe tried to k*ll Sarah and me.
+- Ever since Rafe tried to k\*ll Sarah and me.
 - That's a problem.
 - Problem?
 - Really? Problem? Kind of a strong word, don't you think? Just 'cause a guy had a couple off nights.
-- Off nights get agents k*ll. You need to figure this out, because the Intersect's not working.
+- Off nights get agents k\*ll. You need to figure this out, because the Intersect's not working.
 - And I can't risk putting you out in the field.
 - Okay, so, what exactly are you saying?
 - I'm saying that until you start flashing again, you're no longer a spy.
@@ -147,7 +147,7 @@
 - 49...
 - 57, 43.
 - 40.
-- El g*n School of Finance, we take care of business!
+- El g\*n School of Finance, we take care of business!
 - What's going on here, Big Mike?
 - Someone's thinking of buying the store.
 - We're closing today so some building inspectors and technicians can come down and kick the tires.
@@ -176,7 +176,7 @@
 - Yeah, yeah.
 - Listen, despite our differences, all we have is each other.
 - So let's, uh, let's stick together here, all right?
-- This is a bl*od oath right here.
+- This is a bl\*od oath right here.
 - One for all, and all for one. All right.
 - Lester Patel?
 - Yeah, I've found it!
@@ -388,7 +388,7 @@
 - Hey, Morgan, we need to talk. Chuck, we gotta talk, listen.
 - Me first okay, trust me, whatever you're gonna say is nothing compared to what I got.
 - Hmm? Okay.
-- Fine, yeah, please, sh**t.
+- Fine, yeah, please, sh\*\*t.
 - Okay, uh...
 - Dude, there's a secret underground CIA base under our Buy More.
 - I... Hey, listen, I know it sounds crazy, but you have to believe me here, okay?
@@ -610,14 +610,14 @@
 - I've uploaded it to headquarters.
 - The bad news, Colonel Casey's arrived at the Buy More.
 - Could be a problem.
-- Not if he's dead. k*ll him.
+- Not if he's dead. k\*ll him.
 - ♪ Whoo ♪
 ♪ It ain't me, it ain't me ♪
 ♪ I ain't no fortunate one, no, no, no ♪
 ♪ It ain't me, it ain't me ♪
 ♪ I ain't no fortunate son ♪
 - Peace out, man.
-- Hey, brother Casey, make love not w*r.
+- Hey, brother Casey, make love not w\*r.
 - You want a hit?
 - Hey, man, that's not cool.
 - Fight the power.
@@ -665,7 +665,7 @@
 - Morgan, you have no idea how badly I needed to get all this off my chest.
 - Thank you.
 - Get rid of them.
-- k*ll them. Dump the bodies.
+- k\*ll them. Dump the bodies.
 - Thank me later, buddy.
 - We're about to die.
 - No, you're not.
@@ -742,10 +742,10 @@
 - The store is no longer for sale.
 - Victory!
 - No, I'm not kidding you.
-- When was the last time you b*at me at Duck Hunt?
+- When was the last time you b\*at me at Duck Hunt?
 - I am the old-school master.
 - I...
-- What are you... ? I want you to tell me... When was the last time that you b*at me at Duck Hunt? That's... that's incredible.
+- What are you... ? I want you to tell me... When was the last time that you b\*at me at Duck Hunt? That's... that's incredible.
 - Uh, hey, keep these, uh, meatball subs warm for me, would you, buddy?
 - I'll be right in.
 - Um, I talked to Shaw, and I heard what happened.
@@ -787,13 +787,13 @@
 - That'll buy us the time we need to put together a full offensive, take them down once and for all.
 - So then, what's wrong?
 - The Ring had me dead to rights today in Malibu.
-- So why didn't they k*ll me?
+- So why didn't they k\*ll me?
 - So, Sarah and Casey... They're really spies, huh?
 - Yeah, yeah. They're great.
 - I trust them with my life.
 - Are you kidding me?
 - That is ridiculous, dude.
-- Look at that sh**ting.
+- Look at that sh\*\*ting.
 - Are...
 - You did your flash thingy on it.
 - You flashed on Duck Hunt.

@@ -5,7 +5,7 @@
 - So, you're under arrest.
 - For what?
 - Attempted homicide.
-- John Casey, you're under arrest for m*rder.
+- John Casey, you're under arrest for m\*rder.
 - How are you holding up?
 - Well, the government I proudly served for 20 years has locked me up with the scum of the earth.
 - I'm great.
@@ -34,7 +34,7 @@
 - Mm. Look, guys, please, just, ah, tell me what I have to do to get out of this place.
 - It's so simple. Okay, Jeff has agreed You promise not to poison him anymore.
 - Yeah, I'm sorry, I can't promise that.
-- Wake up, man! You are gonna get yourself k*ll in this... !
+- Wake up, man! You are gonna get yourself k\*ll in this... !
 - You know what? It doesn't matter. I don't care, all right?
 - Good luck in prison. You know what?
 - No, good luck to you both finding a better Indian guy in your life or at the Buy More!
@@ -160,11 +160,11 @@ Original Air Date on December 9, 2011
 - And of course after that, it was cake.
 - Well, hello, Colin Davis-- the man behind the Omen virus.
 - Coming your way in three, two, one.
-- Guy was a head programmer at The Collective; a rogue group of technological t*rrorists who sold viruses to the highest bidder.
+- Guy was a head programmer at The Collective; a rogue group of technological t\*rrorists who sold viruses to the highest bidder.
 - Three months ago, he disappeared with the key to the virus.
 - Drop off the grid crazy-guy style. I like that.
 - Well, Mr. Colin Davis, let's see if you left us any clues as to where you went.
-- Mm-hmm. sh**t. I promised Jeff that I was gonna help him with this whole Lester thing.
+- Mm-hmm. sh\*\*t. I promised Jeff that I was gonna help him with this whole Lester thing.
 - All right, guys, you'll be okay here.
 - Oh, make sure that he eats.
 - When he gets all plugged in, he goes overboard with the chardonnay.
@@ -177,15 +177,15 @@ Original Air Date on December 9, 2011
 - So, if you'll be so kind as to take me to the newlyweds.
 - I can't, I can't bring guests down to Castle.
 - Are you really gonna make me use this?
-- You'd sh**t me?
-- I'd b*at you over the head with it.
+- You'd sh\*\*t me?
+- I'd b\*at you over the head with it.
 - Well, this is Davis's last known location.
 - He must have brought the virus here.
 - Some kind of encampment behind this barrier.
 - It looks like some sort of separatist compound.
 - There could be a militia training back there.
 - Mm, Casey would have loved this mission.
-- And you're aware that you're going to get yourselves k*ll without Casey?
+- And you're aware that you're going to get yourselves k\*ll without Casey?
 - I decided to let her in after we had an adult conversation.
 - What are you doing here, Verbanski?
 - Ease up, I'm not here to steal any of your "precious secrets. "
@@ -194,10 +194,10 @@ Original Air Date on December 9, 2011
 - Look, we both want Casey out of jail.
 - You want your partner back and I...
 - I-I hate to see the competition struggle like this.
-- As far as I can tell, you need a sn*per on this mission.
-- I've done some pretty amazing sn*per work on Call of Duty.
+- As far as I can tell, you need a sn\*per on this mission.
+- I've done some pretty amazing sn\*per work on Call of Duty.
 - I believe I've made my point.
-- Well, the sn*per r*fles are behind you in the armory.
+- Well, the sn\*per r\*fles are behind you in the armory.
 - (whispers): I'll bring my own.
 - (quiet groan)
 - Things can get really nasty really fast, if you're not running with the crowd in here.
@@ -232,7 +232,7 @@ Original Air Date on December 9, 2011
 - Strip. Come on.
 - (group chanting, yelling)
 - (group chanting, yelling)
-- Now keep a close eye. I really have no place to hide a g*n.
+- Now keep a close eye. I really have no place to hide a g\*n.
 - Not too close an eye, though.
 - I'm serious, for real, no looking, thank you.
 - Verbanski: Calm down. No one's looking at anything.
@@ -307,7 +307,7 @@ Original Air Date on December 9, 2011
 - Yeah... maybe.
 - (lively drumming)
 - I got eyes on Davis.
-- Verbanski: I'm in position to sh**t any and all of these filthy hippies.
+- Verbanski: I'm in position to sh\*\*t any and all of these filthy hippies.
 - It's almost like Casey never left.
 - Okay, stay focused.
 - This is over as soon as we find the virus.
@@ -319,7 +319,7 @@ Original Air Date on December 9, 2011
 - (yelling)
 - (whooping, laughing, applause)
 - All right!
-- You got some k*ll.
+- You got some k\*ll.
 - As do you, my friend.
 - All right.
 - So, uh, you worked in tech, huh?
@@ -345,7 +345,7 @@ Original Air Date on December 9, 2011
 - Colin, I'm trying to help you! God help me!
 - Guard: Stop!
 - Too much tree cover.
-- I don't have a sh*t.
+- I don't have a sh\*t.
 - I'm coming down.
 - (shrieking)
 - Get away!
@@ -397,10 +397,10 @@ Original Air Date on December 9, 2011
 - Real long.
 - Step back!
 - What the hell?
-- I told you, I figured out a way to become the sh*t caller in here.
+- I told you, I figured out a way to become the sh\*t caller in here.
 - Now, any of these people get out of line, I will pull their plugs.
 - Literally, I'll pull their plugs.
-- I've been using my Buy More k*ll to set up cable and Internet for the inmates.
+- I've been using my Buy More k\*ll to set up cable and Internet for the inmates.
 - Of course you have.
 - In fact, I just got a shipment of 12-gauge electrical wire that is making installations a snap.
 - Now these monsters are petrified 'cause I can take their tech away at any moment.
@@ -497,7 +497,7 @@ Original Air Date on December 9, 2011
 - You know, many people say it's the type of voice that would go perfectly with a-- I don't know-- keytar.
 - May I have a moment alone with Jeffrey, please?
 - Of course. Sure, sure.
-- (makes g*n noises)
+- (makes g\*n noises)
 - Well done, well done.
 - Yeah, yeah, perfect. You nailed it.
 - Your voice-- wow, you really underplayed it.
@@ -532,7 +532,7 @@ Original Air Date on December 9, 2011
 - Keep it in the can. Keep it in the trash can.
 - What do you think?
 - Do I look like a hacker?
-- Is the beanie k*ll?
+- Is the beanie k\*ll?
 - SARAH (over earpiece): You look perfect.
 - Okay, I found a duct opening on the east corner, just below the roof.
 - Okay, we have our entry.
@@ -554,7 +554,7 @@ Original Air Date on December 9, 2011
 - Okay.
 - Hi.
 - Freddie is my best programmer.
-- If you can prove your k*ll up against him, then you have the job.
+- If you can prove your k\*ll up against him, then you have the job.
 - But if you fail... you might not be so fortunate.
 - So, a good old-fashioned hack off, huh?
 - Great. Perfect.
@@ -694,7 +694,7 @@ Original Air Date on December 9, 2011
 - It's too late for all of you.
 - It's just a shame that Casey had to be the first to die.
 - (laughs)
-- Give me one reason not to k*ll you.
+- Give me one reason not to k\*ll you.
 - Go ahead.
 - It will only further prove your guilt.
 - So, I suggest you get your hands off me and get a little head start, because soon, people will be hunting Chuck, the way they hunted Bin Laden.

@@ -263,7 +263,7 @@
 - His name is Howard Busgang.
 - He's a research scientist with the Department of Defense.
 - Good job, Chuck.
-- I have a few k*ll of my own now, don't I? Humph.
+- I have a few k\*ll of my own now, don't I? Humph.
 - So nine guys, huh?
 - Really, you're not fudging that number?
 - Not even a little bit? Sounds harder than it is.
@@ -296,9 +296,9 @@
 - Look, you can't just go run off and be the hero all the time.
 - It's not about wanting to be a hero, Chuck.
 - It's about needing to be.
-- Two g*n, huh?
+- Two g\*n, huh?
 - Oh, you really are a badass.
-- No, Chuck, one g*n.
+- No, Chuck, one g\*n.
 - The other one... is for you.
 - Let's go.
 - Normally we stay in the service arena-- waiter, busboy, maybe valet.
@@ -335,14 +335,14 @@
 - No, you're not. No, you're not.
 - Get... get... What are you doing, Chuck?
 - What do you mean what am I doing? I'm doing this.
-- Duncan, what's with the g*n?
+- Duncan, what's with the g\*n?
 - Who are these people?
 - Not your concern, Howard.
 - We work for the government, Dr. Busgang.
 - So do I. Tell them, Duncan.
 - We work for the CIA.
-- The men you work for are t*rrorists.
-- We're not t*rrorists.
+- The men you work for are t\*rrorists.
+- We're not t\*rrorists.
 - We're patriots, Howard.
 - You're a patriot.
 - It's a group of spies that turned your back on the country.
@@ -355,10 +355,10 @@
 - Unfortunately, Howard, that was the wrong thing to say.
 - Hey, Cole, Cole, hey!
 - I found them, I found them.
-- The guy who tortured you is inside with a couple of other big g*ons with g*n.
+- The guy who tortured you is inside with a couple of other big g\*ons with g\*n.
 - Okay, give me 20 seconds, then you go in there, start taking guys out, okay?
 - No, wait, wait, wait!
-- Listen, about the whole-- about the whole g*n thing--
+- Listen, about the whole-- about the whole g\*n thing--
 - Casey and Sarah, they've never really let me--
 - I don't-- how do I say this? -- I've never fired one.
 - Chuck, it's point and click.
@@ -367,7 +367,7 @@
 - 20 seconds.
 - Wait...
 - We're dead.
-- Bartowski's got a g*n.
+- Bartowski's got a g\*n.
 - It's a shame, Howard.
 - Five, six...
 - You really do have an incredible mind.
@@ -384,11 +384,11 @@
 - I'm really not normally this aggressive with women.
 - Oh.
 - Oh, my God.
-- You've been sh*t.
+- You've been sh\*t.
 - I'm fine.
 - Gu... Hey! Hey! Hey!
 - Hey, guys, I think, uh... I think I might need medical attention. My ankle is seriously...
-- Cole took a b*llet to save Sarah.
+- Cole took a b\*llet to save Sarah.
 - Wow. Uh...
 - You okay, buddy? What happened?
 - Nothing.
@@ -494,7 +494,7 @@
 - No.
 - It was a team effort.
 - I get what she sees in you, you know.
-- The fearlessness in the face of danger, the imperviousness to pain. super-cool t*nk tops.
+- The fearlessness in the face of danger, the imperviousness to pain. super-cool t\*nk tops.
 - Stop me whenever this is getting uncomfortable.
 - No.
 - Hey. The briefing is about to start.
@@ -589,7 +589,7 @@
 - No, absolutely not.
 - I want to be released immediately.
 - I'm sorry, sir.
-- This is a g*n wound.
+- This is a g\*n wound.
 - We have to report this.
 - This is outrageous.
 - I don't care about your rules.
@@ -624,12 +624,12 @@
 - Can I help you gentlemen?
 - Turn around.
 - Slowly.
-- You're the guy who sh*t me.
-- It was an accident, I swear. It was the first time I had ever handled a g*n and the first time that I had sh*t someone.
+- You're the guy who sh\*t me.
+- It was an accident, I swear. It was the first time I had ever handled a g\*n and the first time that I had sh\*t someone.
 - Clearly those two things must be connected in some way.
 - Hi. I'm Chuck.
 - Sit down and don't move.
-- I need to accidentally sh**t you.
+- I need to accidentally sh\*\*t you.
 - I didn't come to hurt you or even take you in.
 - I just want some answers about the Intersect.
 - What do you know about the Intersect?
@@ -656,25 +656,25 @@
 - It was his idea, his vision.
 - Everything is based on his work.
 - He put the team together, he drove the research, until he realized--
-- Put the g*n down, Howard.
+- Put the g\*n down, Howard.
 - Who's Orion? Where can I find him?
 - Please! I need to know!
 - Split up!
 - I haven't told him anything.
 - No! No!
-- That's the second time you've sh*t me.
+- That's the second time you've sh\*t me.
 - Let's hope the third time's the charm.
 - Sweep the leg.
 - Hey, are you okay?
-- I'm fine. The g*n.
+- I'm fine. The g\*n.
 - What?
-- Chuck, the g*n!
+- Chuck, the g\*n!
 - Oh, help!
 - Are you okay?
 - Yeah, I think so!
 - I think so.
 - Oh, you were, you were talking to him.
-- I thought you were asking if I was okay but you're talking to him Because he's been sh*t again, right.
+- I thought you were asking if I was okay but you're talking to him Because he's been sh\*t again, right.
 - My bad.
 - No, I was talking to both of you.
 - We're okay, right? We're okay.
@@ -705,7 +705,7 @@
 - You know what?
 - I got a not-so-secret secret for you.
 - You want something bad enough, don't ever take no for an answer.
-- And... for God sakes, man, carry a g*n.
+- And... for God sakes, man, carry a g\*n.
 - Maybe two.
 - Wow.
 - Nice cast.

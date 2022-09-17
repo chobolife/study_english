@@ -194,7 +194,7 @@
 - Wow, thanks. Wait.
 - Here we go.
 - There we go.
-- We'll work on those ball k*ll.
+- We'll work on those ball k\*ll.
 - Hey, what's that?
 - The lobby.
 - What's that?
@@ -276,7 +276,7 @@
 - UCK He's already forgotten us.
 - It's like he looked right through me.
 - Hey, not to add any extra pressure to you guys, but there's a FULCRUM agent here.
-- He's some kind of computer t*rror1st.
+- He's some kind of computer t\*rror1st.
 - Well, if FULCRUM is here, it's even more vital that we stop this launch.
 - Arigato.
 - In-A-Gadda-Da-Vida.
@@ -456,11 +456,11 @@
 - I want this Intersect out of my head.
 - Are you going to help me or not?
 - You got to be...
-- Is that a tranq g*n?
+- Is that a tranq g\*n?
 - You don't even have the common courtesy to threaten me with an actual firearm.
 - What's your answer, Casey?
 - Put the toy down and get your ass back...
-- I'm going to k*ll you when I wake up.
+- I'm going to k\*ll you when I wake up.
 - Sorry.
 - Come on. That's the oldest excuse in the book.
 - Yes, he knows me.
@@ -568,11 +568,11 @@
 - I could offer you a good moisturizer.
 - No?
 - Put him on the helicopter.
-- k*ll the CIA agent.
+- k\*ll the CIA agent.
 - He's my son.
 - He's your son?
 - Congratulations!That's great!
-- I had no idea. k*ll the son.
+- I had no idea. k\*ll the son.
 - Wait, I-I'll...
 - I'll build anything you want.
 - Give FULCRUM their Intersect.
@@ -585,7 +585,7 @@
 - I'm a...
 - Little bit of a monster.
 - But today is his lucky day.
-- g*n on the chopper!Let's go.
+- g\*n on the chopper!Let's go.
 - Charles.
 - Take care of your sister.
 - No, wait...

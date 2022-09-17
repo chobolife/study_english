@@ -8,14 +8,14 @@
 - Your money's on the desk.
 - What a piece of crap.
 - (One month later. Northeast Los Angeles.)
-- Please... please don't sh**t; don't sh**t me.
-- Just put the g*n down.
+- Please... please don't sh\*\*t; don't sh\*\*t me.
+- Just put the g\*n down.
 - Gently.
-- I can't sh**t. That's the problem.
+- I can't sh\*\*t. That's the problem.
 - The stupid thing is busted.
 - Well, when it comesto Mr. Bartowski, my friend, busted is just a state of mind.
 - Opening this puppy up. reconfigure that.
-- And ta-da--locked and loaded. Try that. nice sh*t. See?
+- And ta-da--locked and loaded. Try that. nice sh\*t. See?
 - Chuck, big mike wants to see you.
 - Not now, harry.
 - Can't you see? I'm with a customer? I apologize, sir.
@@ -51,7 +51,7 @@
 - Hey...
 - Oh, man, uh, heard big mikethrew down the gauntlet.
 - Wanted to come byand say I'd love to help.
-- But, a: I lackthe k*ll set, and B. Old computersgive me the willies.
+- But, a: I lackthe k\*ll set, and B. Old computersgive me the willies.
 - You have no idea how much courage it's takenjust to stand here.
 - I'm really proudof you, buddy.
 - Thanks, bro.
@@ -77,7 +77,7 @@
 - Mom, dad, can we get on with it? I have hard drivesto fix.
 - Why are these people sleeping?
 - Casey: They're notsleeping.
-- They k*ll, Chuck, and we want to know why.
+- They k\*ll, Chuck, and we want to know why.
 - I have no idea.
 - Well, look again.
 - I would rather not. It's kind of creepy.
@@ -86,7 +86,7 @@
 - I'll come back in five. Kind of called dibs on the couch?
 - Chuck, what did you see?
 - Um, I don'T... I'm not... I'm not totally sure.
-- A water lily painting, w*apon, an art auction tomorrow night.
+- A water lily painting, w\*apon, an art auction tomorrow night.
 - Does the name la ciudadmean anything to you?
 - Why?
 - Because I thinkhe's going to be at the art auctiontomorrow night.
@@ -250,7 +250,7 @@
 - I'll leave the coffee pot on. done.
 - What are those?
 - Morgan, what are those?
-- t*nk.
+- t\*nk.
 - Here. This is for you.
 - Inside the watchis a tracking system.
 - That way you can'trun away from me.
@@ -290,7 +290,7 @@
 - Good. Good, 'causeyou know what that means?
 - No more two-hour lunch breaks.
 - No more xbox tournaments.
-- No more p*rn.
+- No more p\*rn.
 - Yeah, yeah. Total work hell.
 - I'm in, but your boybetter close the deal.
 - Let's do this.
@@ -317,7 +317,7 @@
 - I mean, you know, mission accomplished. Time to go.
 - Chuck, go wait at the bar.
 - Go wait... wait at the bar?
-- Okay, you go do what you do. I'm going to b*at the bar, waiting there.
+- Okay, you go do what you do. I'm going to b\*at the bar, waiting there.
 - Covering that whole area.
 - Drink, sir?
 - Yeah, uh...
@@ -415,7 +415,7 @@
 - Who doesn't?
 - Do you?
 - Do-- oh, do I want to, uh... you know what, what the hell.
-- Yeah, let's give it a sh*t.
+- Yeah, let's give it a sh\*t.
 - What are you doing here?
 - Please don't lie. It'll make thismuch more painful.
 - Mr. Carmichael... please.
@@ -428,11 +428,11 @@
 - Federal agent. Don't move.
 - Don't you move.
 - Internationalagents-- mi-6.
-- Drop your g*n!
+- Drop your g\*n!
 - We're britishsecret service.
-- Lower your w*apon!
+- Lower your w\*apon!
 - Everyone take a deep breath.
-- I'm puttingdown my g*n, and I'm gettingmy identification.
+- I'm puttingdown my g\*n, and I'm gettingmy identification.
 - Slowly.
 - What are youdoing here?
 - I could ask you the same thing.
@@ -524,7 +524,7 @@
 - I'm assuming we're talking about a pc here, right?
 - Is your memorydedicated?
 - That's enough, Mr. Bartowski.
-- I believe you. the problem is since you've seen me, now I have to k*ll you.
+- I believe you. the problem is since you've seen me, now I have to k\*ll you.
 - Have... have to, have to?
 - No, no, no, I disagree, I disagree... vehemently, vehemently.
 - No, no, no, I won't sayanything, I swear to god.
@@ -643,7 +643,7 @@
 - You helped us find la ciudad.
 - But she got away.
 - Yeah, we got a photofrom hotel security.
-- We got a bl*od samplefrom a broken window.
+- We got a bl\*od samplefrom a broken window.
 - Our intel tell usshe's heading down to central america.
 - We have peoplewaiting there.
 - You're lookin' sharp.
@@ -745,7 +745,7 @@
 - Stop it.
 - I'm not really a spy.
 - Your computer ended upin the head of a guy who only knows how to fix 'em, nothing else.
-- You surviveda near-death experience under the threatof torture and apprehended one of the world'smost elusive k*ll.
+- You surviveda near-death experience under the threatof torture and apprehended one of the world'smost elusive k\*ll.
 - I'm not sure you what you thinkspies do exactly, but most of us wouldconsider that a pretty good day.
 - Okay, sure, so todayI helped take down a major internationalarms dealer, but tomorrow, tomorrow I still gotta goclock in at buy more.
 - I mean, what's the good of being a hero if nobody knows about it?

@@ -18,7 +18,7 @@
 - Aw...
 - You sure?
 - Yes. Yes.
-- Gimel b*at high. Pay up, buddy.
+- Gimel b\*at high. Pay up, buddy.
 - I thought high was the best.
 - Yes, I know you think so, but, Anna, this is the Parcheesi of my people, all right?
 - Don't question my spirituality. Now hand over the cash.
@@ -418,7 +418,7 @@
 - I mean, it's just, it's, uh, quite a scene over here.
 - And, um, hey, listen, I got to go, man, lobster here.
 - Hey, oh, hey, hey, hey, hey!
-- Don't sh**t. Put the g*n down.
+- Don't sh\*\*t. Put the g\*n down.
 - You can have the jelly-filled.
 - What are you doing here, Bartowski?
 - Thought you might be hungry, you know.
@@ -427,7 +427,7 @@
 - Oh, that's it. You think your girlfriend's stepping out on you.
 - Agent Walker is fine and doing her job, see?
 - Plus, we have a whole team here to back her up, okay?
-- So you can b*at it, Bartowski.
+- So you can b\*at it, Bartowski.
 - Oh, my God, they're going down.
 - Chuck, What is it?
 - They're loading counterfeit plates onto the boat.
@@ -453,7 +453,7 @@
 - Oh, I can make some phone calls. Hope you don't mind waiting.
 - Oh, I do, so we won't.
 - Medical supplies.
-- For the earthquake v*ctim of Taiwan.
+- For the earthquake v\*ctim of Taiwan.
 - I wanted to deliver it myself.
 - We leave tomorrow.
 - Now, if I could get your names and agency affiliations, I want to make sure that everybody is properly accounted for when I speak to your bosses' bosses later this evening.
@@ -473,7 +473,7 @@
 - My emotions?
 - Things have been a little off since the incident, Chuck.
 - Really? And what incident are you referring to, Agent Walker, huh?
-- Could it be the incident where you planted a kiss on me right before a b*mb was supposed to go off, ending our lives?
+- Could it be the incident where you planted a kiss on me right before a b\*mb was supposed to go off, ending our lives?
 - That same kiss right before your boyfriend, Bryce, came back from the dead, that kiss?
 - Stop saying kiss. It happened.
 - Okay? What's done is done.
@@ -581,15 +581,15 @@
 - Someone needs to protect the Intersect, huh?
 - Well, that's very thoughtful.
 - Thank you very much, I guess.
-- Plus, I didn't want to miss any g*n. Come on.
+- Plus, I didn't want to miss any g\*n. Come on.
 - Look, there he is.
-- There's a GPS m*ssile tracking device on the ship.
+- There's a GPS m\*ssile tracking device on the ship.
 - They're going to blow it up.
 - Kirk's got his money, and he's going to bury the evidence.
 - I'm king of the world!
 - I'm king of the world! i'm king of the world!
 - They're loading something on Kirk's boat.
-- That's it. That's the m*ssile launcher.
+- That's it. That's the m\*ssile launcher.
 - They're going to follow them out and use it to take out the Taiwanese attaché's boat.
 - The one with Morgan on it? Little buddy.
 - Yeah.
@@ -686,7 +686,7 @@
 - Is there any way you can say that to her, instead of me?
 - Yeah, I guess I could, but that would leave me completely vulnerable.
 - You know, kind of like a sweet little puppy laying on his back waiting for his belly to be scratched, privates just kind of dangling out there for everyone to see.
-- But I can certainly give it a sh*t.
+- But I can certainly give it a sh\*t.
 - You know?
 - Store's closed.
 - Time to get polluted.
@@ -698,7 +698,7 @@
 - Keep it clean and be prepared to get down!
 - I'll be right back.
 - Hey, uh, listen, I-I'm really sorry about the whole...
-- k*ll my car thing?
+- k\*ll my car thing?
 - Yeah, that. Again, sorry.
 - She was my dream car.
 - A Crown Victoria was your dream car?
@@ -714,7 +714,7 @@
 - I... that's my jam.
 - Nun.
 - I do believe that makes me the winner.
-- I thought Shin b*at Nun.
+- I thought Shin b\*at Nun.
 - Mm-hmm...
 - And have you been bar mitzvah'd, Jeffrey?
 - No.

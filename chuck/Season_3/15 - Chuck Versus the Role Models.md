@@ -3,7 +3,7 @@
 - This is my boss, Charles Bartowski.
 - A computer repairman with all the government's secrets in his head.
 - This is his girl, Sarah Walker.
-- A CIA agent with more than just k*ll looks.
+- A CIA agent with more than just k\*ll looks.
 - And when these two spies first met, it was love at first fight.
 - That's where I come in.
 - I'm Morgan. It's my job to keep an eye on the both of them, which isn't always easy.
@@ -25,7 +25,7 @@
 - Good morning, buddy.
 - Okay, I get it.
 - You're having tons and tons of sex.
-- Congratulations, Warren b*at.
+- Congratulations, Warren b\*at.
 - Who said anything about...
 - Your big, goofy grin said it, okay?
 - And, you know, it's kind of an insult for those of us living in the apartment who aren't having sex.
@@ -55,11 +55,11 @@
 - Right, yeah.
 - Yeah, we'll talk more after work, 'cause I know how good a thing this is.
 - What are you doing?
-- Well, I left my g*n in my hotel room.
-- No, what are you doing, storing your g*n in my couch?
+- Well, I left my g\*n in my hotel room.
+- No, what are you doing, storing your g\*n in my couch?
 - Morgan Morgan could find those. What, you've not heard of the 30-foot rule?
 - As a matter of fact, no, I have not.
-- A good agent should never be without a backup w*apon.
+- A good agent should never be without a backup w\*apon.
 - Well, have you ever heard of the Bartowski rule?
 - No firearms in my apartment.
 - Well, not if you want to live with a spy.
@@ -73,7 +73,7 @@
 - Nothing?
 - Babe, I think this is the clinic.
 - Honey, I have seen more patients in two weeks than I've seen in my first few years as a doctor.
-- You have any idea who the men with the g*n are?
+- You have any idea who the men with the g\*n are?
 - The UN wear blue berets and the FDLR wear black berets.
 - Great, but Devon, these guys aren't wearing any berets.
 - Hey. Hey.
@@ -81,7 +81,7 @@
 - Honey, what have we gotten ourselves into? Remember what they said about this being the toughest job you'll ever love?
 - We're making a difference.
 - I know, I know. That's not what's getting to me.
-- What's getting to me is the not showering and the not sleeping and the not knowing who the men with the g*n are.
+- What's getting to me is the not showering and the not sleeping and the not knowing who the men with the g\*n are.
 - Hmm?
 - Well, how about a date night?
 - I'll cook dinner for you tonight.
@@ -110,7 +110,7 @@
 - Your mission is to watch and learn from the best couple the CIA has ever produced.
 - Hmm.
 - And you, Colonel Casey...
-- I'll head on down to Pendleton, recertify my w*apon training.
+- I'll head on down to Pendleton, recertify my w\*apon training.
 - It's not your training that concerns me.
 - I'm talking about Morgan Grimes.
 - It was your idea to make him a part of the team.
@@ -138,7 +138,7 @@
 - Look, Sarah, that's us in 30 years.
 - So there you have it: Operation Mongoose.
 - Made it out of Berlin with half the KGB on my tail. If it hadn't been for that woman in the fur coat with the AK-47...
-- Enough with the Cold w*r stories, darling...
+- Enough with the Cold w\*r stories, darling...
 - You're boring our hosts.
 - No-no, no.
 - This is, this is, this is fascinating, uh, to me at-at least.
@@ -177,7 +177,7 @@
 - Some sort of sexy spy dinner party?
 - Shh! Oh, right. Sorry, sorry.
 - I don't know. You ask me, this whole man gig's starting to become a real snore, you know?
-- When am I going to put the hurt on some t*rror1st? You know, get in there?
+- When am I going to put the hurt on some t\*rror1st? You know, get in there?
 - Whatever it is you think you know about being a spy, you're wrong, hmm?
 - Oh, oh... Okay.
 - You're a child.
@@ -303,9 +303,9 @@
 - Yeah, go, go, go, go!
 - The software- the software is on the tiger's collar.
 - Get the chair.
-- If I just had my tranq g*n.
-- No, no, that's not a tranq g*n.
-- I am not letting you sh**t a tiger.
+- If I just had my tranq g\*n.
+- No, no, that's not a tranq g\*n.
+- I am not letting you sh\*\*t a tiger.
 - They are endangered and majestic.
 - Do you have any better ideas? I think what we need to be asking ourselves is what would the Turners do?
 - Survive in the field,  an agent also has to employ stealth.
@@ -336,16 +336,16 @@
 - Sleeping just like Big Mike after eating a baker's dozen.
 - Okay, shh.
 - Shh. Shh.
-- Okay, give me the g*n. I'll cover you.
+- Okay, give me the g\*n. I'll cover you.
 - No, no, no, I'll cover you.
 - You get the collar. No, trust me.
 - You have that, that feline instinct.
-- I know how to use a g*n better than you do.
+- I know how to use a g\*n better than you do.
 - See, still don't think that's a great idea.
 - Just do it. Okay, fine.
 - ♪ ♪
 - Oh, my God!
-- Why didn't you sh**t it!
+- Why didn't you sh\*\*t it!
 - It was about to eat me.
 - You said he was majestic.
 - He's a little majestic.
@@ -407,7 +407,7 @@
 - Don't feel bad, Charles.
 - We're the best at this.
 - What do you mean, they went rogue?
-- General, Mrs. Turner pulled a g*n on me.
+- General, Mrs. Turner pulled a g\*n on me.
 - And might I add, I think she may have a bit of a problem with the, uh, sauce.
 - Uh, the Turners stole Otto's software.
 - The Turners are two of the most decorated spies in the CIA.
@@ -508,12 +508,12 @@
 - How did you ever find us?
 - You're the only room that ordered 12 Manhattans.
 - We learned from the best.
-- You don't know what that w*apon is, do you?
+- You don't know what that w\*apon is, do you?
 - What? Are you kidding me?
 - Sig 229 nine millimeter, 13-round magazine.
 - Laser grip, full metal jacket, sir.
 - Impressive.
-- Yeah, well, I play a lot of first-person sh**t.
+- Yeah, well, I play a lot of first-person sh\*\*t.
 - Well, this isn't a video game.
 - Hey, whoa-whoa.
 - Thank you.
@@ -523,8 +523,8 @@
 - Just like Call of Duty.
 - Squeeze the trigger...
 - Oh!
-- Holy cow! I think your g*n just exploded in my hand!
-- Sit down! There's nothing wrong with the g*n.
+- Holy cow! I think your g\*n just exploded in my hand!
+- Sit down! There's nothing wrong with the g\*n.
 - Hmm? Sit down!
 - No, I-I think should... Sit!
 - Yes, sir.
@@ -575,13 +575,13 @@
 - How, how did your good friend Otto find us?
 - Did you two sell us out again?
 - The collar has a tracking device.
-- All right, where do you keep your backup g*n?
+- All right, where do you keep your backup g\*n?
 - Surely, you've heard of the 30-foot rule, Charles.
 - Time to flash, time to flash.
-- No g*n, no flash.
-- Honey, darling, would you mind telling me what you've done with our small cache of w*apon? I got rid of them, sweetheart.
+- No g\*n, no flash.
+- Honey, darling, would you mind telling me what you've done with our small cache of w\*apon? I got rid of them, sweetheart.
 - You actually listened to me? I can't quite believe it myself.
-- What have you done with the g*n that you had at the hotel? I left them in the car.
+- What have you done with the g\*n that you had at the hotel? I left them in the car.
 - Why would you... ? Because you told me to!
 - Rookies. You take care of them I'll take care of Otto.
 - You're making a big mistake.
@@ -648,7 +648,7 @@
 - The Turners have left us holding the bag again?
 - I can assure you, this will be the last time.
 - Whoa, whoa, whoa, whoa. Otto.
-- Hold on a second. Clearly, The Turners have betrayed us both; that means that we're all on the same side here, so put your g*n down and let us help you hunt down those backstabbing bastards.
+- Hold on a second. Clearly, The Turners have betrayed us both; that means that we're all on the same side here, so put your g\*n down and let us help you hunt down those backstabbing bastards.
 - They're the lowest of the low, okay?
 - CIA scum.
 - Let them go, Otto.
@@ -667,7 +667,7 @@
 - What are you two doing?
 - Showing you we're not traitors, Charles.
 - What should we do?
-- Shh! You're gonna get us k*ll.
+- Shh! You're gonna get us k\*ll.
 - No.
 - Listen to me. Listen to me. Just hear me out. Hear me out.
 - This country needs men like you, Casey.
@@ -688,7 +688,7 @@
 - That's funny.
 - I would have said the same thing 30 years ago.
 - After what we did?
-- You would have sh*t us dead where we stand.
+- You would have sh\*t us dead where we stand.
 - Which would be perfectly justifiable.
 - And yet unnecessary.
 - Wouldn't you agree, Sarah?

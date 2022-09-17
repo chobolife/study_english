@@ -104,7 +104,7 @@
 - I mean it's like the east wing of our apartment has taken a vow of celibacy.
 - That is none of our business. Um, edamame?
 - Oh, your sleeve.
-- Oh, sh**t.
+- Oh, sh\*\*t.
 - Are you ever gonna retire that sweater, Ellie?
 - Hope not.
 - It's my lucky sweater.
@@ -294,7 +294,7 @@
 - The guy was poisoned.
 - Toxic derivative of pentothal.
 - Initially, the subject becomes uncontrollably truthful.
-- After it accumulates in the occipital lobe, v*ctim suffers from unconsciousness and eventually... Death.
+- After it accumulates in the occipital lobe, v\*ctim suffers from unconsciousness and eventually... Death.
 - What's the timeline on this thing?
 - Can't say. x Could be a couple hours.
 - Could be minutes depending on the concentration.
@@ -427,9 +427,9 @@
 - [b]Chuck[b]: Well, I feel compromised already.
 - I have known him since the day he was born obviously.
 - When people would ask him what he wanted to be when he grew up, he would always say the same Thing: "big boy." how cute is that?
-- Ellie, you're k*ll me here.
+- Ellie, you're k\*ll me here.
 - and now he is a big boy.
--  and I can tell that he is because he is with a big...
+- and I can tell that he is because he is with a big...
 - Big girl.
 - Sorry, guys.
 - Don't mean to muck up your mojo.
@@ -483,7 +483,7 @@
 - I'm going to keep them on the lady doctor until we can move them safely.
 - Now the bad guy's going to come to us.
 - Not bad, Bartowski.
-- Do that ever again and I'll k*ll you.
+- Do that ever again and I'll k\*ll you.
 - I'm going to fix this, Ellie, I swear.
 - Look, I know that you just think I'm just Chuck, your screw-up little brother.
 - But there's a lot about me you don't know.
@@ -525,10 +525,10 @@
 - Why did I just say that out loud?
 - 'S the poison.
 - It makes you tell the truth.
-- You do that, I'll give chase, put a g*n to your head, threaten to pull the trigger if you don't Take it.
-- Would you really sh**t me?
+- You do that, I'll give chase, put a g\*n to your head, threaten to pull the trigger if you don't Take it.
+- Would you really sh\*\*t me?
 - No.
-- Yeah, don't waste the b*llet.
+- Yeah, don't waste the b\*llet.
 - We're already dead.
 - I'm saving my sister. you know, if I had a blog this would be a really big day for me.
 - Do my laundry? Check.
@@ -559,17 +559,17 @@
 - Payne: Yes?
 - Who is it?
 - The NSA, CIA and me, who's a little tougher to explain, but...
-- We all have our k*ll set.
+- We all have our k\*ll set.
 - Sarah: Freeze.
-- My partner would rather sh**t you in the face than let you get away.
+- My partner would rather sh\*\*t you in the face than let you get away.
 - You called me your partner?
 - Where are the codes, you son of a bitch?
 - Where's the antidote?
 - Actually, I was just about to enjoy a little antidote myself.
 - What kind of host would I be if I didn't offer you some as well?
-- (g*n chamber clicking)
+- (g\*n chamber clicking)
 - Casey: Careful there.
-- Haven't k*ll anyone in a while.
+- Haven't k\*ll anyone in a while.
 - Getting a little hungry.
 - No, no, no!Wait, wait, wait! Don't, don't, don't!
 - You have a flash?
@@ -600,7 +600,7 @@
 - Got it. Thank you for being host.
 - Even though I guess you don't really have a choice in the matter.
 - Not bad.
-- Received the codes[/i] and now our w*apon sites are more secure than ever.
+- Received the codes[/i] and now our w\*apon sites are more secure than ever.
 - Congratulations on a jobell done.
 - Trying to diddle my wife?
 - I'll show you. ???

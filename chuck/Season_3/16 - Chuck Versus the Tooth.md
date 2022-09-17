@@ -45,7 +45,7 @@
 - Every time you fall asleep, you have a horrible nightmare.
 - But this one was trying to tell me something.
 - Tell you what?
-- General, the Ring is going to try and k*ll the president of Zamibia at the Beethoven concert tomorrow night!
+- General, the Ring is going to try and k\*ll the president of Zamibia at the Beethoven concert tomorrow night!
 - Tomorrow night?
 - We could have done this in the morning?
 - You know how dear my sleep is to me, Bartowski.
@@ -59,7 +59,7 @@
 - I've been having these very, very vivid dreams, okay?
 - First, I saw the news report on Kuti, the president of Zamibia, but then in my dream, I saw Beethoven.
 - And then Shaw was there, and he was delivering Zamibian food.
-- And then he tried to k*ll everyone!
+- And then he tried to k\*ll everyone!
 - So, obviously, the Zamibian president is going to be assassinated by the Ring at the Beethoven concert.
 - General, permission to slap Bartowski?
 - He had a bad dream.
@@ -87,7 +87,7 @@
 - Do you want to talk about your father, Chuck?
 - This wasn't my idea, you know.
 - So, no, I don't really want to talk about anything, to be perfectly honest.
-- Despite your sparkling conversation k*ll.
+- Despite your sparkling conversation k\*ll.
 - That was, that was a joke.
 - I was just...
 - Just going to town on that pad, aren't you?
@@ -140,7 +140,7 @@
 - No, Morgan.
 - You can die just as easily from a mosquito in Africa as you can from a spy in Burbank.
 - This is what I'm talking about.
-- Listen. Fear is the mind k*ll.
+- Listen. Fear is the mind k\*ll.
 - Yeah.
 - Right.
 - You can't live scared, bro.
@@ -336,20 +336,20 @@
 - Freeze!
 - The concert with the Zamibian President.
 - Chuck's gonna try and prove us wrong about Kuti.
-- I'm gonna k*ll them both.
+- I'm gonna k\*ll them both.
 - Hey, hey.
 - Chuck.
 - Why are you onstage?
 - What?
 - Buddy, I'm not onstage.
-- You sh*t me, Chuck.
+- You sh\*t me, Chuck.
 - What are you doing here?
 - What are you trying to tell me?
 - The dream isn't about me, Chuck.
 - It's about a scientist: Dr. Kowambe.
 - Kowambe.
 - Oh, my God, that's him!
-- That's the guy who's going to k*ll Kuti!
+- That's the guy who's going to k\*ll Kuti!
 - What? Are you serious? How do you know?
 - I just had another dream, buddy.
 - I got to get up to the president's box! Shh!
@@ -357,8 +357,8 @@
 - You, Morgan, stay in the seat.
 - No. What if the seat is dangerous? I could be attacked.
 - You're not gonna get attacked.
-- There could be a sn*per! Shh! Fine, fine. Here.
-- Take my backup tranq g*n.
+- There could be a sn\*per! Shh! Fine, fine. Here.
+- Take my backup tranq g\*n.
 - For life-or-death situations only.
 - There!
 - You take Bartowski.
@@ -366,19 +366,19 @@
 - No, Chuck, stop.
 - I can't let you do this.
 - Sarah, listen, I had another dream.
-- The guy who's gonna k*ll Kuti is in the president's box right now!
+- The guy who's gonna k\*ll Kuti is in the president's box right now!
 - You should have told me, and I could have helped you.
 - I'm sorry, I am.
 - I- I didn't want to get you mixed up in all this dream stuff until I had proof, all right?
 - I love you, and right now I need you to believe that I'm not crazy.
 - Okay, well, let's get into that box.
-- Stand up and walk out of here quietly, or I'll k*ll you and drag you out of here.
+- Stand up and walk out of here quietly, or I'll k\*ll you and drag you out of here.
 - Your choice.
 - What are you reaching for, Morgan?
-- I've been authorized to use this tranq g*n.
+- I've been authorized to use this tranq g\*n.
 - Now I don't want to, okay, 'cause I consider us friends now, but I will use this...
 - Okay, here we go.
-- Good evening. Routine CIA w*apon sweep.
+- Good evening. Routine CIA w\*apon sweep.
 - What is the meaning of this? !
 - Listen, listen, the guy right there.
 - Dr. Kowambe? Yeah, Dr. Kowambe.
@@ -468,11 +468,11 @@
 - And we need to get far away from him.
 - Babe, you got to get that story about him getting drunk and peeing himself out of your mind.
 - He was in a bad place. It happens.
-- No, Devon. I was just in his apartment, and he has g*n.
-- Very big g*n.
+- No, Devon. I was just in his apartment, and he has g\*n.
+- Very big g\*n.
 - We have to do something.
 - Okay.
-- Okay. Casey has some serious g*n.
+- Okay. Casey has some serious g\*n.
 - Is that creepy? Yes.
 - Is that illegal?
 - Sadly, no.
@@ -525,8 +525,8 @@
 - Chuck was wrong.
 - Hmm. I'm sorry.
 - ♪ ♪
-- Excuse me. Does this come in g*n?
-- Yes, sir. I-I believe that does come in g*n.
+- Excuse me. Does this come in g\*n?
+- Yes, sir. I-I believe that does come in g\*n.
 - I'll check in the back for you.
 - Hey.
 - What's going on? Where is Chuck?
@@ -674,7 +674,7 @@
 - Morgan Guillermo Grimes, I refuse to be denied an audience with the Burbank Buy More's assistant manager.
 - If you run off on me one more time, I swear I'll call corporate.
 - She could want you back, man.
-- That box could be an improvised expl*sive device.
+- That box could be an improvised expl\*sive device.
 - Be extremely cool around that thing.
 - Hey, listen, I feel like I owe you an explanation.
 - I'm so sorry. Last few days have been insane.

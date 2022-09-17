@@ -23,7 +23,7 @@
 - ... my pride and joy...
 - Sarah Walker.
 - (wind whips)
-- (g*n)
+- (g\*n)
 - Go get 'em, Cats!
 - (women meowing, cat yowling)
 - Hmm.
@@ -263,13 +263,13 @@
 - How are you? Anybody want some more bacon?
 - Anything? Nothing?
 - Zondra: Hey, remember Pyongyang? That dissident we broke out of jail?
-- We did all those shots of snake's bl*od afterwards.
+- We did all those shots of snake's bl\*od afterwards.
 - That was you and Sarah.
 - You guys made an amazing team.
 - I learned so much from you, had fun.
 - I think about it a lot.
 - I've b... I've been on a number of missions myself, actually, yeah.
-- My first one, I had to disarm this expl*sive device using Internet pornography.
+- My first one, I had to disarm this expl\*sive device using Internet pornography.
 - So... (laughs)
 - Wow. (fake laugh)
 - This Chuck, quite a catch.
@@ -300,20 +300,20 @@
 - Chuck: I'll call an ambulance.
 - Please.
 - Carina, your leg!
-- It's part of the b*mb.
+- It's part of the b\*mb.
 - (groans, pants)
 - Ladies, who's Augusto Gaez?
 - Beckman: Augusto Gaez is the arch nemesis of the CAT Squad and leader of the Gentle Hand.
-- The b*mb fragments trace to his factory in Rio.
+- The b\*mb fragments trace to his factory in Rio.
 - He tracked you down, Cats.
 - Excuse me, General... the Gentle Hand?
 - Are these bad guys, or a massage parlor?
-- Zondra: They're brutal k*ll.
-- t*rrorists for hire.
+- Zondra: They're brutal k\*ll.
+- t\*rrorists for hire.
 - If you want your competition blown away, that's who you call. SARAH: We hunted the Gentle Hand for years, but we could never pin down Gaez.
 - Every time we got close, he slipped away.
 - Amy: He must have thought we reunited to come after him again.
-- And tried to k*ll you on American soil.
+- And tried to k\*ll you on American soil.
 - Cats, the mission is in from Langley.
 - Capture Gaez and extradite him back to the States for trial.
 - General, I'm happy to hunt Gaez with Chuck and Casey, but...
@@ -331,7 +331,7 @@
 - Sun, sand... that's... that's good, right?
 - Chuck, you know that tracking device I found in Zondra's boot?
 - We were on a mission to nail Augusto Gaez.
-- Uh... come on, you think that Zondra's working for Gaez, that she planted the b*mb?
+- Uh... come on, you think that Zondra's working for Gaez, that she planted the b\*mb?
 - The government cleared her name.
 - Yeah, we'll see.
 - (phone ringing)
@@ -464,7 +464,7 @@
 - It's a trap, guys. Abort now.
 - Chuck: Sarah, you have to get out of there.
 - It's been a long time, Cats.
-- Drop your w*apon, or die.
+- Drop your w\*apon, or die.
 - All these years.
 - Enemies, fighting each other.
 - (clicking tongue)
@@ -475,7 +475,7 @@
 - That's why we're here?
 - A sales pitch?
 - The worldwide market for The Gentle Hand has blown wide open.
-- GAEZ (over listening device): I need k*ll operatives who can open a door with a fist.
+- GAEZ (over listening device): I need k\*ll operatives who can open a door with a fist.
 - Or a smile.
 - Kitty, kitty, kitties.
 - You have been lured here to accept a career... with The Hand.
@@ -487,7 +487,7 @@
 - Don't you think you're overcompensating 'cause you got your girlfriend's car blown up?
 - That is not true.
 - You just sit tight, till I give you the signal.
-- Remember, you only have a tranq g*n.
+- Remember, you only have a tranq g\*n.
 - Sarah: A career in The Hand?
 - With you and who else, Augusto?
 - Because you've already got one of us, don't you?
@@ -501,14 +501,14 @@
 - Accuse me out loud, instead of under your breath like you've been doing for years.
 - Sarah: That's exactly what you've been doing to me, telling people that I put the tracker in your boot?
 - (gasps)
-- The suspense is a k*ll, no?
+- The suspense is a k\*ll, no?
 - Maybe it's not tough Zondra.
 - Maybe sweet Amy?
 - Suspicious.
 - But so is Sarah Walker, the kitty who doth protest too much.
-- You know it's not me, and I've got no intention of joining up, So if you plan to k*ll us, you may as well tell me the truth.
+- You know it's not me, and I've got no intention of joining up, So if you plan to k\*ll us, you may as well tell me the truth.
 - I think that's fair.
-- I'd rather just k*ll you.
+- I'd rather just k\*ll you.
 - Casey? Casey, this just got ugly.
 - (grunts)
 - You're done, Gaez.
@@ -521,8 +521,8 @@
 - Okay.
 - Gaez: I'll tell you. I think... I think Sarah needs help.
 - (screaming)
-- (tranq darts sh**ting)
-- (tranq darts sh**ting)
+- (tranq darts sh\*\*ting)
+- (tranq darts sh\*\*ting)
 - Ha, ha! (man grunts)
 - Hey, hey, hey, hey! Hey! Hey! Damn it.
 - I need immediate extraction.
@@ -600,7 +600,7 @@
 - I have never even heard of an organization called "The Gentle Hand. "
 - I'm a businessman.
 - Yeah. Business in terror.
-- Built a fortune, k*ll a lot of men.
+- Built a fortune, k\*ll a lot of men.
 - But that all ends now.
 - (both grunting)
 - I'm not the traitor.
@@ -666,7 +666,7 @@
 - Marty, don't move!
 - Marty. Here we... It's Morgan!
 - How many times do I got... ?
-- (g*n chamber clicking)
+- (g\*n chamber clicking)
 - Sorry, puss. Sleep time.
 - (groaning)
 - (panting)
@@ -720,7 +720,7 @@
 - (grunts)
 - (wind whipping)
 - (panting)
-- Going somewhere... p*ssy?
+- Going somewhere... p\*ssy?
 - (cat yowls)
 - Small price to pay to find the real traitor.
 - Yeah, took us long enough.
@@ -741,12 +741,12 @@
 - Maybe you... you could be bridesmaids?
 - I've never been a bridesmaid.
 - Well, pretended to once for a mission.
-- I did, too, once, but there was a machine g*n under the pink taffeta.
+- I did, too, once, but there was a machine g\*n under the pink taffeta.
 - Oh. (laughter)
 - Well, maybe we can try it for real this time.
 - Mm.
-- No machine g*n.
-- Scary, but I'll give it a sh*t.
+- No machine g\*n.
+- Scary, but I'll give it a sh\*t.
 - All right.
 - Okay.
 - Hey.

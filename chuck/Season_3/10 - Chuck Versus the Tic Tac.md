@@ -20,7 +20,7 @@
 - I know it's silly, but they remind me of home.
 - Go ahead and keep them.
 - I have a feeling you're gonna be out here a while.
-- How would you feel if I told you that there was a covert black ops team of America's finest sn*pers, rangers and men willing to do anything to protect this country, and that team wanted you?
+- How would you feel if I told you that there was a covert black ops team of America's finest sn\*pers, rangers and men willing to do anything to protect this country, and that team wanted you?
 - I'd say that sounds like a dream come true, sir.
 - And I'd say you have quite a choice to make.
 - Either go home to your family or you become the soldier you always dreamed you could be.
@@ -154,7 +154,7 @@
 - With all due respect, General, I will exercise my right to remain silent under the Fifth Amendment to the Constitution.
 - What?
 - What are you doing?
-- Agent Walker, please relieve the colonel of his w*apon.
+- Agent Walker, please relieve the colonel of his w\*apon.
 - John, you want to tell me what's going on?
 - Which is why I said "Left 4 Dead 2" would be better as an expansion pack...
 - I need your help.
@@ -302,7 +302,7 @@
 - You know, I'm kind of your biggest fan.
 - Really?
 - Yeah, yeah, I read and file all of your mission reports.
-- Remember when you reverse-engineered an antidote to that w*apon and kissed Colonel Casey only to realize later it was all for naught?
+- Remember when you reverse-engineered an antidote to that w\*apon and kissed Colonel Casey only to realize later it was all for naught?
 - That must've been exciting and scary at the same time, huh?
 - Can we just skip the details for now?
 - We'll get into that later.
@@ -371,7 +371,7 @@
 - Sarah, I...
 - We should probably focus on the Laudanol.
 - So, the only reason that Keller would go to all that trouble to break Casey out would be if he still didn't have it.
-- Which means if we get to it before Casey does, we've got a sh*t at catching him.
+- Which means if we get to it before Casey does, we've got a sh\*t at catching him.
 - Yeah, except there's nothing left in the apartment.
 - What about the Buy More?
 - No, Casey's smarter than that.
@@ -406,7 +406,7 @@
 - I knew he was weak.
 - Tell me where it is, now.
 - Don't make me do this, Bartowski.
-- Don't sh**t.
+- Don't sh\*\*t.
 - Give me the case and I won't have to.
 - I believed in you.
 - I trusted you.
@@ -419,14 +419,14 @@
 - Alex Coburn...
 - I had a fiancée.
 - Now she thinks I'm dead.
-- And if I don't turn over the Laudanol to the Ring, they're gonna k*ll her.
+- And if I don't turn over the Laudanol to the Ring, they're gonna k\*ll her.
 - Her name's Kathleen McHugh.
 - 20 years ago, she was the girl I was gonna marry.
 - Love of my life.
 - But to be a spy and protect our country, I had to give up that life.
 - And now she's going to die because of a decision I made.
 - No, we're not gonna let that happen.
-- If I don't deliver the Laudanol to his location in the next hour, they're gonna k*ll her.
+- If I don't deliver the Laudanol to his location in the next hour, they're gonna k\*ll her.
 - What are we waiting for?
 - Let's go save her.
 - If I don't show at the meet, Keller will know something's wrong.
@@ -485,7 +485,7 @@
 - I know.
 - Five against one.
 - You didn't think this through!
-- You can't k*ll me or Kathleen will die.
+- You can't k\*ll me or Kathleen will die.
 - You'd never call them off.
 - You're right.
 - They're already at the house.
@@ -526,7 +526,7 @@
 - Got it?
 - Yes, ma'am.
 - And when you do come back, I've got some news...
-- Tonight at 2200, Lieutenant Alex Coburn will be k*ll in battle.
+- Tonight at 2200, Lieutenant Alex Coburn will be k\*ll in battle.
 - He'll die a hero and be given a hero's funeral.
 - From this point on, your name is John Casey.
 - Make it a good life, soldier.

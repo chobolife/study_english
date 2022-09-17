@@ -123,7 +123,7 @@
 - You're going to drive yourself crazy.
 - Yeah, well, I've been down that road before, haven't I?
 - Well, the CIA shrink said that you have nothing to worry about, remember?
-- Right. Other than the Ring trying to k*ll my father or me imagining that Shaw is still out there and trying to k*ll me.
+- Right. Other than the Ring trying to k\*ll my father or me imagining that Shaw is still out there and trying to k\*ll me.
 - Look, your father is safe.
 - And not only that, but he is here with you, which is great. And Shaw?
 - Shaw is dead.
@@ -154,7 +154,7 @@
 - I already tried. Her assistant said that she's "indisposed".
 - "Indisposed"?
 - What is that suppose to mean?
-- Th... The guy that I k*ll is back from the dead.
+- Th... The guy that I k\*ll is back from the dead.
 - A guy who, keep in mind, is a Ring operative, who knows our covers, where we live, where Castle is.
 - What station did you see him in?
 - North Hollywood. Why?
@@ -216,13 +216,13 @@
 - Is it also correct that the project has fallen well short of its original expectations?
 - Yes, sir. Also correct.
 - But if I may add, Agents Bartowski, Walker and Colonel Casey have proven to be an excellent albeit unorthodox team.
-- Your mission is to grab Shaw or k*ll him, whichever's quicker.
+- Your mission is to grab Shaw or k\*ll him, whichever's quicker.
 - Hey, open sesame.
 - Okay, we'll split up. Each take a floor.
 - Okay.
 - General Meriwether, Members of the Tribunal, you must understand,
 - Agent Bartowski has in many ways exceeded expectations.
-- I am not denying that the road has been long and rocky. but after three years, Charles Bartowski is poised to become the w*apon we have always dreamed of.
+- I am not denying that the road has been long and rocky. but after three years, Charles Bartowski is poised to become the w\*apon we have always dreamed of.
 - Justin, what's going on?
 - We've been breached.
 - It's Casey, isn't it?
@@ -284,13 +284,13 @@
 - Sarah.
 - Shaw?
 - Ladies and gentleman, this man that stands before you is a Ring operative.
-- He kidnapped me and he drugged me and he tried to k*ll me!
-- All of that is completely true, except for the k*ll part.
+- He kidnapped me and he drugged me and he tried to k\*ll me!
+- All of that is completely true, except for the k\*ll part.
 - In fact, I was sanctioned by this committee.
 - Why was I not apprised of this, General Meriwether?
 - Continue, Agent Shaw.
 - I was acting as a double agent, working within the Ring.
-- That is, until Chuck sh*t me.
+- That is, until Chuck sh\*t me.
 - He's lying! Do not listen to a word that he says!
 - I came here today to make one thing perfectly clear.
 - Charles Bartowski is an American hero.
@@ -436,7 +436,7 @@
 - Alex...
 - Alex, I'm your father.
 - That's impossible!
-- My father's dead. He was a w*r hero.
+- My father's dead. He was a w\*r hero.
 - He died before I was even born.
 - No, I didn't.
 - Stop it.
@@ -491,7 +491,7 @@
 - Only two people know what happened that day in Paris.
 - It's your word against mine.
 - Chuck saw what happened.
-- We all know that you tried to k*ll me.
+- We all know that you tried to k\*ll me.
 - But Chuck has become an unreliable witness.
 - His mind has been compromised by the Intersect.
 - And now that he's escaped, he seems so guilty.
@@ -626,7 +626,7 @@
 - Do you mind if I try it on?
 - Why don't you come over here and take it from me?
 - Actually, I think I'll have my friend grab it for me.
-- I don't need a watch to b*at you, Shaw.
+- I don't need a watch to b\*at you, Shaw.
 - Come on. Aren't you a little curious?
 - I know I am.
 - Don't you want to know how your Intersect stacks up against mine?
@@ -705,7 +705,7 @@
 - He must have been saving for, like, ever. We don't pay that much here.
 - Morgan, Ellie called.
 - We need to talk.
-- Yeah, sh**t, buddy. Whatever you got to say, you can say in front of her.
+- Yeah, sh\*\*t, buddy. Whatever you got to say, you can say in front of her.
 - She's one of us.
 - Not this.
 - Try not to spend it all in one place.
@@ -723,7 +723,7 @@
 - We'll be leaving momentarily for the CIA detention facility.
 - These people won't be seeing the light of day for some time.
 - Enjoy this ride together... Bond.
-- Share all the w*r stories... because as soon as the truck stops, so do your lives.
+- Share all the w\*r stories... because as soon as the truck stops, so do your lives.
 - We'll figure something out.
 - It's over.
 - There is no one left to save us.

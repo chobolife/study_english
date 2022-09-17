@@ -4,8 +4,8 @@
 - (speaking Russian)
 - (horn blaring)
 - (speaking Italian)
-- (g*n clicks)
-- (silenced g*n)
+- (g\*n clicks)
+- (silenced g\*n)
 - (speaking German)
 - (beeping)
 - Good.
@@ -128,7 +128,7 @@
 - And they have nothing to do with your mission.
 - Tonight, there was supposed to be a joint CIA/NSA/INTERPOL bust; Alexei Volkoff's three most trusted lieutenants.
 - We tracked them down through his Hydra Network, but by the time we located them, they were already dead.
-- And we believe the k*ll was this man: Boris Kaminsky. We think Boris may be trying to take control of Volkoff Industries by eliminating anyone else who could make a claim to power.
+- And we believe the k\*ll was this man: Boris Kaminsky. We think Boris may be trying to take control of Volkoff Industries by eliminating anyone else who could make a claim to power.
 - Is there even anyone left to make a claim?
 - Possibly.
 - Volkoff left detailed information on every contact in the Hydra Network, except for a woman named Vivian McArthur.
@@ -244,7 +244,7 @@
 - Protect me from what?
 - Get in the stable!
 - Boris: Stop! Don't move!
-- k*ll the others. Take her alive. to lose these guys. Okay, we need What's the best way out of here?
+- k\*ll the others. Take her alive. to lose these guys. Okay, we need What's the best way out of here?
 - I don't know.
 - Okay, the house is back that way.
 - Casey, we're trapped in one of the stables. Copy that.
@@ -263,13 +263,13 @@
 - Because I'm his daughter.
 - Vivian, if you want to live, give me the key.
 - Look, can you please tell me what this is all about?
-- Quick version: your father is an international arms dealer and m*rder and all-around bad guy, okay?
+- Quick version: your father is an international arms dealer and m\*rder and all-around bad guy, okay?
 - No, no, my father is an oil executive.
 - Okay, look, we'll explain it later.
 - I have an idea. Chuck, get ready to flash.
-- (g*n)
-- Man: Those are g*n!
-- Sounds like there's g*n outside!
+- (g\*n)
+- Man: Those are g\*n!
+- Sounds like there's g\*n outside!
 - They're trapped in the back stables! Come on!
 - What're you doing?
 - We're saving you.
@@ -366,7 +366,7 @@
 - I have to move out.
 - That's what I have to do.
 - I have to go.
-- So, my father, he actually k*ll people?
+- So, my father, he actually k\*ll people?
 - Did you spend much time with the man?
 - Honestly? No.
 - He put me into more schools than I can count, sent me on trips all over the world, he made sure every minute of every day was occupied.
@@ -383,14 +383,14 @@
 - Okay.
 - You should have seen my life a few years ago. I was working a dead-end job, I was living with my sister, and then something... an opportunity, just fell in my lap.
 - Afternoon, Colonel.
-- Paperwork, bartending, any chance that your k*ll are being wasted here?
+- Paperwork, bartending, any chance that your k\*ll are being wasted here?
 - You were at the bar.
 - What are you doing in Castle?
 - Director Jane Bentley, NCS.
 - I was in England to observe.
 - You see, I'm not like Agents Bartowski or Walker, even General Beckman.
 - I see your true potential.
-- You started working for the NSA because you were America's best sharpsh**ter.
+- You started working for the NSA because you were America's best sharpsh\*\*ter.
 - And now... you're so much more than this, Colonel.
 - It seemed that your team doesn't need you anymore.
 - When are you finally going to accept that and move on?
@@ -584,9 +584,9 @@
 - It ends today.
 - All right, let's do this.
 - It's not Vivian.
-- Then k*ll her and find Vivian.
+- Then k\*ll her and find Vivian.
 - She's the only one who has what we want.
-- (r*fle cocks)
+- (r\*fle cocks)
 - Walker.
 - Walker? (groans)
 - Sarah: There's too many of them.
@@ -631,13 +631,13 @@
 - Where is it?
 - I don't know. None of this makes any sense.
 - My father-- he didn't want me to be involved in any of this.
-- Really? You were skeet sh**ting at age seven, had your black belt at 13 and by the time you graduated from the London School of Economics, you were fluent in five languages.
+- Really? You were skeet sh\*\*ting at age seven, had your black belt at 13 and by the time you graduated from the London School of Economics, you were fluent in five languages.
 - Your whole life your father's been grooming you.
 - You are his succession plan.
 - But he was wrong about you.
 - See, he couldn't recognize what you really are-- an indecisive, weak little girl.
 - (whinnying)
-- Boris would have k*ll you.
+- Boris would have k\*ll you.
 - Chuck: But now he's gone.
 - And the rest of the lieutenants are dead.
 - There's no one left to put the pieces of Volkoff Industries back together.

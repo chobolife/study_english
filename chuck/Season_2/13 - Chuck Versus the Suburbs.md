@@ -98,7 +98,7 @@
 - Come on, don't be silly.
 - Please, you're not going to offend me.
 - There's got to be someone somewhere having a far worse Valentine's Day.
-- On the night of August 12, 1965, the 2nd Battalion, 3rd Marines endeavored to make a daring helicopter as*ault on the Elephant Valley.
+- On the night of August 12, 1965, the 2nd Battalion, 3rd Marines endeavored to make a daring helicopter as\*ault on the Elephant Valley.
 - I hope I'm not interrupting.
 - What can I do for you, General?
 - LAPD just picked up one of ours.
@@ -117,7 +117,7 @@
 - Salamander.
 - Possible code name for his enemy contact.
 - Our best guess: he chose this location for its proximity to a sleeper cell.
-- I need for someone to resume Yeager's assignment, identify his contact and infiltrate their t*rror1st network.
+- I need for someone to resume Yeager's assignment, identify his contact and infiltrate their t\*rror1st network.
 - I don't know how well I'd fit in with those people, General.
 - Not you, Major Casey.
 - We need a normal couple.
@@ -164,7 +164,7 @@
 - You are.
 - Hey, there's the grill-meister!
 - Welcome, neighbors.
-- Don't forget, one of our new neighbors is a suspected t*rror1st.
+- Don't forget, one of our new neighbors is a suspected t\*rror1st.
 - You heard the little lady.
 - Get out there and mingle.
 - Gentlemen,
@@ -293,7 +293,7 @@
 - Uh, correction... that was one of ours.
 - That bug was stolen from a CIA substation in Omaha in '06.
 - Now it belongs to FULCRUM.
-- And here I thought we were all looking for a garden-variety t*rror1st.
+- And here I thought we were all looking for a garden-variety t\*rror1st.
 - Better hurry up, buddy.
 - Your wieners are burning.
 - I knew these people creeped me out.
@@ -347,7 +347,7 @@
 - Any idea what your neighbor was using it for?
 - I don't know.
 - Uh, online gaming?
-- p*rn?
+- p\*rn?
 - Or... I don't know. Or...
 - Hacking into government servers.
 - Or hacking into government servers.
@@ -519,7 +519,7 @@
 - Looking for the wife?
 - She's having a chat with the ladies.
 - You feeling all right, buddy?
-- How's this bl*od pressure?
+- How's this bl\*od pressure?
 - A little heigh.
 - Should I give him more sedative?
 - No. CHUCK: Sarah?
@@ -540,7 +540,7 @@
 - What you saw upstairs was a small part of a computer program.
 - The CIA designed it to implant intelligence directly into agents through encoded images.
 - But the CIA gave up on the program.
-- They decided to slug it out, fighting the w*r on terror using Cold w*r tactics.
+- They decided to slug it out, fighting the w\*r on terror using Cold w\*r tactics.
 - But we're training agents who are ready to fight tomorrow's wars.
 - How would you like to be a part of that future?
 - How would you like to be part of FULCRUM?

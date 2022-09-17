@@ -93,9 +93,9 @@
 - Getting some fresh air.
 - In an underground bunker.
 - (Beckman clears throat) So what's with Turrini?
-- I ran into him a couple of times when I was trying to k*ll the Generalissimo.
+- I ran into him a couple of times when I was trying to k\*ll the Generalissimo.
 - He's the head of Costa Gravan Secret Police, and he's in town unannounced, which is extremely unusual.
-- I want everyone who wasn't sh*t recently to stake out the embassy to see if he turns up.
+- I want everyone who wasn't sh\*t recently to stake out the embassy to see if he turns up.
 - Everyone else should be in bed.
 - Sarah: No sign of Costa Gravan activity.
 - Sarah?
@@ -182,7 +182,7 @@
 - Daughter. Dad.
 - You're in a wheelchair.
 - You said that you were just sick.
-- Oh, just sh*t in the leg. Fine.
+- Oh, just sh\*t in the leg. Fine.
 - Well, I... brought you soup.
 - I didn't know you were going to be here, Morgan.
 - How did, uh, how did the pot roast turn out?
@@ -281,7 +281,7 @@
 - We were just starting to get somewhere.
 - We were talking, I was gonna have sangria. Chuck.
 - There's a...
-- There's a Soviet-era w*apon system down that hallway behind a red door.
+- There's a Soviet-era w\*apon system down that hallway behind a red door.
 - But we're here for, like, five days, so why don't we just grab it on the way out, after rain forest zip-lining.
 - Chuck, if it's a threat... I know, I know.
 - I know, I know, but my sister's here.
@@ -296,12 +296,12 @@
 - I'm gonna call Casey about your flash.
 - He hunted the Generalissimo in this palace for a decade.
 - He can give us the layout.
-- Okay, okay, well, he, uh, did just get sh*t in the leg, and is resting up, so he probably won't be available.
+- Okay, okay, well, he, uh, did just get sh\*t in the leg, and is resting up, so he probably won't be available.
 - (phone ringing)
 - Casey. What do you need?
 - A little bored, Casey?
 - Dear God, please give me something to do.
-- Hey. I just flashed on some stupid w*apon system behind a red door. I think it's down the northeast hallway off the ballroom?
+- Hey. I just flashed on some stupid w\*apon system behind a red door. I think it's down the northeast hallway off the ballroom?
 - I know that hallway.
 - When I was hunting the Generalissimo back in my Angel de la Muerte days,
 - I lived in one of those walls for two weeks.
@@ -361,12 +361,12 @@
 - For me mostly.
 - I know what you two were sneaking off to do.
 - Looks like Costa Gravas makes everyone run a little more caliente.
-- (laughs) (g*n, people screaming)
+- (laughs) (g\*n, people screaming)
 - What was that?
 - What was that? !
-- (g*n)
-- (people screaming, g*n)
-- (rapid g*n)
+- (g\*n)
+- (people screaming, g\*n)
+- (rapid g\*n)
 - (screaming)
 - (screaming)
 - Bring me my husband's head!
@@ -381,7 +381,7 @@
 - (overlapping chatter)
 - (man speaking Spanish)
 - (grunting)
-- Sarah: Chuck, the g*n!
+- Sarah: Chuck, the g\*n!
 - (grunting)
 - Chuck?
 - Sis, you okay?
@@ -398,7 +398,7 @@
 - You know, women... Generalissimo, I once saved your life.
 - I need you to save ours. Of course. Of course. Come. Come. Right this way.
 - Funny story.
-- The Angel de la Muerte...  he hid in these very walls for two weeks trying to k*ll me.
+- The Angel de la Muerte...  he hid in these very walls for two weeks trying to k\*ll me.
 - I was in Havana with Castro the whole time.
 - (Generalissimo laughing) I heard that.
 - This way. My plane awaits.
@@ -471,16 +471,16 @@
 - What if we do "I do, " and it changes us?
 - It's nuclear.
 - Exactly, everything we love about us could be destroyed.
-- No, not us, the w*apon.
+- No, not us, the w\*apon.
 - It's a nuclear control panel.
 - The Costa Gravans have nukes.
 - Beckman: Costa Gravas is nuclear? !
 - Generalissimo: All right, yes.
 - (chuckles)
-- I have a nuclear w*apon control panel in my basement.
+- I have a nuclear w\*apon control panel in my basement.
 - This is such ugliness.
 - How does it work?
-- There are nuclear m*ssile at sites throughout the Costa Gravan jungle.
+- There are nuclear m\*ssile at sites throughout the Costa Gravan jungle.
 - They're all aimed at different cities, mostly American.
 - Look, it takes two keys, okay, two keys to use the system.
 - One of them is right here.
@@ -513,13 +513,13 @@
 - Well, I wrote a report back in '91 theorizing you'd be taken down by someone else altogether, someone whose politics never moved to the center, as have yours.
 - Someone who could never take his eyes off your wife.
 - Move around behind me, Generalissimo.
-- Do not make me sh**t a man in a wheelchair.
+- Do not make me sh\*\*t a man in a wheelchair.
 - Better?
 - Generalissimo, you're coming with me.
 - Hortencia and I need your key.
 - You're not going anywhere, Generalissimo.
 - I think you are.
-- (g*n cocking)
+- (g\*n cocking)
 - Cute.
 - Too bad you didn't bring enough.
 - Ahora...
@@ -527,10 +527,10 @@
 - I'm sorry, my friend.
 - No harm comes to him.
 - ¿Comprende?
-- His bl*od runs in my veins.
-- You do not k*ll him, I go with you.
+- His bl\*od runs in my veins.
+- You do not k\*ll him, I go with you.
 - Vamos.
-- Beckman: Your task is to sneak back into Costa Gravas, destroy the nuclear control room, and find the m*ssile.
+- Beckman: Your task is to sneak back into Costa Gravas, destroy the nuclear control room, and find the m\*ssile.
 - The U. S. wants the Generalissimo back in charge but without nuclear capabilities.
 - On it, General.
 - I know every corner of that godforsaken slime hole.
@@ -575,22 +575,22 @@
 - Would you go see someone with me? Amor,  what kind of rebel leader goes to a marriage counselor?
 - It's ridiculous.
 - Turrini: Hortencia.
-- Hortencia: For any who might want to remove the people from office, know that we hold the keys to the most powerful w*apon in the world and are not afraid to use force.
+- Hortencia: For any who might want to remove the people from office, know that we hold the keys to the most powerful w\*apon in the world and are not afraid to use force.
 - You know, darling, maybe you should unbutton one more button.
 - Shut up!
 - This is exactly the problem.
 - You have to do everything your way!
 - (whispering): We need to act fast right now.
-- Somebody's about to accidentally start World w*r III.
+- Somebody's about to accidentally start World w\*r III.
 - I say we blow the room, let the Costa Gravans start fresh.
 - We are more or less in the room.
 - It's better than an accidental nuking.
 - You're crazy.
 - We're all about to die over basically just one big relationship problem?
 - Hortencia: Por favor, move.
-- Make me sh**t you through the head like you sh*t me through the heart.
+- Make me sh\*\*t you through the head like you sh\*t me through the heart.
 - Wait, wait, wait, wait, wait, wait.
-- No sh**ting.
+- No sh\*\*ting.
 - (clears throat) Excuse me.
 - Excuse me. Excuse me. I know this is a very private moment. I just thought maybe you needed a mediator.
 - Turrini: Grab him!
@@ -601,7 +601,7 @@
 - Hortencia: How did you get back into my country?
 - Who are you people working for?
 - Well, uh, technically, we're with the CIA.
-- sh**t them.
+- sh\*\*t them.
 - Chuck: Wait, wait, wait.
 - Wait. No, listen.
 - We are trained to deal with situations just like this, and by the way, you're right about your husband.
@@ -618,8 +618,8 @@
 - But, hey, I just call it like I see it.
 - Here's the thing, Hortencia.
 - You two clearly still care about each other.
-- You could have k*ll the Generalissimo at any point, and you haven't done it. What is happening? !
-- Hortencia, sh**t these people!
+- You could have k\*ll the Generalissimo at any point, and you haven't done it. What is happening? !
+- Hortencia, sh\*\*t these people!
 - Lead your country.
 - I bet... I bet, when you started out, just the two of you crazy kids cuddled up in your little tropical cave, dreaming of revolution, and having sweet, sweet jungle love, everything was perfect, no?
 - But then we moved into the palace, and he changed.
@@ -628,7 +628,7 @@
 - Unavoidable. Life is full of changes.
 - Constantly changing, and the question is, no matter what the changes are, is the love still there?
 - Fine.
-- I'll sh**t them.
+- I'll sh\*\*t them.
 - (gasps)
 - Generalissimo: Angel de la Vida!
 - Mmm...
@@ -645,7 +645,7 @@
 - No, it was different before when it was just us.
 - Uh, that-that, um, that love that you had in the cave?
 - That doesn't have to change.
-- (g*n cocks) (grunts)
+- (g\*n cocks) (grunts)
 - Amor...  would you join me again in leading this country?
 - Will you?
 - I need you... just to challenge me, to feed my soul.
@@ -675,14 +675,14 @@
 - I don't... I... (groans)
 - Oh, screw it!
 - ♪ ♪
-- We got troops incoming shortly to collect and dismantle the m*ssile.
+- We got troops incoming shortly to collect and dismantle the m\*ssile.
 - And we're almost done in here.
 - You come, my friends, and join the celebration.
 - In Costa Gravas, first we revolution, but then we party.
 - Did you purchase this system from Volkoff Industries?
 - What?
 - Yeah.
-- It was part of his underground w*apon pipeline.
+- It was part of his underground w\*apon pipeline.
 - It was called Project Beacon.
 - That's what Heather Chandler told us about.
 - Did any of Volkoff's men ever mention a woman, she was CIA, code name "Frost"?
@@ -691,7 +691,7 @@
 - He kept her tucked away back home.
 - Some kind of a kept woman.
 - Angel de la Vida,
-- I got a few Costa Gravan angels downstairs, huh, for the man who rescued their country from civil w*r.
+- I got a few Costa Gravan angels downstairs, huh, for the man who rescued their country from civil w\*r.
 - General, do you remember anything else about Volkoff or-or Frost?
 - I'm gonna give you all my files of my dealings with him.
 - Just remember these are dangerous people, okay?

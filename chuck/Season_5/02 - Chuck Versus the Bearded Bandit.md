@@ -11,9 +11,9 @@
 - The Buy More.
 - We take Buy More's profits, put them into Carmichael Industries until both companies can make money.
 - My name is Charles Carmichael, and I have one final question for you.
-- Have you ever needed to subdue a Basque t*rror1st on a Swiss train?
+- Have you ever needed to subdue a Basque t\*rror1st on a Swiss train?
 - Or fight your way through the jungles of Southeast Asia?
-- Or take out an arms dealer with a penchant for m*rder and ice cream?
+- Or take out an arms dealer with a penchant for m\*rder and ice cream?
 - Well, we have.
 - So, while considering your security needs, when lives are on the line, I implore you to consider us...
 - It's not that one.
@@ -79,12 +79,12 @@
 - Verbanski Corp took all of our clients.
 - Told you, you put me out there, you don't have to worry about what other companies are doing.
 - Look, I know I seem like just an ordinary guy, but I am, in fact, the Intersect.
-- Multibillion dollar CIA asset turned w*apon!
+- Multibillion dollar CIA asset turned w\*apon!
 - Buddy, no one can know that we have the walking CIA database on our team, okay?
-- The Intersect is a secret w*apon for a reason.
+- The Intersect is a secret w\*apon for a reason.
 - That sucks, man.
 - I have all these powers and abilities, and how am I supposed to help people if I can't tell anybody about it?
-- Because, Morgan, if you do, it could get you k*ll!
+- Because, Morgan, if you do, it could get you k\*ll!
 - Oh, I just zoomed.
 - What?
 - I just zoomed.
@@ -95,7 +95,7 @@
 - (stutters)
 - Just, let's take a breath here, okay?
 - We got to be subtle about this.
-- He's going for a w*apon. He's coming at us.
+- He's going for a w\*apon. He's coming at us.
 - I'm in! I'm in! Ah...
 - Not good.
 - You just found out that the zoom is mightier than the sword, my friend.
@@ -142,7 +142,7 @@ Original Air Date on November 4, 2011
 - I don't know where he's being held, but I do know he's being tortured.
 - My little brother-- he never wanted to have anything to do with my affairs.
 - He's a good man.
-- And they will k*ll him unless...
+- And they will k\*ll him unless...
 - We save him.
 - Exactly.
 - Why should we believe these people actually took your brother?
@@ -249,7 +249,7 @@ Original Air Date on November 4, 2011
 - No harm, no "foul. "
 - Get it?
 - Okay, have a nice day.
-- I count at least 12 guards with their w*apon pointed straight at the entrance. We are definitely not going in the front door.
+- I count at least 12 guards with their w\*apon pointed straight at the entrance. We are definitely not going in the front door.
 - Well, there has to be another way in.
 - If there is, I'll find it.
 - Oh, I get it, he meant, he meant waterfowl.
@@ -333,7 +333,7 @@ Original Air Date on November 4, 2011
 - Chuck, we are a legitimate company, not a bunch of vigilantes running around, fighting crime at the Circle K.
 - I know that, I know, but his heart is in the right place-- I mean, that, that, that, that should matter for something, right?
 - Morgan is your responsibility.
-- He could have gotten himself k*ll and the store clerk yesterday.
+- He could have gotten himself k\*ll and the store clerk yesterday.
 - That is what matters.
 - (sighs)
 - Look, we found the compound where Wesley is being kept.
@@ -394,8 +394,8 @@ Original Air Date on November 4, 2011
 - What'd she want?
 - Apparently she wanted to recruit me, but I think she was really after you.
 - What do you mean?
-- Well, she has your g*n on display in her office-- the g*n from Minsk?
-- She kept my g*n?
+- Well, she has your g\*n on display in her office-- the g\*n from Minsk?
+- She kept my g\*n?
 - Oh, God, oh, God.
 - Casey?
 - Casey, I'm slipping.
@@ -414,7 +414,7 @@ Original Air Date on November 4, 2011
 - Yeah. About time.
 - Okay, Chuck, this is all you.
 - (beeping)
-- (g*n clicks)
+- (g\*n clicks)
 - Oh, my God. Who are you people?
 - We're here to save you.
 - What the hell are you talking about?
@@ -423,7 +423,7 @@ Original Air Date on November 4, 2011
 - Whoa, , whoa, whoa, wh, whoa. What are you doing?
 - We're here to protect you.
 - From who?
-- The only thing keeping my brother from k*ll me are the men I hired to guard this compound.
+- The only thing keeping my brother from k\*ll me are the men I hired to guard this compound.
 - (alarm blaring) What? !
 - But your finger?
 - Yeah, who do you think cut it off?
@@ -473,8 +473,8 @@ Original Air Date on November 4, 2011
 - Exactly.
 - You hired us to save your brother.
 - No, I paid you to extract him and bring him to me.
-- Except that we didn't know you were planning on k*ll him.
-- Nor did we know you were responsible for the finger cutting f*g. That's crazy.
+- Except that we didn't know you were planning on k\*ll him.
+- Nor did we know you were responsible for the finger cutting f\*g. That's crazy.
 - Listen, you have exactly four hours to deliver Wesley to me. Otherwise, I'm coming after you, and trust me, that is something you will not enjoy.
 - And by the way, that comment card you sent with the contract?
 - Well, you can consider that...
@@ -499,7 +499,7 @@ Original Air Date on November 4, 2011
 - Okay, okay. Why don't I just go with you, buddy?
 - And we can get a little breather while we wait to hear back from Beckman, okay?
 - Don't forget the utensils.
-- Thank you. Must have had one too many piña coladas on the plane, and my bl*od pressure is just generally outrageous.
+- Thank you. Must have had one too many piña coladas on the plane, and my bl\*od pressure is just generally outrageous.
 - I'm just glad I was here for your dizzy spell.
 - So, listen, Devon, have you ever given any thought to doing something that involves less doctoring and more making a commercial for the Buy More?
 - What?
@@ -615,7 +615,7 @@ Original Air Date on November 4, 2011
 - It only happened once.
 - Seeing her again makes it... (groans) complicated.
 - Complicated how?
-- (exhales) Well... you ever, uh, have sex with someone who just tried to k*ll you?
+- (exhales) Well... you ever, uh, have sex with someone who just tried to k\*ll you?
 - It was incredible. Okay, I think we should focus on the mission now.
 - ♪ ♪
 - (grunting)
@@ -628,7 +628,7 @@ Original Air Date on November 4, 2011
 - Who?
 - (laughs)
 - Indiana Jones?
-- (shouts, imitates g*n)
+- (shouts, imitates g\*n)
 - You know. Cool.
 - Let's go get Sneijder. Wait, no, no, no.
 - Morgan, we have to get out of here right now.
@@ -638,11 +638,11 @@ Original Air Date on November 4, 2011
 - But look what we did here, man.
 - Just like I said, right? Batman and Batman!
 - Look! Just because you have the Intersect in you doesn't mean you don't have something to learn still.
-- You have a lot to learn, and I'm not gonna let you k*ll yourself today.
+- You have a lot to learn, and I'm not gonna let you k\*ll yourself today.
 - I called Casey and Sarah...
 - What? You called them?
 - Karl: Mr. Carmichael?
-- (g*n cocks)
+- (g\*n cocks)
 - I do wish you would have called before dropping by.
 - Place is a mess.
 - So... did you bring me my brother?
@@ -672,10 +672,10 @@ Original Air Date on November 4, 2011
 - (helicopter blades whirring) (gasps): What's happening?
 - (explosions)
 - Chuck: Oh! Oh, I know what's happening.
-- Put your w*apon down.
-- (g*n) (yells)
-- I'm sorry, one more time for clarity, and then I sh**t something that counts.
-- Put your w*apon down.
+- Put your w\*apon down.
+- (g\*n) (yells)
+- I'm sorry, one more time for clarity, and then I sh\*\*t something that counts.
+- Put your w\*apon down.
 - I got a couple of buddies in Moscow who would love to get you in a tiny, windowless room for a couple of hours.
 - You came.
 - Well, it wasn't cheap.
@@ -708,7 +708,7 @@ Original Air Date on November 4, 2011
 - Yeah, well, we still owe Verbanski Corp $150, 000 of that.
 - Casey: Plus the 30 grand for the repairs on Wesley's safe house.
 - And the climbing gear.
-- The V-21 bolt g*n.
+- The V-21 bolt g\*n.
 - Gas for the Lotus.
 - What? Okay, fine, I'll cover that.
 - Hey, it's a start, and it's what we needed.

@@ -40,15 +40,15 @@
 - And I want all of that, but the more I think about it, I just don't know if that future goes with the life that we're living right now.
 - I mean, both of us have been captured more than once.
 - Every day, we make a new dangerous enemy.
-- And I just ran to the front door with a g*n because I heard the newspaper being delivered.
-- Yeah, parents can't be sh**ting the paperboy.
+- And I just ran to the front door with a g\*n because I heard the newspaper being delivered.
+- Yeah, parents can't be sh\*\*ting the paperboy.
 - Look, I'm a spy, and that's all I ever thought that I could be, but I realized that we don't have to give up what we've already built.
 - We can just shift what Carmichael Industries does.
 - Okay, shift it to what?
 - Countering cyberterrorism.
 - It's your tech firm idea, but more spied up-- so we keep your computer know-how and mix it with my experience in international bad guy-ery.
-- So we go after bad guys who use keyboards instead of b*ll*ts.
-- Which means we don't have to use b*ll*ts, either.
+- So we go after bad guys who use keyboards instead of b\*ll\*ts.
+- Which means we don't have to use b\*ll\*ts, either.
 - I mean, the timing of it does kind of feel right.
 - We've got nothing left hanging.
 - No new missions.
@@ -56,18 +56,18 @@
 - Let's do it.
 - Now, how do we pitch the idea to Casey?
 - Morgan: Well, I love it.
-- Okay? You know how I feel about b*ll*ts, which is to say negatively, okay?
+- Okay? You know how I feel about b\*ll\*ts, which is to say negatively, okay?
 - This is fantastic.
 - Where do I fit in? What am I, chief Googler?
 - Well, actually, you'd be doing a lot of the same stuff that you already do.
 - Yeah, I mean, we're still going to need field ops to recover stolen systems and breaching companies' security to find their weak spots.
 - (groans)
-- Morgan: Plus, wouldn't it be lovely not to get sh*t at?
+- Morgan: Plus, wouldn't it be lovely not to get sh\*t at?
 - Chuck: Exactly.
-- Aren't you sick of being sh*t at?
-- Or getting sh*t?
-- I mean, you get sh*t a lot.
-- Not considering how much I get sh*t at.
+- Aren't you sick of being sh\*t at?
+- Or getting sh\*t?
+- I mean, you get sh\*t a lot.
+- Not considering how much I get sh\*t at.
 - Mm. Mm.
 - Okay. Think about Alex.
 - Do you know how happy she will be, knowing that you're not out there doing scary stuff?
@@ -430,7 +430,7 @@ Original Air Date on January 13, 2012
 - Don't trust Bo Derek.
 - That's what your tattoo says.
 - Come on, she must be involved with the Intersect theft.
-- (g*n cocking)
+- (g\*n cocking)
 - Not the strangest place a man has tattooed my name.
 - Now take me to the glasses.
 - I'm just going to go out and say it-- you're no longer a perfect 10.
@@ -472,7 +472,7 @@ Original Air Date on January 13, 2012
 - Who wants to party with the freaking Intersect? !
 - (all cheer)
 - Whoo!
-- I am the most powerful w*apon in the world!
+- I am the most powerful w\*apon in the world!
 - Whoo!
 - Whoo!
 - ♪
@@ -554,7 +554,7 @@ Original Air Date on January 13, 2012
 - ... Dale, he doesn't matter, okay?
 - You don't have to make up these stories.
 - No, I'm not, I'm not lying. Are you kidding me?
-- No. I made rainbows sh**t out of this woman.
+- No. I made rainbows sh\*\*t out of this woman.
 - There's Grimes. Let's just confront him.
 - I know he's a part of this.
 - Wait. We are being sabotaged. Mm-hmm.
@@ -574,7 +574,7 @@ Original Air Date on January 13, 2012
 - The key.
 - I checked the manager's vault.
 - Any ideas?
-- (men shouting, g*n)
+- (men shouting, g\*n)
 - Sweet lady Buy More.
 - Emerald and gold.
 - (snaps fingers)
@@ -627,7 +627,7 @@ Original Air Date on January 13, 2012
 - Maybe somebody moved them.
 - Like, maybe the person who is currently knocked out cold.
 - Chuck: The place is hopping right now.
-- This is the new expansion pack for g*n 'n Gold.
+- This is the new expansion pack for g\*n 'n Gold.
 - The vault...
 - Could it be?
 - A display copy.
@@ -639,7 +639,7 @@ Original Air Date on January 13, 2012
 - You people are spies!
 - And we are not going to forget it, because it is right here on my arm.
 - Yeah! What he said!
-- (a*t*matic g*n, people screaming)
+- (a\*t\*matic g\*n, people screaming)
 - Quinn: Everybody out!
 - Charles Carmichael.
 - First guy who got it instead of me.
@@ -667,7 +667,7 @@ Original Air Date on January 13, 2012
 - I... I tried.
 - Now give it to me!
 - Jeffrey... run!
-- Nice sh*t!
+- Nice sh\*t!
 - (gasps)
 - Thank you.
 - No, no, Casey-- Casey, wait.

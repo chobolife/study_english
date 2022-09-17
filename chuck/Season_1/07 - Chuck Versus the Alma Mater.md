@@ -141,7 +141,7 @@
 - I'm sorry, Iceland does espionage?
 - Magnus buys and sells intel to the highest bidder.
 - And Iceland isn't officially aware of his activities.
-- It says here the crossbow is his w*apon of choice.
+- It says here the crossbow is his w\*apon of choice.
 - Oh, what, slingshot's too ineffective?
 - Hey, buddy, where you going?
 - What's up?
@@ -178,8 +178,8 @@
 - I've been doing all these crunches, man.
 - I know, buddy.
 - Yeah.
-- You didn't offer to k*ll Harry for Anna, did you?
-- No. Why, you want me to k*ll him?
+- You didn't offer to k\*ll Harry for Anna, did you?
+- No. Why, you want me to k\*ll him?
 - No. No, just curious.
 - We just got a hit off a traffic camera in Hollywood.
 - That's Fleming.
@@ -199,7 +199,7 @@
 - No offense.
 - You even aced the last section.
 - Encoded images.
-- Yeah, those were just kind of a sh*t in the dark.
+- Yeah, those were just kind of a sh\*t in the dark.
 - You may be aware, I keep an answer key to every exam locked inside this office.
 - No, no, I wasn't aware of that.
 - Really?
@@ -281,7 +281,7 @@
 - I'm sorry.
 - Oh, hey. Hey.
 - Hey, hey, buddy.
-- Let's not b*at ourselves up. You know, the past is the past.
+- Let's not b\*at ourselves up. You know, the past is the past.
 - Okay. Look, we didn't really know each other that well at college.
 - And this is a little awkward, so...
 - What the-?
@@ -330,7 +330,7 @@
 - You just don't wanna be stuck in a car alone with Awesome's frat buddies.
 - Maybe, or maybe I'm your sister and I care about you... and I think that going back to Stanford would help you to move on.
 - I love you, sis.
-- And I'd take a lot of b*ll*ts for you... but five hours in a car with Awesome and his bros, that is asking too much.
+- And I'd take a lot of b\*ll\*ts for you... but five hours in a car with Awesome and his bros, that is asking too much.
 - Besides, if I came, you wouldn't have room for your fun old foam finger.
 - Stop it.
 - What is this?
@@ -344,7 +344,7 @@
 - Expel me?
 - You're a dead man, Chuck Bartowski.
 - All right. Come on, Bryce.
-- Give it up, buddy. I know you're out of a*mo, I've been counting.
+- Give it up, buddy. I know you're out of a\*mo, I've been counting.
 - Buddy. Whoa, whoa, whoa.
 - You wouldn't fire at an unarmed guy.
 - I might.
@@ -357,9 +357,9 @@
 - I know what the numbers mean. They're for a book in Stanford Library.
 - Bryce had a place where he would stash stuff.
 - He told Fleming about it. Fleming must have left the intel there for Bryce.
-- It's a matter of time before Magnus figures it out and b*at us to the book.
+- It's a matter of time before Magnus figures it out and b\*at us to the book.
 - Bingo.
-- Unless we can b*at him to it.
+- Unless we can b\*at him to it.
 - Bryce kept his stuff on the third floor. There was a turn...
 - There was a turn...
 - I'd have to be there to remember.
@@ -406,7 +406,7 @@
 - Bryce has betrayed a lot of people, hasn't he?
 - Mm. Roger that.
 - We have to play this really cool.
-- Magnus has the book number. He could have b*at us here.
+- Magnus has the book number. He could have b\*at us here.
 - Think he's in there?
 - Maybe you should stay here.
 - Yeah, that always works out well.
@@ -447,7 +447,7 @@
 - Thank you.
 - There. There, that row.
 - Oh, no.
-- We're too late, Magnus b*at us here. He's got the book.
+- We're too late, Magnus b\*at us here. He's got the book.
 - Hold on.
 - Got you.
 - Hold on a second.
@@ -511,14 +511,14 @@
 - Hello?
 - Hi. Hi, is this-?
 - Is this Glenda Mitchell? We're in the science building.
-- It's an emergency. Bring lots of big g*n.
+- It's an emergency. Bring lots of big g\*n.
 - I'm sorry, you've got the wrong number.
 - Crap, there's a code phrase.
 - Are you coming to the toga party?
 - There's a place you can plant it in the quad. Let me give you directions.
 - We have a situation right now.
-- Bring any amm*nit*on.
-- Any equipment you have for k*ll bad guys.
+- Bring any amm\*nit\*on.
+- Any equipment you have for k\*ll bad guys.
 - Are you coming to the toga party?
 - Lots of bad guys are surrounding us.
 - Are you coming to the toga party? Bye-bye.
@@ -538,15 +538,15 @@
 - Throwing things at adults' heads is not- That's not gonna help you in life.
 - Oh, no.
 - I got two rounds left.
-- I've got half a mag. Drop your w*apon and stand up.
+- I've got half a mag. Drop your w\*apon and stand up.
 - Hands where we can see them.
 - I'm gonna go for it.
 - You in?
 - You bet.
 - Hate long goodbyes.
-- Actually, why don't you drop your w*apon?
+- Actually, why don't you drop your w\*apon?
 - Like someone called the cavalry. Good.
-- Because I only had one sh*t left.
+- Because I only had one sh\*t left.
 - Whew.
 - Aren't you in econ. with me?
 - Yeah.
@@ -559,7 +559,7 @@
 - Coming on now and breaking through the pack.
 - She almost got knocked off by two-
 - What's going on?
-- She gets passed... has only the pavement to b*at for another critical point.
+- She gets passed... has only the pavement to b\*at for another critical point.
 - What's happening?
 - Grimes!
 - Hey, what's up? What going on?

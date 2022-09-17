@@ -1,7 +1,7 @@
 # Chuck Versus the Family Volkoff
 
 - Hi I'm Chuck. Here are a few things, that you might need to know:
-- Wait... Vivian Volkoff is trying to k*ll me?
+- Wait... Vivian Volkoff is trying to k\*ll me?
 - It appears she's going after the man who took down her father.
 - CAPTAIN (on phone): I've got some bad news.
 - Ellie's been working on your dad's computer.
@@ -98,21 +98,21 @@
 - Stupid of me to think otherwise.
 - (phone buzzes)
 - Duty calls.
-- Team, as you know, the b*mb planted in Castle have Volkoff parts and design.
+- Team, as you know, the b\*mb planted in Castle have Volkoff parts and design.
 - Vivian Volkoff Langley has tagged as the responsible party.
-- They put out a k*ll order.
+- They put out a k\*ll order.
 - Off parts? What?
 - Two men dead, Bartowski.
 - But it could be a rogue in Volkoff's organization.
 - Look, all I'm saying is that I've spent time with Vivian, okay?
-- And she's not a cold-blooded k*ll.
+- And she's not a cold-blooded k\*ll.
 - Just give me a chance to persuade her to come in.
 - She worked for us; we owe her that.
 - We don't owe her squat.
 - I'll compromise.
 - Set a meet with Vivian.
 - If she gets hostile, take her down.
-- Casey, prep a sn*per team. Roger that.
+- Casey, prep a sn\*per team. Roger that.
 - No matter how much you believe in this broad, remember she's still a Volkoff.
 - Don't let him get to you. He's just being Casey.
 - Sure. No, it's... it's cool.
@@ -122,7 +122,7 @@
 - Signed, sealed, delivered.
 - So, we better gear up, huh?
 - CASEY (over comm): I'm in position.
-- She makes one wrong move, I take the sh*t.
+- She makes one wrong move, I take the sh\*t.
 - Look, Chuck, a prenup doesn't mean the end of our marriage.
 - Well, look, hey, you're-you're a spy, and spies have secrets they need to protect; that's cool.
 - No. I-I don't keep secrets from you.
@@ -132,35 +132,35 @@
 - Casey: Heads up. Here they come.
 - Okay.
 - I'm here in the middle of nowhere... why?
-- Volkoff b*mb were planted in Castle.
+- Volkoff b\*mb were planted in Castle.
 - Two men died, and the CIA holds you responsible.
 - I... I would never do that.
 - I'm a business woman; I'm trying to make Volkoff Industries into a legitimate enterprise.
 - I gave INTERPOL a list of every black-market agent; I swept out all the old operatives; I even brought you something.
-- From an arsenal of my father's deadliest w*apon.
+- From an arsenal of my father's deadliest w\*apon.
 - What is it? I don't know.
 - Look, I want nothing to do with my father's world.
 - Please, do you trust me?
-- (g*n)
-- Guard: sn*pers! Hit the ground.
+- (g\*n)
+- Guard: sn\*pers! Hit the ground.
 - Sarah: Casey, stand down! Stand down!
-- Casey: It's not us! I don't know who it is... I can't pinpoint the sh**t.
-- sn*pers? ! Is this a setup?
+- Casey: It's not us! I don't know who it is... I can't pinpoint the sh\*\*t.
+- sn\*pers? ! Is this a setup?
 - Huh? No, no, no. Wait. Wait!
 - Wait, Vivian, wait! No, this is not a setup.
 - Guard: Go. Go, go, go!
 - I trusted you! How could you do this to me?
 - (grunts)
 - (screams) Vivian!
-- (g*n ceases)
-- We couldn't determine the source of the sh*t, General, but it wasn't us.
-- And the w*apon Vivian offered up?
+- (g\*n ceases)
+- We couldn't determine the source of the sh\*t, General, but it wasn't us.
+- And the w\*apon Vivian offered up?
 - It's not in the Intersect, and we can't figure out what it does.
 - So it proves nothing.
-- The k*ll order stands.
+- The k\*ll order stands.
 - But, what... okay, hang-hang on.
-- But what if she was being straight with us and it really is a deadly w*apon.
-- Wouldn't that be enough to recall her k*ll order?
+- But what if she was being straight with us and it really is a deadly w\*apon.
+- Wouldn't that be enough to recall her k\*ll order?
 - And who exactly is going to give us that intel?
 - There's only one man who can tell us.
 - Unfortunately, he's also the most dangerous man in the world.
@@ -198,10 +198,10 @@ Original Air Date on April 11, 2011
 - I'm not interested in how the world can serve me anymore.
 - I'm interested in how I can serve my fellow man.
 - Sure, awesome. Well, if that's the case...
-- If we can identify this w*apon, we can help rescind your daughter's k*ll order.
+- If we can identify this w\*apon, we can help rescind your daughter's k\*ll order.
 - That's the Norseman.
 - It's a DNA tracker.
-- A tiny sample, and a target or a family of targets can be picked out of a crowd and k*ll instantly.
+- A tiny sample, and a target or a family of targets can be picked out of a crowd and k\*ll instantly.
 - There are two other components.
 - Where are they?
 - That's valuable information.
@@ -230,8 +230,8 @@ Original Air Date on April 11, 2011
 - Hi. See you later.
 - Ugh.
 - Since Volkoff identified the Norseman, Langley's putting the hunt for Vivian on a back burner.
-- They want the additional w*apon components.
-- Well, General, we'd be happy to, except the w*apon is not in the Intersect, and the only man who can find those components is... coming in right about now.
+- They want the additional w\*apon components.
+- Well, General, we'd be happy to, except the w\*apon is not in the Intersect, and the only man who can find those components is... coming in right about now.
 - Say what?
 - General, what is this?
 - I'm not normally one to question authority, General...
@@ -258,7 +258,7 @@ Original Air Date on April 11, 2011
 - I got the layout of the compound off the Sky Drive.
 - Only way in is through the front door.
 - It's a rat's nest of a hellhole.
-- (g*n in distance)
+- (g\*n in distance)
 - But the gambling's good, buffet's decent.
 - It should be me going in.
 - That's my job.
@@ -310,7 +310,7 @@ Original Air Date on April 11, 2011
 - I'm looking for Ellyas Abshir.
 - Who are you?
 - I work for Alexei Volkoff.
-- (g*n cocking)
+- (g\*n cocking)
 - Vol-Volkoff! Volkoff?
 - Alexei Volkoff? Did I not pronounce that correctly?
 - Sometimes, you know, with the Russian thing it's the W's and the V's.
@@ -407,10 +407,10 @@ Original Air Date on April 11, 2011
 - Such a good feeling, isn't it?
 - Here we go. Let's go.
 - Thank you, Mogadishu, and good night!
-- Volkoff: All that remains is the k*ll agent... thorium.
+- Volkoff: All that remains is the k\*ll agent... thorium.
 - My finest piece of work.
 - Where does it come from? A far-off land.
-- To mine it, I had to wage w*r against the peaceful natives and ordered the destruction of their Hometree.
+- To mine it, I had to wage w\*r against the peaceful natives and ordered the destruction of their Hometree.
 - (laughing)
 - I'm just kidding.
 - They showed it to us last week...
@@ -420,7 +420,7 @@ Original Air Date on April 11, 2011
 - Well, my grandmother always used to say, play your cards close to the vest.
 - And wear a coat over the vest or you'll look like a jerk.
 - Team, good progress, but Langley is getting antsy.
-- Well, General, we think Volkoff knows where the k*ll agent is, but he's being very uncool about it.
+- Well, General, we think Volkoff knows where the k\*ll agent is, but he's being very uncool about it.
 - Volkoff: General...
 - I want proof you're going to keep your side of the bargain.
 - There is a classified document on the conference table... a communication between Vivian and the CIA.
@@ -441,7 +441,7 @@ Original Air Date on April 11, 2011
 - Target's on the move, Hot Mama.
 - Ellie: Copy that, Six Pack.
 - You get the car. I got the baby.
-- "Meet me at 8:00, the sh**ting range to celebrate.
+- "Meet me at 8:00, the sh\*\*ting range to celebrate.
 - Love, Alex. "
 - Huh.
 - Hey, I just got your text.
@@ -483,7 +483,7 @@ Original Air Date on April 11, 2011
 ♪ Danny Boy... ♪
 - Volkoff is here?
 - What the hell is going on?
-- He got a 48-hour furlough to get us a w*apon called the Norseman.
+- He got a 48-hour furlough to get us a w\*apon called the Norseman.
 - It-it wasn't in your Volkoff file, but have you heard of it?
 - Just whispered about.
 - Never laid eyes on it, which is worrisome.
@@ -495,7 +495,7 @@ Original Air Date on April 11, 2011
 - Never believe a word he says, and never let him out of your sight.
 - You understand?
 - Cool.
-- Sarah: No g*n, no ambush.
+- Sarah: No g\*n, no ambush.
 - Maybe this isn't a trap after all.
 - Yeah.
 - Can't trust a Limey with good teeth.
@@ -544,9 +544,9 @@ Original Air Date on April 11, 2011
 - (beeping)
 - Electronic Voice: Mr. Volkoff. You're still in check, (whimpers)
 - Electronic Voice: If this is Mr. Volkoff.
-- g*n. Big g*n.
-- Lots of b*ll*ts.
-- Sort of k*ll.
+- g\*n. Big g\*n.
+- Lots of b\*ll\*ts.
+- Sort of k\*ll.
 - Story of my life.
 - What is going on with you? Come on.
 - Let's do this.
@@ -563,7 +563,7 @@ Original Air Date on April 11, 2011
 - No, he wouldn't, because he'd be cool.
 - It's not working.
 - Damn it!
-- You still have the DNA of the world's most evil w*apon dealer.
+- You still have the DNA of the world's most evil w\*apon dealer.
 - You are a villain, sir.
 - Your name strikes fear in the hearts of even the toughest of swine.
 - And that name is...
@@ -572,9 +572,9 @@ Original Air Date on April 11, 2011
 - My name... is...
 - Alexei Volkoff.
 - World's biggest bad-ass.
-- k*ll of men, conqueror of nations.
+- k\*ll of men, conqueror of nations.
 - Let's not get ahead of ourselves.
-- Game, g*n, clock.
+- Game, g\*n, clock.
 - Okay, come on, Alexei.
 - You can do it. You can do it. You can do it.
 - Chuck: What's going on?
@@ -602,16 +602,16 @@ Original Air Date on April 11, 2011
 - How long is this gonna take?
 - See, you were right.
 - I'm Alexei Volkoff.
-- (g*n cocking, man speaks Russian)
+- (g\*n cocking, man speaks Russian)
 - And always will be.
 - (man speaks Russian)
 - W-Wait, wait, wait, wait. What is happening?
 - Oh, this is what we call the twist.
 - I have a company to run and I need leverage to run it.
-- The Norseman's the most dangerous w*apon in the world.
-- I just needed my father's DNA to get the k*ll agent.
+- The Norseman's the most dangerous w\*apon in the world.
+- I just needed my father's DNA to get the k\*ll agent.
 - What? So this is a setup?
-- You were sh*t.
+- You were sh\*t.
 - You two never communicated.
 - Yes, we did.
 - (laughs): The minute... the minute you showed me the Norseman component, I knew it was a message from my daughter.
@@ -646,7 +646,7 @@ Original Air Date on April 11, 2011
 - Vivian...
 - Vivian!
 - Please!
-- Come on, let's get to the b*mb and see what we can do.
+- Come on, let's get to the b\*mb and see what we can do.
 - Maybe if I can flash on the laser grid, I can get through them.
 - You gonna carry us on your back?
 - Is there any other escape from this room?
@@ -770,5 +770,5 @@ Original Air Date on April 11, 2011
 - We build the device as quickly as possible.
 - There was only one man my father was ever afraid of, one threat to Volkoff Industries.
 - He went by the name Agent X.
-- I'm gonna track him down and k*ll him.
+- I'm gonna track him down and k\*ll him.
 - Then no one can touch me, ever.

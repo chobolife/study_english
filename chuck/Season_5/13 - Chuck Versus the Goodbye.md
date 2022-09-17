@@ -21,14 +21,14 @@
 - You're upset... I can tell.
 - You stole my memories and you ruined my life.
 - (alarm beeping)
-- (g*n cock)
+- (g\*n cock)
 - Sarah...
 - I'm still alive.
 - (laughs)
 - Come on.
-- Go for the g*n.
+- Go for the g\*n.
 - You're so close.
-- Go for the g*n.
+- Go for the g\*n.
 - (air whooshing, alarm beeping)
 - (thud)
 - (alarm beeping)
@@ -93,7 +93,7 @@ Original Air Date on January 27, 2012
 - Carmichael Industries dropped the ball on this already.
 - Five years in Burbank could turn a man into butter.
 - But for this job, I need you ruthless.
-- Anything less and you'll get k*ll.
+- Anything less and you'll get k\*ll.
 - I need Old Casey, my best agent.
 - I need the Colonel.
 - (quiet grunt)
@@ -208,7 +208,7 @@ Original Air Date on January 27, 2012
 - Uh...
 - Sarah-- hey-- quick, quick, uh, quick question before you go.
 - Uh, what's your plan once you find Quinn?
-- I k*ll him.
+- I k\*ll him.
 - And then I...
 - I disappear forever.
 - Really? Really? Wow.
@@ -219,7 +219,7 @@ Original Air Date on January 27, 2012
 - It's all I know how to do.
 - I understand that.
 - I-I-I get that, but... I can help.
-- If you go to Berlin alone, you're just going to get yourself k*ll, but me and my team, we-we can...
+- If you go to Berlin alone, you're just going to get yourself k\*ll, but me and my team, we-we can...
 - Yes, I'm small, but I'm worth three spies on a mission and I'm a very good listener.
 - With us, you stand a chance.
 - Look, you don't have the Intersect anymore, and you haven't been trained.
@@ -234,7 +234,7 @@ Original Air Date on January 27, 2012
 - Let's go.
 - What if I have to use this thing?
 - Morgan: Don't do that.
-- Sarah fell in love with you-- in part-- for not sh**ting people.
+- Sarah fell in love with you-- in part-- for not sh\*\*ting people.
 - Please remember that.
 - Sarah: Okay, Renny just arrived.
 - We need to follow him until he makes contact with Quinn, then we take them both out.
@@ -243,7 +243,7 @@ Original Air Date on January 27, 2012
 - Was that okay?
 - Yeah. Do me a favor.
 - Don't worry about anything. Be yourself, okay?
-- Under no circumstances do you sh**t anybody, no matter how dangerous it gets.
+- Under no circumstances do you sh\*\*t anybody, no matter how dangerous it gets.
 - (playing mariachi music)
 - El Compadre. What?
 - This place looks just like El Compadre.
@@ -342,7 +342,7 @@ Original Air Date on January 27, 2012
 - Come on, you can remember.
 - Please. Please try.
 - Quinn: Touching.
-- (g*n cocking)
+- (g\*n cocking)
 - Quinn: Excuse me.
 - Mr. Deutch, did you bring The Key?
 - I did.
@@ -359,7 +359,7 @@ Original Air Date on January 27, 2012
 - This one was in a spy van across the street.
 - Spy van?
 - Really? It's that obvious?
-- Drop your g*n.
+- Drop your g\*n.
 - (panting)
 - It's Morgan.
 - Oh, Sarah, you really don't remember, do you?
@@ -374,13 +374,13 @@ Original Air Date on January 27, 2012
 - Stop!
 - Stop, Quinn!
 - Stop!
-- Don't! I will sh**t you!
+- Don't! I will sh\*\*t you!
 - Chuck!
-- sh**t him!
-- I don't have a clean sh*t.
-- Sarah: Chuck, sh**t him!
+- sh\*\*t him!
+- I don't have a clean sh\*t.
+- Sarah: Chuck, sh\*\*t him!
 - Stop!
-- (g*n, panting)
+- (g\*n, panting)
 - (helicopter whirring erratically)
 - (alarm beeping)
 - Hey, we're hit.
@@ -391,8 +391,8 @@ Original Air Date on January 27, 2012
 - (panting)
 - Hey.
 - Is that my Desert Eagle?
-- You sh*t down my helicopter with my own damn g*n!
-- It was more of a warning sh*t than anything else.
+- You sh\*t down my helicopter with my own damn g\*n!
+- It was more of a warning sh\*t than anything else.
 - Sorry, Casey.
 - (emergency siren wailing)
 - Dude, uncuff me!
@@ -407,7 +407,7 @@ Original Air Date on January 27, 2012
 - What do you want me to say?
 - Your mistake cost us this mission.
 - You let Quinn get one step closer to assembling The Key.
-- Fine, I'll take the hit, but in my defense, k*ll was never thing.
+- Fine, I'll take the hit, but in my defense, k\*ll was never thing.
 - You're a spy, aren't you?
 - It was actually one of the things you liked about me-- the fact that I wouldn't pull the trigger.
 - Tell me why you're not returning Alex's phone calls, okay?
@@ -458,12 +458,12 @@ Original Air Date on January 27, 2012
 - What?
 - She's a spy.
 - So?
-- And she's standing right behind you with a g*n.
-- (g*n cocks)
+- And she's standing right behind you with a g\*n.
+- (g\*n cocks)
 - Sarah.
 - Relax.
 - Chuck, I asked Mom to come...
-- Mom, why is there a g*n out?
+- Mom, why is there a g\*n out?
 - (sighs) Sorry, dear, old habits.
 - It's good to see you again, Sarah.
 - My name is Mary.
@@ -479,7 +479,7 @@ Original Air Date on January 27, 2012
 - Roark, Hartley, and Stephen split the pieces so that no one could alter the Intersect without their agreement.
 - Your father gave his piece to someone in the government.
 - If Quinn puts all three pieces together, he could fix the bug that blitzed Sarah and Morgan's memories and then upload it into himself.
-- He could also add new k*ll, new information.
+- He could also add new k\*ll, new information.
 - Chuck, we need to talk.
 - What Mom is talking about down there is an Intersect that can create a new identity or restore an old one.
 - Oh, my God, you're right.
@@ -508,7 +508,7 @@ Original Air Date on January 27, 2012
 - Let's go.
 - ♪
 - Please sit still, General.
-- The b*mb is pressure sensitive.
+- The b\*mb is pressure sensitive.
 - And if you don't mind, Diane... the badge of the person in charge of the Intersect Project.
 - The designers gave it to you.
 - What an honor.
@@ -520,7 +520,7 @@ Original Air Date on January 27, 2012
 - It's over.
 - I win.
 - General, what have we got here?
-- There is a b*mb under my chair.
+- There is a b\*mb under my chair.
 - I can't stand up.
 - Morgan, get the Chinese delegation out of here.
 - Yeah, yeah.
@@ -535,7 +535,7 @@ Original Air Date on January 27, 2012
 - We're saving you.
 - I've got something.
 - Ooh.
-- Well, if that's the b*mb, these are the brains, and it's locked.
+- Well, if that's the b\*mb, these are the brains, and it's locked.
 - Any ideas?
 - No, not yet.
 - Mary: Chuck, I just picked up Quinn on the internal security feed.
@@ -546,7 +546,7 @@ Original Air Date on January 27, 2012
 - No, let her go.
 - We don't have time.
 - Well, get me more time, Casey, okay?
-- I need Quinn to stop this b*mb and I need those glasses for Sarah.
+- I need Quinn to stop this b\*mb and I need those glasses for Sarah.
 - Go, go.
 - I'm ready for extraction.
 - Pilot: We're on our way, sir. Three minutes.
@@ -556,18 +556,18 @@ Original Air Date on January 27, 2012
 - What are we going to do?
 - Jeff: Casey, Morgan.
 - Okay, we're here.
-- Who do we sh**t first?
+- Who do we sh\*\*t first?
 - What are they doing here?
 - Okay, hold on a second, hold on a second, Casey.
 - I got a plan.
 - You're not going to like it, but I got a plan.
-- (g*n cocks)
+- (g\*n cocks)
 - Quinn!
 - Chuck: Sarah!
 - W-W-W-Wait, wait.
-- Don't k*ll him.
-- We need him to disarm the b*mb.
-- The b*mb?
+- Don't k\*ll him.
+- We need him to disarm the b\*mb.
+- The b\*mb?
 - (laughs)
 - It can't be stopped.
 - And it's wired to explode when the music ends.
@@ -598,7 +598,7 @@ Original Air Date on January 27, 2012
 - Ellie and I were going to use these glasses to help save your memories.
 - Will it work?
 - Yeah.
-- I don't know how to disarm the b*mb without the Intersect.
+- I don't know how to disarm the b\*mb without the Intersect.
 - There's only one upload left.
 - Sarah, I'm sorry.
 - I can't help you get your memories back.
@@ -619,12 +619,12 @@ Original Air Date on January 27, 2012
 - Okay, what about Irene Demova?
 - Sarah, that's brilliant.
 - That's brilliant.
-- The, the virus could circumvent the system and disarm the b*mb.
+- The, the virus could circumvent the system and disarm the b\*mb.
 - That was five years ago; you remembered.
-- Chuck, Chuck, find the p*rn virus, find it now.
+- Chuck, Chuck, find the p\*rn virus, find it now.
 - Right, right, right, okay, okay.
 - ♪ I'll be gone...
-- Five-year-old p*rn virus, mere seconds until certain death.
+- Five-year-old p\*rn virus, mere seconds until certain death.
 - Can I do it?
 - Woman: Am I sexy?
 - Yeah.
@@ -672,7 +672,7 @@ Original Air Date on January 27, 2012
 - It's nutty, really.
 - That if we...
 - You have to go; I understand.
-- So the moment the music stopped, the b*mb would blow up.
+- So the moment the music stopped, the b\*mb would blow up.
 - So, Chuck calls us.
 - So we could save the day.
 - So Jeffster! could rock again!
@@ -713,7 +713,7 @@ Original Air Date on January 27, 2012
 - Hello? Spy.
 - And you're...
 - Happy that we're finally taking this nice, giant step and... ?
-- Or you're going to sh**t me?
+- Or you're going to sh\*\*t me?
 - Heads up.
 - The place all is yours.
 - We're all going to live together?

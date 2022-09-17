@@ -66,7 +66,7 @@
 - Don't tell me you're going to miss all of this.
 - No.
 - No, of course not.
-- I don't think I'm really cut out for a job where you disarm a b*mb, steal a diamond, and then jump off a building.
+- I don't think I'm really cut out for a job where you disarm a b\*mb, steal a diamond, and then jump off a building.
 - Well, you could have fooled me.
 - That's very kind of you to say, but I'm pretty sure my girlish screams in the face of danger give me away.
 - So, what happens now?
@@ -77,7 +77,7 @@
 - Of course.
 - You can do anything.
 - I've seen you in action.
-- And I'm not just talking about the b*mb defusing, or the diamond stealing.
+- And I'm not just talking about the b\*mb defusing, or the diamond stealing.
 - I mean, anything you wanted, you could have.
 - I thought you might call.
 - Major Casey, you understand the situation?
@@ -131,7 +131,7 @@
 - Chuck, come here.
 - Hey.
 - What's up, buddy?
-- Large Mart g*ons; they could be anywhere.
+- Large Mart g\*ons; they could be anywhere.
 - I don't want them to see this.
 - What is this?
 - Compound level from Call of Duty.
@@ -139,9 +139,9 @@
 - Planning how we could take 'em all out.
 - All right, listen up.
 - Here are the specs, are you ready?
-- 23 infantry troopers, 16 sn*pers, seven heavy g*n, four demolitions experts, and enough amm*nit*on to orbit Arnold Schwarzenegger.
+- 23 infantry troopers, 16 sn\*pers, seven heavy g\*n, four demolitions experts, and enough amm\*nit\*on to orbit Arnold Schwarzenegger.
 - 50 gamers, one call, all ready for battle.
-- With this team assembled, and my plan, I think we can b*at 'em.
+- With this team assembled, and my plan, I think we can b\*at 'em.
 - Morgan, you are my new hero.
 - I know.
 - Be right with you.
@@ -225,14 +225,14 @@
 - Chuck...
 - I'm still a CIA agent, and there are a hundred reasons why I shouldn't do that.
 - What do you have to lose?
-- In a week, you're going to be undercover in some place like Jakarta in a kn*fe fight with some evil-doer, and in that exact moment, you're going to wish that you would've spent one last... night of fun with me.
+- In a week, you're going to be undercover in some place like Jakarta in a kn\*fe fight with some evil-doer, and in that exact moment, you're going to wish that you would've spent one last... night of fun with me.
 - Okay.
 - Really?
 - Mm-hmm.
 - Tonight.
 - Our first real date.
 - Or our second first date.
-- No g*n, I promise.
+- No g\*n, I promise.
 - Okay.
 - Okay.
 - Hey.
@@ -240,7 +240,7 @@
 - Yeah, yeah- we're going to go grab some Chinese food and then maybe hit The Echo after that.
 - Did you hear that, Devon?
 - Do you recognize the sound of a proper date when you hear it?
-- My t*nk's empty, babe.
+- My t\*nk's empty, babe.
 - That's my future husband.
 - What about you?
 - Any revelations? Any ideas about what you're going to do next?
@@ -274,7 +274,7 @@
 - Baby steps.
 - Yeah?
 - Messenger.
-- NO w*apon Pickup call placed by one G. Beckman.
+- NO w\*apon Pickup call placed by one G. Beckman.
 - Verification code?
 - Morning glory.
 - Hmm.
@@ -314,7 +314,7 @@
 - I'm fantastic.
 - Yeah. You are.
 - What would Casey think if he knew we were doing this right now?
-- It would probably k*ll him.
+- It would probably k\*ll him.
 - Sorry, sir.
 - So does it say where you're, uh, going next? Your new mission?
 - Actually, it does.
@@ -328,13 +328,13 @@
 - What are you saying, Chuck?
 - What I've always wanted to say, Sarah.
 - No-no-no-no-no-no-no-no, not now. Not now.
-- OFFENSES g*n TRAFFICKING, DRUG OFFENSE Oh, oh, oh...
+- OFFENSES g\*n TRAFFICKING, DRUG OFFENSE Oh, oh, oh...
 - Chuck, what is it?
 - We're surrounded.
-- Sarah, you have your g*n, right?
+- Sarah, you have your g\*n, right?
 - Nope.
 - What? Why not?
-- You don't bring a g*n on a real date.
+- You don't bring a g\*n on a real date.
 - Hello again, Chuck.
 - And you are?
 - My name is Mr. Colt.
@@ -556,9 +556,9 @@
 - I don't think you gentlemen realize the gravity of the predicament that you're in.
 - See, that phone call you made to the Buy More?
 - Yeah, we traced that.
-- Your compound is currently surrounded by 23 infantry troopers, 16 sn*pers, seven heavy g*n, four demolitions experts, and enough amm*nit*on to orbit Arnold Schwarzenegger.
-- You're outmatched and you're g*n.
-- Those sh**t you're holding might as well be sharp sticks and strong language.
+- Your compound is currently surrounded by 23 infantry troopers, 16 sn\*pers, seven heavy g\*n, four demolitions experts, and enough amm\*nit\*on to orbit Arnold Schwarzenegger.
+- You're outmatched and you're g\*n.
+- Those sh\*\*t you're holding might as well be sharp sticks and strong language.
 - Nothing there, boss.
 - Looks clear.
 - Good try, Chuck.
@@ -575,9 +575,9 @@
 - Morgan, I'd like you to tell me the exact specs for the team surrounding the compound.
 - The whole shebang?
 - The whole shebang.
-- Yes, sir, we have 23 infantry troopers, 16 sn*pers, seven heavy g*n, and four demolitions experts.
+- Yes, sir, we have 23 infantry troopers, 16 sn\*pers, seven heavy g\*n, and four demolitions experts.
 - I should tell you I got a little impatient and we took out one of the sentries.
-- Don't worry, it was a head sh*t.
+- Don't worry, it was a head sh\*t.
 - He couldn't warn his buddies.
 - It was awesome, man, you should have seen it.
 - His head exploded like a watermelon.
@@ -599,7 +599,7 @@
 - What'll you do if I give it to you?
 - To be honest, I'm gonna drop you.
 - See, thi-this is what I'm talking about.
-- We got to work on your negotiating k*ll.
+- We got to work on your negotiating k\*ll.
 - How about this?
 - How about you pull me back up and we just discuss this like two rational adults?
 - You know what?
@@ -618,7 +618,7 @@
 - Freeze.
 - Okay, enough with the foreplay.
 - Step away from the blonde.
-- Ah, you know you got to put that g*n down.
+- Ah, you know you got to put that g\*n down.
 - 'CAUSE YOU'RE SURROUNDED. (Ain't nobody else here. )
 - Meet the rest of my men.
 - Excuse me.
@@ -630,8 +630,8 @@
 - Chuck.
 - Carmichael.
 - Agent Carmichael.
-- Maybe you could go ahead and put your w*apon down.
-- I said put your w*apon down!
+- Maybe you could go ahead and put your w\*apon down.
+- I said put your w\*apon down!
 - Oh, there you go, there you- and then, and then the hands up to imply that your hands are empty.
 - Your boss, Carmichael.
 - What?
@@ -664,7 +664,7 @@
 - You sure you can handle it?
 - Yeah, yeah, I think I can do this, thank you.
 - Plus, I've wanted to cook dinner for Sarah for a while, so...
-- You have many k*ll, Chuck, but the kitchen is not one of them.
+- You have many k\*ll, Chuck, but the kitchen is not one of them.
 - Oh, but that's why they call it Hamburger Helper.
 - Hello, does most of the heavy lifting for me.
 - I'm making that, uh, that chicken with balsamic glaze, the one thing Dad taught me how to make.

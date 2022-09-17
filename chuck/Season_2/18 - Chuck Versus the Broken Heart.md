@@ -76,7 +76,7 @@
 - For the Chuck team I'm sure you've all had a chance to welcome Agent Alex Forrest.
 - Of course, General.
 - Then onto the matter at hand.
-- We're all familiar with the elusive leader of a t*rror1st group who has been hiding in the Afghani caves for years: Hassan Khalid.
+- We're all familiar with the elusive leader of a t\*rror1st group who has been hiding in the Afghani caves for years: Hassan Khalid.
 - I dream of finding him.
 - A member of Khalid's inner circle is this man: Rashad Ahmad.
 - Ahmad is privy to all of Khalid's nefarious plans.
@@ -85,7 +85,7 @@
 - You believe this man to be Ahmad?
 - That is the mission.
 - Intelligence has only been able to obtain grainy satellite images of Ahmad.
-- Mr. Bartowski, using his unique k*ll set, must infiltrate the hospital to confirm Ahmad's identity.
+- Mr. Bartowski, using his unique k\*ll set, must infiltrate the hospital to confirm Ahmad's identity.
 - Questions? Sounds straightforward, General.
 - Yeah, I have a question.
 - Yeah, I have a question. Just a teeny little one.
@@ -153,7 +153,7 @@
 - Don't underestimate the gamesmanship of the U. S. Government.
 - Yeah, I'll place this GLG-4000 inside Ahmad's pacemaker before it's implanted.
 - When he returns to Hassan Khalid's secret cave, he'll be a high-tech human bug.
-- Then not only will we know the t*rrorists' secret location, but we'll be one step ahead of their plans.
+- Then not only will we know the t\*rrorists' secret location, but we'll be one step ahead of their plans.
 - Checkmate. Checkmate.
 - Get the door.
 - Are you guys crazy?
@@ -400,7 +400,7 @@
 - We disclosed everything that was pertinent to you.
 - That's the way the National Security Agency operates.
 - Get used to it.
-- I'm gonna go clean my w*apon.
+- I'm gonna go clean my w\*apon.
 - When it comes to security, one can never be too cautious.
 - Who is Rashad's doctor? !
 - One of the surgeons put a bug inside him.
@@ -510,8 +510,8 @@
 - or I'll cut you open.
 - Oh, my God, oh, my God, I'm bleeding!
 - Oh, my God, I'm bleeding. Come on.
-- I'm sorry, I just get a little woozy at the sight of bl*od.
-- A surgeon who is afraid of bl*od?
+- I'm sorry, I just get a little woozy at the sight of bl\*od.
+- A surgeon who is afraid of bl\*od?
 - I know-- a little ironic, right?
 - Get the door, get the door!
 - Get the door!
@@ -527,7 +527,7 @@
 - I've got nitroglycerin and a blasting cap in the van.
 - I'll have this door off in no time.
 - Hold on, I think I saw a nitrous setup in there.
-- You're gonna blast the door open, are you're gonna k*ll Chuck in the process.
+- You're gonna blast the door open, are you're gonna k\*ll Chuck in the process.
 - Come on, come on!
 - What makes you think he's not already dead?
 - Come here!
@@ -564,7 +564,7 @@
 - Good for him.
 - He's a bad dude, huh?
 - Hey, Chuck, turn off the gas, idiot.
-- You inhale too much of that stuff, it'll k*ll you.
+- You inhale too much of that stuff, it'll k\*ll you.
 - We're going to die.
 - You're gonna die!
 - Open this door right now.
@@ -577,7 +577,7 @@
 - Is it really you, or am I super stoned?
 - Uh, both.
 - Both Rashad Ahmad and Dr. Zamir are in custody.
-- Though the mission didn't go according to plan, Chuck was able to ascertain the hidden location of t*rror1st, Hassan Khalid.
+- Though the mission didn't go according to plan, Chuck was able to ascertain the hidden location of t\*rror1st, Hassan Khalid.
 - Thank you, Agent Forrest.
 - Just doing my job, General.
 - Agent Walker, despite your heroism, you have directly disobeyed several orders.
@@ -614,7 +614,7 @@
 - Ever since you guys rolled into town, my life has been... has been spinning out of control.
 - My whole world is about juggling lies.
 - It's like... it's like this.
-- I bet this is a... what, a submachine g*n?
+- I bet this is a... what, a submachine g\*n?
 - No, it dries my hair.
 - Okay, fine, but everything else is completely screwed up.
 - I just want to be able to tell Ellie the truth about who I am and what I do.

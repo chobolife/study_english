@@ -12,7 +12,7 @@
 - You're gonna break me out of here alone?
 - Prisoner transfer, section 38.
 - Man: Copy that.
-- Give me one reason not to k*ll you.
+- Give me one reason not to k\*ll you.
 - It will only further prove your guilt.
 - Chuck: Let's go right now.
 - Hey, Decker, aren't you forgetting something?
@@ -62,7 +62,7 @@
 - If the people trying to frame Chuck are coming from inside the CIA, we need to find Beckman.
 - Or... she can find you.
 - This is an official communique I requested to tell you myself.
-- For the m*rder of Agent Decker as well as the crime of treason against the United States, the CIA is placing all of you under arrest.
+- For the m\*rder of Agent Decker as well as the crime of treason against the United States, the CIA is placing all of you under arrest.
 - What? General, how can you do this?
 - I'd ask your team the same.
 - If you know what's good for you, you'll stay put.
@@ -130,7 +130,7 @@
 - Are you all right?
 - (knocking)
 - I got this.
-- (g*n cock)
+- (g\*n cock)
 - Okay.
 - Please, whoa. Yeah, sure. I mean, could you at least wipe your feet before you... ?
 - Robyn Cunnings. Special Agent, CIA.
@@ -270,7 +270,7 @@ Original Air Date on December 16, 2011
 - Anyways, this is where we kept our most sacred possessions.
 - In case of a fire, this is what we save.
 - And you both have these?
-- Well, you know, Chuck's generally neurotic, and I was just terrified of my house burning down, since, you know, my house b*rned down.
+- Well, you know, Chuck's generally neurotic, and I was just terrified of my house burning down, since, you know, my house b\*rned down.
 - Here we go.
 - The 2000 Sangiovese.
 - A little surprise for the wife.
@@ -310,7 +310,7 @@ Original Air Date on December 16, 2011
 - Exactly what we needed.
 - Yes.
 - ♪
-- (footsteps) (g*n cocking)
+- (footsteps) (g\*n cocking)
 - It took you long enough to find me.
 - So this is where we come in our darkest hours.
 - Iran-Contra, Nicaragua.
@@ -337,7 +337,7 @@ Original Air Date on December 16, 2011
 - There must be some mistake. We just have to talk to him.
 - No, no, no, no, don't do that.
 - What? Why?
-- Because Project Eagle, the limo, what if... what if we open that thing and he sh**t us?
+- Because Project Eagle, the limo, what if... what if we open that thing and he sh\*\*t us?
 - I've seen it in movies.
 - Babe, what if we're on a real spy mission?
 - Martini! Martini!
@@ -347,7 +347,7 @@ Original Air Date on December 16, 2011
 - This is the gear that I need to get Chuck's pants without being seen by those very large, very scary agents who are waiting outside for us.
 - And how exactly are you planning on doing that?
 - That's the easy part.
-- See, I hop out the side window and I climb up onto the roof and I sh**t a cord over to Chuck and Sarah's place.
+- See, I hop out the side window and I climb up onto the roof and I sh\*\*t a cord over to Chuck and Sarah's place.
 - I zip line across, I sneak into the back patio, grab Chuck's pants. In and out.
 - Never even being seen. Easy.
 - At least it was when I had a computer in my brain.
@@ -421,7 +421,7 @@ Original Air Date on December 16, 2011
 - Looks like you lost your passengers.
 - Robyn, what are you doing here?
 - Oh, Simms.
-- (silenced g*n)
+- (silenced g\*n)
 - I think we lost him.
 - Yeah, for now.
 - Oh, God!
@@ -445,7 +445,7 @@ Original Air Date on December 16, 2011
 - (garbled radio transmissions)
 - The coded message we found was from Decker's men.
 - They were following Ellie and Awesome the whole time, mistaking them for us.
-- Beckman: And they sh*t Simms to cover their tracks.
+- Beckman: And they sh\*t Simms to cover their tracks.
 - We have to find whoever is in charge and put a stop to this.
 - If they think Ellie and Awesome know anything about the Omen, they'll torture them for sure.
 - What are we doing just sitting here then?
@@ -487,11 +487,11 @@ Original Air Date on December 16, 2011
 - But if things get complicated, I can't guarantee their safety.
 - Let me tell you how this is gonna work.
 - What'd they say?
-- We have three hours to deliver the Omen... or they k*ll Ellie and Awesome.
+- We have three hours to deliver the Omen... or they k\*ll Ellie and Awesome.
 - Mm, they're bluffing.
 - We need to start making a fake to deliver right away.
 - No. A fake? What if they figure out it's a fake?
-- I know you're scared, Chuck, but we just can't hand over a w*apon.
+- I know you're scared, Chuck, but we just can't hand over a w\*apon.
 - Casey: It's bigger than us, Bartowski.
 - It's national security.
 - Look, I promise that we will take every precaution.
@@ -543,7 +543,7 @@ Original Air Date on December 16, 2011
 - Anyway, I'll go get the ice.
 - Okay.
 - What the hell are you doing? !
-- They're gonna k*ll us.
+- They're gonna k\*ll us.
 - What are you talking about?
 - He just brought us wine.
 - No, no. Okay, I've been in this situation before.
@@ -578,7 +578,7 @@ Original Air Date on December 16, 2011
 - Upstairs clear.
 - No sign of the Woodcombs.
 - Man: Copy that.
-- Orders are sh**t to k*ll on sight.
+- Orders are sh\*\*t to k\*ll on sight.
 - This is really hard-core.
 - I told you.
 - I'm not giving you anything until I know my sister and her husband are safe.
@@ -640,7 +640,7 @@ Original Air Date on December 16, 2011
 - Let me tell you the short one.
 - This is going to be very, very painful.
 - Here we go.
-- (g*n cocking)
+- (g\*n cocking)
 - Sorry, Chuck.
 - There's usually a backup generator.
 - Oh.
@@ -663,7 +663,7 @@ Original Air Date on December 16, 2011
 - You're joking.
 - You're not joking.
 - (clang)
-- (silenced g*n)
+- (silenced g\*n)
 - (gasping)
 - Oh, my God! Thank you!
 - It's going to be okay.
@@ -689,10 +689,10 @@ Original Air Date on December 16, 2011
 - (clanging)
 - Are you kidding me?
 - Again?
-- (rapid g*n)
+- (rapid g\*n)
 - Casey: All clear.
 - Sarah: All clear.
-- Put down the g*n.
+- Put down the g\*n.
 - Now.
 - Walker. Casey.
 - I give up.
@@ -754,7 +754,7 @@ Original Air Date on December 16, 2011
 - If you ever go out alone again, just remember, I'm a trained assassin.
 - Noted.
 - Good.
-- You wouldn't sh**t me, would you?
+- You wouldn't sh\*\*t me, would you?
 - Morgan: Yeah?
 - Great news, man.
 - The agents are dispersing.
@@ -766,7 +766,7 @@ Original Air Date on December 16, 2011
 - We don't even need Chuck's PANTS box.
 - That's great.
 - But you just got it.
-- Yeah. It's all right. I'll sh**t over to the apartment, and I'll put it back.
+- Yeah. It's all right. I'll sh\*\*t over to the apartment, and I'll put it back.
 - It's not a problem. Just got to ask-- what's in Chuck's PANTS?
 - No, no, no, no.
 - Not allowed.

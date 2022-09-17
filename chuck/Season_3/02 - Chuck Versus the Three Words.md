@@ -15,14 +15,14 @@
 - You're a spy now, Chuck.
 - You have to keep your feelings to yourself.
 - (panting)
-- (g*n)
+- (g\*n)
 - (phone ringing) (groaning)
 - Yeah, can I call you back?
 - I'm just in the middle of something at work.
 - Yeah, me, too.
 - (whispers): I love you, too, smooshy.
 - (man groaning)
-- (g*n)
+- (g\*n)
 - ♪ ♪
 - God, it feels like I haven't been off duty in years.
 - How long you in town for anyway?
@@ -144,14 +144,14 @@
 - Ham.
 - With Emmett gone, Buy More has given me a second chance to manage here.
 - I do not take that responsibility lightly.
-- I've learned much from my business class at El g*n School of Finance.
+- I've learned much from my business class at El g\*n School of Finance.
 - I intend to apply that knowledge here.
 - Did you know that the Japanese have no word for "no"?
 - 730 ways to say "yes, " but no worfor "no. "
 - When we are selling, we no longer understand the meaning of the word "no. "
 - No, Morgan.
 - I do not have any more intel on the guy Carina left the club with.
-- Okay, but I still have a sh*t here, right?
+- Okay, but I still have a sh\*t here, right?
 - I mean, she can't have real feelings for this guy?
 - That's a pretty safe assumption.
 - Who is this, uh, alleged female you reference?
@@ -173,7 +173,7 @@
 - Wow, she seems really into you.
 - Agent Miller has been working undercover for the CIA, playing the girlfriend of suspected arms smuggler, Karl Stromberg.
 - We've learned ten million dollars was recently wired into Stromberg's account.
-- We don't know what this w*apon is, but someone's willing to pay a lot of money for it.
+- We don't know what this w\*apon is, but someone's willing to pay a lot of money for it.
 - Well, we gotta get it before it falls into enemy hands.
 - Thanks for being on the case, Nancy Drew.
 - My engagement party is today at Karl's house.
@@ -186,7 +186,7 @@
 - Yeah, Casey, uh, I think you have dungarees that are older than Carina.
 - Colonel, you will assume the identity of Agent Miller's uncle.
 - Carina's father's much younger brother.
-- Karl's storing the w*apon in a gold case inside a vault room adjacent to his bedroom.
+- Karl's storing the w\*apon in a gold case inside a vault room adjacent to his bedroom.
 - During Karl's toast, Sarah and Chuck will slip out, break in and apprehend it.
 - He keeps the access key to the secured area in his pants, which I can easily access.
 - Oh, I'll bet you can.
@@ -250,7 +250,7 @@
 - (chuckles)
 - If we were really getting ready for my engagement party?
 - Yeah.
-- No. (cocks g*n)
+- No. (cocks g\*n)
 - Yeah. We're, uh, we'rlking a little.
 - Oh, good for you.
 - That's good. I'm glad to hear it. Is Cara going to be there?
@@ -360,7 +360,7 @@
 - I'm not flashing, Sarah.
 - Maybe if we could just talk for a second... Okay, Chuck.
 - I am right here, and we can talk about whatever you want to talk about later.
-- We just have to get our hands on that w*apon first.
+- We just have to get our hands on that w\*apon first.
 - We'll talk, I promise.
 - ♪ ♪
 ♪ ♪
@@ -406,11 +406,11 @@
 - All: Hear, hear.
 - Sarah...
 - I love you.
-- BECKMAN (over monitor): Good job recovering the w*apon.
+- BECKMAN (over monitor): Good job recovering the w\*apon.
 - How is the asset doing?
 - He'll live.
 - What is this thing, General?
-- I've never seen a w*apon like it before.
+- I've never seen a w\*apon like it before.
 - That informati is above ur pay grade, Colonel Casey.
 - Agent Miller wilturn it to Langley on her way out to her next assignment.
 - You never saw it.
@@ -446,10 +446,10 @@
 - But if we could just talk rick.
 - You need to learn to ignore your emotions.
 - Spies do not have feelings.
-- Feelings get you k*ll.
+- Feelings get you k\*ll.
 - You need to learn to bury them in a place deep inside.
 - Sarah, stop.
-- Come on, flash! Show me your attack k*ll!
+- Come on, flash! Show me your attack k\*ll!
 - Come on, Chuck, flash! Show me!
 - No. Why not? !
 - Because I don't want to hurt you.
@@ -494,8 +494,8 @@
 - It'se, Smoosh.
 - I love you!
 - I'm not like Carina, some coldhearted spy who throws around words like "love. "
-- I'm gonna k*ll you, Chuck Bartowski.
-- No, Carina, I'm gonna k*ll Chuck.
+- I'm gonna k\*ll you, Chuck Bartowski.
+- No, Carina, I'm gonna k\*ll Chuck.
 - But don't worry, Smooshy, you're next.
 - Good news, buddy.
 - Your girl is here. She is?
@@ -530,7 +530,7 @@
 - I need your advice about Carina.
 - What about Carina?
 - She's here.
-- I took Big Mike's advice from the El g*n School of Finance and asked her to come to the party.
+- I took Big Mike's advice from the El g\*n School of Finance and asked her to come to the party.
 - She said yes.
 - So you're telling me that Carina is at our apartment right now?
 - Yes, but that's not the problem.
@@ -572,14 +572,14 @@
 - Mom used to...
 - Guy's got no tolerance.
 - It's nice to see you think so much of the ring I bought you.
-- You try anything like that again, and I'll k*ll you right here, Smooshy.
+- You try anything like that again, and I'll k\*ll you right here, Smooshy.
 - Whoa! Whoa-whoa-whoa!
 - Hey, stop-stop-stop! What are you thinking?
 - You can't just go out there blasting.
 - All of my friends are out here! Half the mall is out there!
 - Got a better plan, Bartowski?
 - As a matter of fact, I do. Carina is still alive, which means she hasn't given Karl the case yet, which means we have something to negotiate with peacefully.
-- Chuck's right. The question is, where's the w*apon?
+- Chuck's right. The question is, where's the w\*apon?
 - Morgan: Unbelievable. Cuddling with my girl in my house!
 - All right. That's it.
 - Bearded bogey incoming.
@@ -619,13 +619,13 @@
 - Let's go. Don't let the door hit you on the ass on the way...
 - No one's ever said no to me before.
 - Casey: Idiot.
-- Now they have both Carina and the w*apon.
+- Now they have both Carina and the w\*apon.
 - No negotiating now.
 - Okay, wait, wait, wait.
 - There's still got to be something.
 - There's got to be a contingency plan in case enemy agents infiltrate my apartment, right?
 - Like a button that you push that calls the cavalry, so they can swoop in and clear everyone out?
-- Where's the button? Me. (cocks g*n)
+- Where's the button? Me. (cocks g\*n)
 - I'm the button.
 - ♪ ♪
 - Casey: Break it up.
@@ -636,25 +636,25 @@
 - That's it. Go on. Get out of here!
 - You, too.
 - Get out!
-- Here. You're going to need a w*apon.
-- No. No g*n.
-- I hate g*n you know that.
+- Here. You're going to need a w\*apon.
+- No. No g\*n.
+- I hate g\*n you know that.
 - Think of it as a Bo.
 - Sorry to disturb your sleep, sir.
 - No problem.
-- Drop your w*apon!
+- Drop your w\*apon!
 - Put it down.
 - Karl: I should have known by your paint- peeling speech that Uncle Johnny was a narc, too.
-- Drop the g*n, lover boy.
+- Drop the g\*n, lover boy.
 - I'm having the worst day of my life, so I don't give a fat crap.
-- Sarah, drop your g*n.
-- Casey, drop your g*n.
+- Sarah, drop your g\*n.
+- Casey, drop your g\*n.
 - Huh?
 - Trust me.
-- Get their g*n.
+- Get their g\*n.
 - (groans)
 - Let her go, Karl.
-- You sh**t me, I sh**t her.
+- You sh\*\*t me, I sh\*\*t her.
 - Karl: I don't care.
 - Bitch has broken my heart.
 - She dies.
@@ -694,7 +694,7 @@
 - I'm... I'm emotional, and that makes me a liability.
 - Not always.
 - You might not have flashed, but you did your job.
-- You got to Karl, and you talked him down, and if it weren't for your emotions, he would've k*ll Carina.
+- You got to Karl, and you talked him down, and if it weren't for your emotions, he would've k\*ll Carina.
 - It's quite a mess we made.
 - Yeah.
 - I'm really hoping we can clean it up, though.

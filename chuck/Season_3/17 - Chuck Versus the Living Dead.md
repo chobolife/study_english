@@ -82,7 +82,7 @@
 - Sit.
 - Okay.
 - You're going to tell me exactly what's going on and you're going to do it right now.
-- Reviewing pictures of people you k*ll?
+- Reviewing pictures of people you k\*ll?
 - I do that myself from time to time.
 - No.
 - Chuck.
@@ -167,7 +167,7 @@
 - I'm not letting you go to Beckman till we know for sure.
 - I ran a scan on all of Shaw's known aliases.
 - No activity since Paris.
-- I think our best sh*t at finding him is Walker.
+- I think our best sh\*t at finding him is Walker.
 - Why?
 - W... why?
 - She has an... intimate knowledge of the target.
@@ -205,7 +205,7 @@
 ♪ Love scars ♪
 ♪ Love wounds and mars ♪
 ♪ Any heart ♪
-- * Not tough... *
+- \* Not tough... \*
 - Hey.
 - Excuse me.
 - Yes?
@@ -375,7 +375,7 @@
 - Just like the one Evelyn Shaw had.
 - Okay, well, why does Shaw have one?
 - It's essentially a spy's last will and testament.
-- All spies keep a record of the information they might lose if they get k*ll on a mission.
+- All spies keep a record of the information they might lose if they get k\*ll on a mission.
 - In Shaw's case, all the information that the CIA has on the Ring.
 - My bet is they're going to want this back.
 - 100 bucks says he's working for them.
@@ -422,7 +422,7 @@
 - ♪ Lift up your frown ♪
 - Those days are no more.
 - They're no...
-- * My name is Jeff *
+- \* My name is Jeff \*
 - ♪ Uh, Jeff, uh, Jeff... ♪
 - Don't you knock?
 - Shaw is alive, okay.
@@ -449,7 +449,7 @@
 - Oh...
 - Oh, man.
 - So what's the deal?
-- You've done well, John, but you're a man who lacks tact and interpersonal k*ll.
+- You've done well, John, but you're a man who lacks tact and interpersonal k\*ll.
 - Okay, on behalf of the family, I'll speak to the husband, all right?
 - This is not gonna be fun.
 - Devon, yeah, so you think Ellie's happy in your marriage?
@@ -484,10 +484,10 @@
 - You are special.
 - I knew it.
 - You downloaded the Intersect 2. 0.
-- You threw a kn*fe at my face.
+- You threw a kn\*fe at my face.
 - Why would you do that?
 - After I worked so hard to get the first one out.
-- Dad, kn*fe! Face!
+- Dad, kn\*fe! Face!
 - What if you were wrong?
 - I'm never wrong.
 - Charles, there's something that I never told you.
@@ -589,7 +589,7 @@
 - Dad... Dad I came up.
 - I came up here because I wanted to tell you why I downloaded the Intersect, that I'm... that I'm special, and that I can help people.
 - But given the circumstances, I think I'm just gonna have to show you.
-- No g*n! The gas!
+- No g\*n! The gas!
 - That's a good idea.
 - Does she have the Intersect, too?
 - No, Dad.
@@ -628,7 +628,7 @@
 - For a short time in 1988, we were called Earth, Wind, Fire & Rain.
 - I was Rain.
 - ♪ Do you remember ♪
-- * The 21st night of September? *
+- \* The 21st night of September? \*
 - My God.
 - ♪ Love was changing the minds of pretenders ♪
 - I can't wear this anymore, but you have the hips of a six-year-old girl.
@@ -674,7 +674,7 @@
 - Justin, no, I can't, I can't.
 - Someone's in your house, Ellie.
 - He could hurt you, hurt your family.
-- Now take the g*n.
+- Now take the g\*n.
 - Ellie, wait!
 - Justin, Justin, John Casey...
 - Don't worry, you're safe, come with me.
@@ -706,7 +706,7 @@
 - I'll be back soon.
 - "My name is Chuck Bartowski, "
 - "and if you're reading this, it means I'm already dead. "
-- "I don't know what will end up k*ll me... "
+- "I don't know what will end up k\*ll me... "
 - "... but I've chosen to be a spy, "
 - "and there are consequences to that. "
 - "It may be my emotions that end up doing me in... "
