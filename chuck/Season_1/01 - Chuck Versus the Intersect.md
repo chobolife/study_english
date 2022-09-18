@@ -287,7 +287,7 @@
 - Hi, Harry.
 - Uh, look, we'll be back up and running in five minutes.
 - Five minutes?
-- Do you know what five minutes means in buy more dollars?
+- Do you know what five minutes means in Buy More dollars?
 - I didn't realize we had our own currency.
 - Look, I'm sorry about all the commotion.
 - We are not stock boys anymore, Chuck!
@@ -299,6 +299,7 @@
 - He knows you won't leave the comfort of the Herd.
 - Chuck, dude, she left you her card.
 - Yes.
+***
 - Why wouldn't you call this girl?
 - Oh, I don't know. Did you see her?
 - Yes. Oh, man, yes.
@@ -314,16 +315,18 @@
 - So beautiful and so... deadly.
 - Yeah.
 ***
-- You know, you got to understand. This is what I've been telling people for I don't know how long... please, not the computer.
+- You know, you got to understand. This is what I've been telling people for I don't know how long...
+- Please, not the computer.
 - Hai!
 - Come on, Chuck!
 - Do something!
 - Give me the... that's my friend!
 - Okay, look, he's not that good of a friend.
 - Didn't you hang that shelf?
-- Damn it.
-- Nah, I've been through it.
 ***
+- Damn it.
+***
+- Nah, I've been through it.
 - It's dead. It's totally fried.
 - This hard drive was... m\*rder.
 - What if you were the unwitting target of a ninja vendetta, and he returns tonight to strangle you with his nunchakus?
@@ -524,7 +527,7 @@
 - Listen to me, Chuck. Those men will hurt you.
 - They're from the NSA and they're after you.
 - Me? Why, why? Why me?
-- I'm nobody. I'm the supervisor of a nerd herd at a buy more.
+- I'm nobody. I'm the supervisor of a nerd herd at a Buy More.
 - Maybe one day I'll be assistant store manager and I don't even know if I want that job.
 - You know, that's not your problem... but that is.
 - Back! Back! get out of the car. Let's go, Chuck. Move!
