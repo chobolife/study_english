@@ -108,6 +108,7 @@
 - Seems like everybody had a really good time, huh?
 - I know I did.
 - Super.
+***
 - Cheer up, Chuck, you talked to some women.
 - You know, it's a start.
 - Wow blast from the past wow.
@@ -150,7 +151,7 @@
 - We got a sigalert on the I-605, San Gabriel River Freeway, Ut South Bound.
 - A fender bender on the I-5, Santa Ana freeway, north bound, from 91 freeway to the I-...
 ***
-- So this morning I'm playing xbox.
+- So this morning I'm playing Xbox.
 - And I'm like, dude, just let me get the sn\*per r\*fle, I'll take care of it, the guy won't give me the sn\*per r\*fle.
 - I made him eat a frag grenade.
 - Morgan, Morgan, Morgan, Morgan.
@@ -186,15 +187,18 @@
 - Sorry, Chuck.
 - She drives me crazy.
 - But that's love.
-- Ladies and gentlemen, if you'll please just ignore dirty uncle Morgan, I think that everything... to arrive in Los Angeles later today to deliver a speech before the pacific security league tomorrow evening...
-- Will be... the general has drawn fire for his criticism... normal.
-- General Stanfield, the former allied commander of NATO...
+- Ladies and gentlemen, if you'll please just ignore dirty uncle Morgan, I think that everything...
+- (to arrive in Los Angeles later today to deliver a speech before the pacific security league tomorrow evening...)
+- will be...
+- (the general has drawn fire for his criticism...)
+- normal.
+- (General Stanfield, the former allied commander of NATO...)
 - He's already here. He landed last night.
 - Who's already here, Chuckles?
 - Trying to stop tomorrow night's speech from happening...
 - I don't know.
 ***
-- Bryce Larkin was CIA, graham.
+- Bryce Larkin was CIA, Graham.
 - He was one of your agents.
 - And it was NSA's job to find him and to question him, not to k\*ll him.
 - Thanks to rambo here, we've got nothing.
