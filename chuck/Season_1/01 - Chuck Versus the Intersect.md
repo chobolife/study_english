@@ -169,7 +169,7 @@
 - Do me a favor and stay off the 5, okay?
 - Because the cops are in phased deployment.
 - Okay.
-- Thanks for the tip, ponch.
+- Thanks for the tip, Ponch.
 ***
 - Fellow nerds, today is going to be a very bad day.
 - We've got a new computer virus on our hands.
@@ -305,7 +305,7 @@
 - Yes. Oh, man, yes.
 - That's why I'm going to repeat the question.
 - Why wouldn't you call this girl?
-- Because I live on planet earth, Morgan.
+- Because I live on planet Earth, Morgan.
 - Why are you following me home?
 - Aw, come... hey.
 - We're buddies.
@@ -346,6 +346,7 @@
 - Just... I was, uh...
 - Look at that.
 - Oh, God!
+***
 - Come on. Oh, My God! Thank god!
 - Listen! There's a guy here, and he's trying to do something.
 - I don't know. You have to call the cops, security the guy at the front who's checking receipts.
@@ -355,8 +356,8 @@
 - Black leather jacket?
 - Yes!
 - Like that guy.
-- I have eyes on him right now.
 ***
+- I have eyes on him right now.
 - Like I said, the computer was destroyed.
 - Beyond repair.
 - Okay.
@@ -372,7 +373,6 @@
 - 'Cause of Casey?
 - He's a burnout.
 - He's a k\*ll, Sarah.
-***
 - Cold school.
 - I want you to listen to me.
 - Whatever happened with Bryce, you couldn't have known.
@@ -437,8 +437,8 @@
 - Just... they grow up so fast, you know, and...
 - Go home, Morgan.
 - Just go home. Go home.
-- He's picking me up for a date.
 ***
+- He's picking me up for a date.
 - You're on your own on this one, Sarah.
 - I can't help you if something goes wrong.
 - I don't know about this guy, Graham.
