@@ -476,6 +476,7 @@
 - Uh, yeah, yeah.
 - Uh, actually, well, back in college there was someone... actually, that's all over with now and her restraining orders are very specific. so...
 - I like you, Chuck.
+***
 - So, where are we going?
 - Well, do you like music?
 - I guess.
@@ -502,10 +503,12 @@
 - Good! Good!
 - Let's dance!
 - I'm not really a dancer.
+***
 - Hey, hey, hey, where's the fire?
 - Chuck, give me your keys.
 - I don't mean to be old-fashioned, but the company only wants employees... nerds, driving the nerd herd mobile.
-- I mean, it's kinda, you know... get in the car.
+- I mean, it's kinda, you know...
+- Get in the car.
 - How did you get into my car?
 - Get in the car right now!
 - Sarah...
@@ -524,16 +527,19 @@
 - Too late!
 - Oh, My God!
 - Whoa... computer emergency.
+***
 - Listen to me, Chuck. Those men will hurt you.
 - They're from the NSA and they're after you.
 - Me? Why, why? Why me?
 - I'm nobody. I'm the supervisor of a nerd herd at a Buy More.
 - Maybe one day I'll be assistant store manager and I don't even know if I want that job.
 - You know, that's not your problem... but that is.
-- Back! Back! get out of the car. Let's go, Chuck. Move!
+- Back! Back! Get out of the car. Let's go, Chuck. Move!
 - Wait, wait...
 - Sarah, look out!
-- Sarah. Sar... request emergency air evac.
+- Sarah. Sar...
+***
+- Request emergency air evac.
 - Track location, we're on foot.
 - Let's go!
 - How well do you know Bryce Larkin?
