@@ -44,12 +44,13 @@
 - Oh hey! None of that is what I asked you to do.
 - I want my look back down.
 - What? Your look? Don't you know how much effort it took me to make this? The ingredients alone are $100.
-- 100 dollars? That's it. You're not getting a cent of our job. Come on. Let's go.
+- 100 dollars?
+- That's it. You're not getting a cent of our job. Come on. Let's go.
 - We're done.
 - There's no leaving until you pay up.
 - What? Come on. You don't know who we are. You guys, let's show him our rage.
 ***
-- You guys okay? That bread you're really gonna get it now.
+- You guys okay? That bread. You're really gonna get it now.
 - Wait. Look at our style. It's rad.
 ***
 - Wow. We look awesome.
@@ -63,7 +64,7 @@
 - We're sorry. We thought you had just made a mistake.
 - I thought you were just a creepy old toast trying to rip us off. But you were just doing your job.
 - That's right, and now it's time to pay.
-- Ah yeah of course. Yo how much you guys got?
+- Ah, yeah, of course. Yo, how much you guys got?
 - I don't really think we have a hundred bucks.
 - It seems we're short 50.
 - I didn't include tax.

@@ -11,12 +11,11 @@
 - Who now?
 - Yes! This is a job for Master Bread.
 ***
-- Wow I look so cool!
+- Wow, I look so cool!
 - You see? I told you he was worth a three-month wait. I feel like a whole new donut.
 ***
 - I don't wanna get my hair cut. I don't want it now!
-- Could it be?
-- Choco, code red!
+- Could it be... ? Choco, code red!
 - Here you go!
 - Hello. Is there Mr. Bread here?
 ***
@@ -33,7 +32,7 @@
 ***
 - Buy a new one. There's that new model.
 ***
-- He's the coolest donut ranger, isn't he?
+- He's the coolest Donut Ranger, isn't he?
 - I swear in the name of gluten.
 - No sir, don't lose your cool. He's just a child.
 - You rascal! Very ranger was a limited edition!
@@ -49,11 +48,12 @@
 - Mom, looks so funny!
 - He's calm down now. Timely style.
 - I've never seen someone work so quickly like that! It's like the raisin gave him superpowers.
-- Yeah that's true. It's not the first time he's had to pull out all the stops.
+- Yeah, that's true. It's not the first time he's had to pull out all the stops.
 - He looks so good. I'll tell all the other parents about you.
 ***
-- Oh hey, how come you're in so early?
-- Ah I'm never cutting another kid's hair as long as I live.
+- Oh, hey, how come you're in so early?
+- Ah.
+- I'm never cutting another kid's hair as long as I live.
 - Please don't make a scene. Master bread is going to cut your hair so nice.
 - I won't. No way.
 - I heard that he is best with the kids.

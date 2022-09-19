@@ -3,15 +3,15 @@
 - Where did this filthy strike come from? Get lost! Don't you dare give my sebastian fleas?
 ***
 - Working really hard is my quest. I'm gonna do my dairy best.
-- Oh goodness! Wait. You gotta get out of there.
+- Oh, goodness! Wait. You gotta get out of there.
 - Wow. You're cute. I'm Wilk, and what's your name?
-- Oh you're hungry, huh? Hang on.
+- Oh, you're hungry, huh? Hang on.
 - There, you can have some fresh milk. Drink up.
 - Oh, you're a hungry little pooch, huh? Hey, I know you should come back with me to the barbershop. We have food there.
 - I know for sure Master Bread will like you.
 ***
 - No way.
-- Sir, poor Sausage doesn't have anywhere else to go.
+- Please sir, poor Sausage doesn't have anywhere else to go.
 - No pets allowed in the barbershop.
 - Master, please.
 - I'm real sorry, Sausage.
@@ -19,15 +19,15 @@
 - No, Sausage...
 ***
 - There, you can stay in here from now on, okay?
-- I can't let my boss find out, okay?
+- You can't let my boss find out, okay?
 ***
 - Hmm? Wilk, can you grab me more cream? Wilk?
 - Where is that kid?
 - Wilk, are you down here?
 - What is going on?
-- Wilk!!!
+- WILK!!!
 ***
-- Master Bread! It's my fault sir. Please don't kick poor Sausage out.
+- Master Bread! It's my fault, sir. Please don't kick poor Sausage out.
 - I'm not. I'm kicking you both out.
 - Please forgive me this once, sir.
 ***

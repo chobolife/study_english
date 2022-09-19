@@ -48,7 +48,7 @@
 - No, no, no, no. It's still not right. What did you do in a past life to deserve this crusty old mug?
 - My marshmallow perm has never failed so hard before the likes of you.
 - Hey this hair makes me look like a sugary delight. Don't you think so?
-- Ah the horror. My eyes are burning. Choco, shut the door. Wilk, tell everyone we're closed.
+- Ah, the horror. My eyes are burning. Choco, shut the door. Wilk, tell everyone we're closed.
 - Here we go again.
 ***
 - Nobody leaves this place until I make this right as green, nobody! Get ready for an all-nighter.
@@ -57,7 +57,7 @@
 ***
 - Oh, I'm finally a whole new pie.
 - That's right. I knew the sweet pretty lady pie would do the trick. I sure do impress myself.
-- Oh thank you so much, Mr Bread. You're all right in my book.
+- Oh, thank you so much, Mr. Bread. You're all right in my book.
 - Thank you Mister. See you soon.
 ***
 - Good luck finding that stale old pie. I'm turning over a new leaf in life.
