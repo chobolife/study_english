@@ -86,6 +86,7 @@
 - Uh, what are we, uh, what are we doing? We're going to, uh, like, a movie or some dinner?
 - Not exactly.
 - What, what does, what does "not exactly" mean, exactly?
+***
 - So.
 - Here we are on our date at the Buy More.
 - Is this all part of the plan or a chance for me to clock in some overtime?
@@ -98,6 +99,7 @@
 - To get the secrets out of your head.
 - Yeah. Yeah, of course.
 - But you-you still... you're still being very vague about the probing, and I'd like to know the answer to that.
+***
 - We've rewired the home theater room for this test.
 - When the images start, just say what they are.
 - That's it?
@@ -118,7 +120,8 @@
 - Does patient X work here?
 - Patient X--who knows all the intersect secrets--works in a Buy More?
 - Ridiculous. Of course.
-- After the tone, the test will begin. uh... dog.
+- After the tone, the test will begin.
+- Uh... dog.
 - Uh, hippopotamus.
 - Fat guy.
 - Ugly building.
@@ -144,7 +147,8 @@
 - Uh... dinner tomorrow night with my sister and her boyfriend captain awesome.
 - She really wanted to meet you.
 - Okay, well, that's a good idea.
-- Meeting the family's kind of a big step if our relationship were remotely real. so, uh, if this whole examination thing, if it works out, then I guess... we're through, huh?
+- Meeting the family's kind of a big step if our relationship were remotely real.
+- So, uh, if this whole examination thing, if it works out, then I guess... we're through, huh?
 - Uh, yeah. Mm-hmm.
 - Okay. Well, good night.
 - Good night.
@@ -152,7 +156,7 @@
 - Drive safe.
 ***
 - Did you see this?
-- At wh?
+- What?
 - Did you know that Bryce was dead?
 - No. No, I didn't.
 - Well, are you okay?
@@ -161,20 +165,22 @@
 - I, uh, I spent so much time hating him for getting me kicked out of Stanford, I don't know, really, how to feel, but it's hard to be mad at him now.
 - I'm really sorry, Chuck.
 ***
-- Yeah, ey's cas. I'm at the scene.
+- Yeah, it's Casey. I'm at the scene.
 - No sign of Zarnow's body. Probably vaporized.
 - I guess those secrets are staying in Chuck's head.
+***
 - Well... no sign of anything here.
 - It looks like we're sending the good doctor home in an ashtray.
 - Okay, well, I've got hot dogs to fry.
 - And I've got some toasters to sell.
+***
 - Feels like a CIA job to me.
 - Keep your eye on agent Walker.
 - And don't let Chuck out of your sight. He could be next.
 ***
 - The strong bars are getting a little sticky. On... on one.
-- On the other one, it's fine, but on the second... you can't trust her.
-***
+- On the other one, it's fine, but on the second...
+- You can't trust her.
 - Chuck. John.
 - Big mike. Big mike!
 - How's customer service training?
@@ -193,23 +199,25 @@
 - So, uh, this is the hand-held scanner.
 - Very expensive piece of equipment.
 - So is a stealth fighter and somehow I managed to fly that.
-- Right, uh, and the g\*n, you know, kind of works like A... g\*n?
+- Right, uh, and the g\*n, you know, kind of works like a... g\*n?
 - Uh-huh.
-- And it beeps when you scan the barcodes. well, if screamed out loud, I'd be right at home.
-- N't I do want you to have any more private meetings with Sarah, hmm?
+- And it beeps when you scan the barcodes.
+- Well, if screamed out loud, I'd be right at home.
+- I don't want you to have any more private meetings with Sarah, hmm?
 - Um, is there... is there a problem?
 - No problems, only solutions.
 - Well, that... sounds very much like the Buy More customer policy that I've noticed you have some issue with.
 - A now you kn, uh... you know what I think we're gonna do about that?
-- We're gonna do some role-playing, and work on that attitude of yours how about that?
+- We're gonna do some role-playing, and work on that attitude of yours, how about that?
 - Hey, Morgan.
 - Hi, yo.
 - Ah, hey, there he is. There's my johnny-on-the-spot.
 - Morgan and Casey, you guys are gonna do some stuff.
 - You're gonna be a shopper, and you're gonna be the sales rep, like you are.
 - And, uh, I'm gonna talk to Big Mike and-and work on some stuff 'cause I know he's got other things in store.
-- Got it from here. There you go.
+- Got it from here.
 ***
+- There you go.
 - So, Chuck, no private meetings with Casey today.
 - What? What is it up with you guys?
 - Did he tell you the same thing?
@@ -225,7 +233,7 @@
 - That's what k\*ll the doctor.
 - And guess who works for the NSA?
 - Why... why, why would Casey...
-- He's a k\*ll, Chuck.
+- He's a k\*ller, Chuck.
 - It's what he does for a living.
 - He tried to k\*ll us, and he'll probably try to do it again.
 - Maybe it was orders.
@@ -256,45 +264,50 @@
 - Bye.
 - I love you.
 - What did you tell Chuck?
-- That you're a cold-blooded k\*ll. Was I lying?
+- That you're a cold-blooded k\*ller. Was I lying?
 - No.
-***
 - The way I figure it, the only two people that knew the doctor was coming are right here.
-- Since I didn't cap him, you're under arrest. quick, take a pic.
+- Since I didn't cap him, you're under arrest.
+***
+- Quick, take a pic.
 - She's so hot. Did you get it? Come on.
 - Let's go put it on the internet.
-- Mr. Bartowski.
 ***
+- Mr. Bartowski.
 - Hi Lester.
 - Uh, code zebra.
 - Linux install at a factory off ventura. 142 Euclid.
 - Uh... I'm sorry. Why-why can't you and Jeff go?
-- linux, PCs? We're, uh, we're MAC guys, Chuck. We're... we're IT artists.
+- Linux, PCs? We're, uh, we're MAC guys, Chuck. We're... we're IT artists.
 - Okay. Yeah. Uh... fine, whatever.
 - I'll be back in half an hour.
 - And, uh, just tell Casey that I'm on my cell.
 - You tell him. I'm not your servant.
-- Okay, you know what... no, no, I mean, I'm gonna tell him.
+- Okay, you know what...
+- No, no, I mean, I'm gonna tell him.
+- I just, you know, I mean, in general, I don't always... absolutely, I'm going to... right now, should I tell him?
 ***
-- I just, you know, I mean, in general, I don't always... absolutely, I'm going to... right now, should I tell him? hello?
+- Hello?
 - Pull over.
 - Well, I can't pull over.
 - I have a home install at, uh...
 - 142 Euclid?
 - Guess who called that in?
 - Oh, my god. It was you!
-- You k\*ll the doctor, and now you're here to k\*ll me! Are you out of your mind?
+- You k\*ll the doctor, and now you're here to k\*ll me!
+***
+- Are you out of your mind?
 - What... what... what... what happened to you?
 - Your girlfriend happened.
 - What, who, Sarah?
 - She's rogue, Chuck.
-- She k\*ll the doctor, then she tried to k\*ll me.
+- She k\*lled the doctor, then she tried to k\*ll me.
 - Is she okay?
 - Yeah, I'm golden. Thanks for asking.
 - No, no, no, why should I believe you?
 - She showed me the b\*mb. She said you did it.
 - NSA incinerator, right?
-- It's a nice expl\*sive easily purchased on the black market.
+- It's a nice expl\*sive. easily purchased on the black market.
 - What do you really know about Sarah, Chuck, huh?
 - Think.
 - She's CIA.
@@ -303,7 +316,9 @@
 - She found you in L.A., But she couldn't grab you because I was around.
 - So she had to wait her chance.
 - Dr. Zarnow screwed that up.
-- He could pull those secrets out of your head, then she loses the intersect, so she had to act fast. let's go. Come on.
+- He could pull those secrets out of your head, then she loses the intersect, so she had to act fast.
+- Let's go. Come on.
+***
 - Thought I turned that off.
 - Well, it's not me. Is it yours? no.
 - NSA incinerator! Run!
@@ -328,12 +343,13 @@
 - You know where she is?
 - We have to get back to my house. She's having dinner with us tonight.
 - No, kid, you're on the next plane to Washington.
-- But my sister... doesn't have a super computer in her noggin.
+- But my sister...
+- Doesn't have a super computer in her noggin.
 - You're the priority.
-- It's Casey. Put me through to general... hey!
-- Hey!
+- It's Casey. Put me through to general...
+- Hey! Hey! Chuck!
 ***
-- Chuck! well, it's about time.
+- Well, it's about time.
 - Chuck.
 - Where have you been?
 - Why?
@@ -357,6 +373,7 @@
 - Manzoom, manjo. Let's eat.
 - Sit down, okay? It'll be good.
 - Lady. Looks great, baby.
+***
 - This looks delicious, Ellie.
 - Oh, it was nothing.
 - So, Sarah, let's turn this up a notch personal style.
@@ -378,20 +395,20 @@
 - You kidder.
 - Chuck, we're going to need another chair.
 - Okeydokey.
-***
 - You know what? I'm crashing the party. Maybe I should... I'll get it.
 - Strange.
+***
 - NSA ran a check on Sarah Walker to see what we had... two years ago, she posed as a French diplomat.
 - Infiltrated the inner circle of an arms deal.
 - k\*ll the entire circle.
 - With a b\*mb?
 - We don't know.
 - Her alias was Elana Truffaut.
-- Eyth were poisoned.
+- They were poisoned.
 - At dinner.
 - Wonderful. hey, sis... chair. Ta-da!
 - So... thank you.
-- Chuck.
+- Wow. Chuck. Wow.
 - I mean, I knew that you had it in you, but she is... oh, she is... wow, she's really great.
 - Yeah. She's... unpredictable.
 - Hey, listen to me.
@@ -429,7 +446,7 @@
 - Chuck!
 - Chuck, look, no matter how stressed out you are, it is never okay to m\*rder a woman's soufflé?
 - Um, you know what? Let me talk to him.
-- Casey, hey, maybe, uh... tell me exactly ey cas said.
+- Casey, hey, maybe, uh... tell me exactly what Casey said.
 - Nothing. Everything's okay.
 - Makeup sex. Nice.
 - What did he tell you?
@@ -463,13 +480,14 @@
 - You stay inside.
 - Do what I say.
 - Do you think we were wrong?
-- Casey! hey, don't move.
+- Casey!
+- Hey, don't move.
 - Zarnow?
 - Good to see you again, agent Casey.
 - Oh, my god.
 - Yep, we were wrong.
-- Casey, he's got Sarah. We've got to save her.
 ***
+- Casey, he's got Sarah. We've got to save her.
 - Brilliant deduction, nancy drew.
 - Now pull out the tranq dart!
 - Oh, I have a very strong aversion to needles.
@@ -497,11 +515,14 @@
 - Why, why would he bring Sarah here?
 - I don't know.
 - You wait here. damn tranq dart. come on.
-- Oh, god. hey, wait, you idiot!
+- Oh, god.
+***
+- Hey, wait, you idiot!
 - It's Morgan.
 - He ate your quiches.
 - We're on the wrong trail.
 - Come on.
+***
 - I got nothing.
 - What do you mean you got nothing?
 - Then what do we do?
@@ -519,7 +540,8 @@
 - That's not bad.
 - Thanks.
 - Yeah, I was just kind of, you know, spit balling, just kind of top of my head.
-- I was thinking... found it.
+- I was thinking...
+- Found it.
 - Port of Los Angeles.
 - Floor it.
 - Okay.
@@ -530,6 +552,7 @@
 - So, in this plan I basically do nothing?
 - Yep.
 - Let's do this.
+***
 - All right, all right.
 - Now we wait.
 - Stay in the car.
@@ -550,6 +573,7 @@
 - I don't... okay, here.
 - Go, go, go!
 - The tape, the tape.
+***
 - The helicopter's ready, agent Walker.
 - This is your last chance.
 - We're going to a special facility where they're going to torture you.
@@ -567,13 +591,16 @@
 - Of course, to hell with honor.
 - I'm here for the impressive dollar figure the human intersect will fetch.
 - Who will I offer you to first?
-- Sarah... Sarah... don't worry, agent Walker.
+- Sarah... Sarah...
+- Don't worry, agent Walker.
 - I'll take good care of him.
+***
 - No, Casey, don't sh\*\*t. They have Chuck.
 - Proceed to bravo coordinates.
 - The ship will be waiting there.
 - It's about ten miles offshore.
 - 15-minute flight.
+***
 - Don't move!
 - You must be kidding.
 - I want you to land the helicopter right now.
@@ -583,14 +610,16 @@
 - It's heavy.
 - Don't... don't!
 - Give me back the g\*n.
-- I'm not giving you the g\*n! you sh\*t the pilot, you idiot!
+- I'm not giving you the g\*n!
+- You sh\*t the pilot, you idiot!
 - I didn't mean to do that.
 - What's happening?
 - Who's flying this thing?
 - You're going to k\*ll us both.
-- Come on, Chuck. let me go. get your hands off of me!
-- Get off of me! oh, god.
-- That's a crane.
+- Come on, Chuck.
+- Let me go. Get your hands off of me!
+- Get off of me!
+- Oh, god. That's a crane.
 - Oh, my god, Casey, I think Chuck's flying the chopper.
 ***
 - Yeah, I'm here.
@@ -602,6 +631,7 @@
 - One's the stick. One looks like an emergency brake.
 - Grab 'em both.
 - Okay, okay, I got it.
+- Oh my god.
 - This is not working!
 - Push the stick just a bit forward while doing the same thing with the emergency brake.
 - Ground-- not good.
@@ -613,6 +643,7 @@
 - Casey, put Sarah on the phone.
 - Give me the phone, Casey.
 - Here.
+***
 - Okay... uh, Chuck, you're going to be okay.
 - Now, I need you to focus.
 - Uh, have you ever played any flying games before?
@@ -633,7 +664,6 @@
 - No, it isn't.
 - Just ease to the right and goose the brake.
 - They designed the game exactly like the helicopter.
-***
 - I got it.
 - I got it.
 - Almost there.
@@ -641,13 +671,16 @@
 - Keeping right. Keeping right.
 - Goosin' the brake.
 - It's just a game.
-- A big scary video game. oh, thank you, god! oh, yes!
+- A big scary video game.
+- Oh, thank you, god! oh, yes!
 - You are wonderful.
+***
 - And that is how... I do... that!
 - That's how we do that.
 - Go, team. Sarah... see Sarah.
 - Up top on that one.
-- Palms are a little sweaty, but... what the hell were you thinking?
+- Palms are a little sweaty, but...
+- What the hell were you thinking?
 - Clammy hands, got it, no good.
 - Chuck, the secrets that you know are incredibly important.
 - You compromised everything when you stopped trusting me.
@@ -660,8 +693,8 @@
 - Mission over. We all go back to Washington.
 - And you do not want that to happen, Chuck.
 - That you should trust me on.
-***
 - Way to go, ace.
+***
 - Dad's suit?
 - Yeah.
 - It's my only one.
@@ -683,7 +716,7 @@
 ***
 - He flew a helicopter?
 - Your report was rather terrifying, major Casey.
-- Do we really have the situation in hand, or should Mr. Bartowskibe in our care full-time?
+- Do we really have the situation in hand, or should Mr. Bartowskibe be in our care full-time?
 - Well, you know how I feel, general.
 - But for now, we're in control.
 - Then Chuck stays where he is.
