@@ -178,7 +178,7 @@
 - Lonely dude call volume will be high.
 - This is a nasty one, kids.
 - It's a computer k\*ll.
-- Last night, the display version of our prism express laptop was fried when someone... excuse me... decided to enter Mrs. Demova's web site.
+- Last night, the display version of our Prism Express laptop was fried when someone... excuse me... decided to enter Mrs. Demova's web site.
 - Anna, close the eyes.
 - This is what happens.
 - Food is sexy?
@@ -534,7 +534,8 @@
 - I'm nobody. I'm the supervisor of a nerd herd at a Buy More.
 - Maybe one day I'll be assistant store manager and I don't even know if I want that job.
 - You know, that's not your problem... but that is.
-- Back! Back! Get out of the car. Let's go, Chuck. Move!
+- Back! Back!
+- Get out of the car. Let's go, Chuck. Move!
 - Wait, wait...
 - Sarah, look out!
 - Sarah. Sar...
@@ -542,6 +543,7 @@
 - Request emergency air evac.
 - Track location, we're on foot.
 - Let's go!
+***
 - How well do you know Bryce Larkin?
 - What? How do you... how do you know Bryce?
 - We worked together at the CIA.
@@ -569,6 +571,7 @@
 - The CIA gets him first.
 - You come any closer and I sh\*\*t.
 - Sarah... I'm freaking out.
+***
 - You sh\*\*t him, I sh\*\*t you.
 - I leave both your bodies here, go out for a late snack.
 - I'm thinking may be pancakes.
@@ -612,6 +615,7 @@
 ***
 - Was our mission to give our nation's diplomats the military perspective on world issues.
 - Now, maybe it was just because I was a uniform...
+***
 - Wait! Casey, wait! We can't take him in. He's too valuable.
 - Okay, Johnny commodore.
 - You stay here, but you tell us where to go.
@@ -620,8 +624,10 @@
 - The fastest. Got it.
 - Chuck, stop!
 - Chuck, wait!
+***
 - You know, it takes courage to speak out, to take action...
 - This way!
+***
 - Chuck, where is it?
 - I don't, uh... I don't, uh...
 - That's it.
@@ -635,7 +641,6 @@
 - Uh... ladies and gentlemen, we-we may have a cautionary situation here, so we'll take a short break.
 - Chuck, is there anything else you remember about the b\*mb?
 ***
-- What's the situation?
 - Hi, Morgan.
 - Hey, how's it going?
 - Little busy right now, buddy.
@@ -647,7 +652,7 @@
 - You old... okay, okay, I have an idea.
 - That's not an Xbox.
 - And you're not an X men.
-- I understand that. This is a prism express laptop, okay.
+- I understand that. This is a Prism Express laptop, okay.
 - We sell this at our store. It has a DOS override.
 - I think I can do this. I can do this, please.
 - He's our best sh\*t.
@@ -660,10 +665,10 @@
 - This was a real...
 - What if I was wrong?
 - Don't puke on the C-4, huh?
+***
 - He's coming with me.
 - What if this was a fluke?
 - And what if it wasn't?
-***
 - What if he can stop something bigger?
 - Fine, we drop him in a psych t\*nk, let him stare at four rubber walls for a decade.
 - He'll tell us what we want to know.
@@ -706,10 +711,13 @@
 - I even got to hangout with Ellie.
 - How far did you get?
 - Morgan, shut up.
+***
 - You tell them nothing to keep them safe.
+***
 - Early morning procedure, so... group hug, huh?
 - Okay. Awesome.
-- Need you to do one more thing for me.
+***
+- I need you to do one more thing for me.
 - Yeah?
 - Trust me, Chuck.
 ***
@@ -720,4 +728,5 @@
 - Well, uh... I think I'm ready for this, Big Mike, and what it means- responsibility, decisive leadership...
 - Save it for the interview. Now go train the new guy.
 - Okeydokey.
+***
 - Don't freak out.
