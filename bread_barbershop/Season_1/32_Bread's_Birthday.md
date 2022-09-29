@@ -1,0 +1,102 @@
+# Bread's Birthday
+
+- Choco, is tomorrow a big day?
+- Ah, no. Just Master Bread's birthday thing.
+- What? I don't... His birthday?
+- Yeah. He circles his own birthday on the calendar every year.
+- Why didn't you tell me? This is super important.
+- Uh. And why is that?
+- Think about it. Master Bread has no family, no friends. Cause he always works.
+- So he's gonna be all alone by himself on Sunday.
+- What kind of birthday is that?
+- Huh?
+- We need to go celebrate with him.
+- You mean like go to his house?
+- Hmm. I'll give him the best birthday of all time.
+- All right. Here we go. Operation best birthday ever.
+***
+- Candle, check. Match, check. Man, he's gonna be so surprised.
+- Chocolate cream pies I got for my birthday. So good.
+- It's fine. Master Bread would like them more.
+- But what should I give him as a gift?
+- Ew. My favorite Red Donut Ranger action figure I waited in line for. It's limited edition.
+- It's been fun Bread. Master Bread will give you a good home.
+- All right. Ready to go. This is gonna be the best birthday ever.
+***
+- House number 221. 221...
+- We should be getting close. Ah right there.
+- He lives in here?
+- His house... I can't believe he lives in a shack like this.
+- It's because he spends all the shops money on our salaries.
+- We are not worthy of you.
+- Wilk, it's not bad.
+- Hey, keep it down out there, you folks. I'm trying to get some sleep.
+- Um, excuse me. Does Master Bread live here?
+- Who's that?
+- The barber...
+- Do I look like I know? Leave me alone. Sheesh.
+- I don't understand.
+- Wilk, this shack doesn't have a number.
+- We're looking for 221 which is... that one.
+- The giant one?
+- Yep. Don't worry about him, not being well off. He's doing pretty good.
+- That's good then. I'm glad. But still what's the point of having a big place?
+- If no one comes over like friends or family?
+- The poor man must be so lonely on his birthday. It makes me so sad.
+- Well, don't worry. Wilk's on his way to be our friend.
+- I hope we're not too late this year.
+- I heard that last year 5 p.m. was the cutoff.
+- I'm so excited to give him this present.
+- What's going on?
+- These are all the customers whose lives have been made better by Master Bread's work.
+- Look at him. Looks like he spent the night here.
+- He spent the night on the street just to give his present to Master Bread?
+- Wilk, we should join the line. Otherwise, we won't get in.
+- Maybe it'll be a shorter line than last year's.
+***
+- Hey, what'd you get in this year? It looks nice.
+- Well, it's better than last year's.
+- Choco, did you get him anything?
+- No. With everything he gets, he'd never notice.
+- Okay.
+***
+- Now that you've given your gift, can we leave?
+- What? no way. what's the point of getting all these nice presents unless you blow out birthday candles on a cake?
+- I brought an extra tasty one. Ta-da.
+***
+- Her majesty the queen of bakery town sends her special buffet over.
+- The queen never forgets Master Bread's birthday since he does her hair.
+- What a lucky man to receive the royal birthday banquet!
+- I hope he likes it. I hear he's a picky eater.
+***
+- Wilk you've done well. Let's go.
+- No way. I have to stay. What if he's feeling lonely? We should go spend time together.
+- I'm coming Master Bread.
+***
+- Wow.
+- Yes, solo slice is the way to be.
+- Wilk, Master Bread is great at being alone.
+- He holds the bakery world record for a high score in solitaire.
+- So stop worrying about his birthday, you know?
+- You're right. I get it.
+- Master Bread doesn't need me to give him a present or a cake.
+- You two? what's up?
+- It's just...
+- Wilk wanted to make sure your birthday was a special one.
+- Ah so kind of you, but it really isn't necessary, but nice of you to try.
+- Be sure to grab some food on your way out.
+***
+- See? You don't have to worry about him next time.
+- I'm hungry. Let's see what the queen has sent me this time.
+- Lobster, chicken... Nothing that fun.
+- The chocolate cream pie I used to eat as a kid.
+- Hmm. Now that's what I call food.
+- Let's see what presents I got this year.
+- Hmm. I don't even wear a watch.
+- It's the same one I have. Not my style. Already have it. It's all just stuff.
+- This box looks like it's had better days.
+- What? It couldn't be! The limited edition Red Donut Ranger?
+- Super rare and hard to find.
+- Money couldn't buy anything like this.
+- Who would give me something so nice?
+- This is the best birthday ever.
