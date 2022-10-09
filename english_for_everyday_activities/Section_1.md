@@ -54,7 +54,7 @@
 
 ### Tom puts on...
 
-- Tom puts on some underwear, a T-shirt, some sockes, pants, and a shirt.
+- Tom puts on some underwear, a T-shirt, some socks, pants, and a shirt.
 
 - These mean the same.
   - Tom _puts on_ his underwear.
@@ -82,7 +82,62 @@
 
 ### Putting on Pants
 
+- Tom puts on his pants.
+- He pulls them up.
+- He fastens them.
+- He zips up the pants.
+- He slips on a belt.
+- He buckles it.
+
+### Putting on a Shirt
+
+- Tom puts on his shirt.
+- He buttons it.
+- He straightens his collar.
+- He tucks in his shirt.
+
+### Fasteners and What you do
+
+- snap: You snap it.
+- zipper: You zip it up.
+- button: You button it.
+- laces: You lace them up and then you tie the laces.
+- buckle: You buckle it.
+
 ## 5. Getting Dressed -- A Woman
+
+### Pam puts on..
+
+- Pam puts on panties, a bra, a dress, or a blouse, and a skirt, or pants, and socks, or stockings, or pantyhose.
+
+- These people are wearing suits
+  - tie
+  - jacket
+  - skirt
+  - pants
+  - shoes
+
+- These people are wearing casual clothes.
+  - sweatshirt
+  - jeans
+  - running shoes
+  - cap
+  - T-shirt
+  - shirt
+  - shorts
+  - sandals
+
+### Dressing for Hot Weather
+
+- In hot weather, Pam wears light clothes: a short-sleeved shirt and shorts.
+- She goes barefoot, or she wears sandals.
+
+### Dressing for Cold Weather
+
+- In cold weather, Pam wears heavy clothes: a long-sleeved shirt, a sweater, pants, and heavy socks.
+- She puts on a heavy coat, and gloves or mittens.
+- She puts on a scarf, a hat, and boots.
+
 ## 6. Making a Bed
 ## 7. Making Coffee / Making Tea
 ## 8. Preparing Cold Cereal / Making Toast
