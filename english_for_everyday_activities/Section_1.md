@@ -55,11 +55,9 @@
 ### Tom puts on...
 
 - Tom puts on some underwear, a T-shirt, some socks, pants, and a shirt.
-
 - These mean the same.
   - Tom _puts on_ his underwear.
   - Tom _puts_ his underwear _on._
-
 - With _it_ or _them_, "on" moves away from "put."
   - Tom chooses some socks and _puts them on._
   - Tom picks up his shirt and _puts it on._
@@ -76,7 +74,6 @@
 - some shoes
 - some pajamas
 - some glasses
-
 - You can say: "a sock," "a shoe".
 - BUT Do NOT say: "a pant," "a pajama," "an underpant," "a short," "a glass."
 
