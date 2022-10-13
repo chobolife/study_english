@@ -100,6 +100,8 @@
 
 ### Pam puts on..
 - Pam puts on panties, a bra, a dress, or a blouse, and a skirt, or pants, and socks, or stockings, or pantyhose.
+
+###
 - These people are wearing suits
   - tie
   - jacket
