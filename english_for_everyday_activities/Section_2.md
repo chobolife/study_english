@@ -66,6 +66,35 @@
 - She turns on the wipers.
 
 ## 15. Driving Along
+
+- Kate stops for a red light.
+- The light turns green. Kate goes ahead.
+- She goes over the speed limit.
+- A police officer gives her a ticket.
+- Kate parks the car.
+- She turns the car off.
+- Kate and her friends get out.
+- Kate locks the car.
+
+### Some Things Drivers Do
+- Change lanes.
+- Turn left.
+- Turn right.
+- Go straight.
+- Get on (enter) a freeway.
+- Get off (exit) a freeway.
+- Yield right of way.
+- Pass someone.
+- Pull over to the side of the road.
+
+### Stopping for Gas
+- Kate goes to a gas station.
+- She stops at a pump.
+- She tells the attendant what she wants.
+- He pumps the gas.
+- He checks the oil.
+- Then Kate pays him.
+
 ## 16. Taking a Train
 ## 17. Taking a Taxi
 ## 18. Walking Somewhere
