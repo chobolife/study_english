@@ -59,6 +59,7 @@
 - Kate puts her signal on.
 - She turns the steering wheel.
 
+###
 - At night it gets dark.
 - Kate turns on the lights.
 - Sometimes it rains.
