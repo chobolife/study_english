@@ -96,6 +96,47 @@
 - Then Kate pays him.
 
 ## 16. Taking a Train
+
+- Tom buys a ticket from the machine.
+- Other passengers buy tickets at the ticket window.
+- Tom puts his ticket into the slot.
+- He walks through the gate.
+- He follows the signs to his gate.
+- He waits for the train.
+- His train arrives. He gets on.
+- The train is crowded. He has to stand.
+- Tom hears his station.
+- He gets off.
+
 ## 17. Taking a Taxi
+
+- Pam hails a taxi.
+- She gets in.
+- She tells the driver where to go.
+- He starts the meter.
+- Pam checks the meter.
+- She gives directions.
+- She tells the driver where to stop.
+- She pays the fare and gives him a tip.
+
 ## 18. Walking Somewhere
+
+- Dan walks on the sidewalk.
+- He steps over dirt and puddles.
+- Sometimes he trips on a crack.
+- He stops at the corner and waits.
+- Then Dan crosses in the crosswalk.
+- Sometimes he walks through a parking lot.
+- Sometimes Dan is late. He runs.
+- He crosses a busy street. He goes over an overpass.
+
 ## 19. Riding a Bicycle
+
+- I put on my helmet.
+- I hold the handlebars.
+- I get on the bike.
+- I pedal, and the bike moves.
+- I go up a hill. I shift into a lower gear.
+- I squeeze the brakes. I slow down.
+- I get off my bike.
+- I put it in a bike rack. I lock it.
