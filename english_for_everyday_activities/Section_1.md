@@ -175,7 +175,7 @@
 - Dan puts slices of bread into the toaster.
 - He pushes down the lever.
 - The toaster toasts the bread.
-- The toast is doen. It pops up.
+- The toast is done. It pops up.
 - Dan puts butter and jam on his toast.
 
 ## 9. Frying an Egg
