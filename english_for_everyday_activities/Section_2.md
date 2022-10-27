@@ -21,10 +21,10 @@
 
 ### Paying Bus Fare
 - People pay for a bus ride in many ways.
-  - They put money into the fare box.
-  - They pay the driver.
-  - They put a fare card into a machine.
-  - Sometimes, the driver or machine gives a receipt.
+- They put money into the fare box.
+- They pay the driver.
+- They put a fare card into a machine.
+- Sometimes, the driver or machine gives a receipt.
 
 ## 13. Starting Out
 
