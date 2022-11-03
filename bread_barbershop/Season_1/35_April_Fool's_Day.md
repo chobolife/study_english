@@ -1,0 +1,112 @@
+# April Fool's Day
+
+- Good morning.
+- Choco, what are you doing?
+- What's this?
+- Well, sir. That's my letter of resignation. I'm quitting. Thanks a bunch.
+- Oh, I don't have to call you, sir. Bye.
+- Why all of a sudden like this?
+- I bought a lottery ticket and won. So I'm gonna go travel around the world.
+- Choco. Oh, please don't leave me here alone with Wilk to find someone else. He's so useless.
+- Sir, you're really gullible, aren't you?
+- Today's April fool's. I was tricking you.
+- A little joke, huh? I don't like lies.
+- Know what I think? Let's pull a prank on Wilk.
+- Wilk? Oh sounds like fun. Do you have anything in mind?
+- This is a fake thermometer. You press it against the skin like so? Fake fever.
+- Oh, interesting. Oh, we're gonna get Wilk so good. I can't wait.
+***
+- These lollipops are the best. I can't wait to share them with everyone.
+- Wilk, come look. Master Bread is really sick.
+- Whoa! Master Bread!
+- See that? He has a fever and he's weak. It could be bad.
+- Oh, 112. Is that real?
+- Wilk, when I'm gone, look... look after the shop for me.
+- Master, don't talk like that. You live!
+- Get ahold of yourself. We need to figure out how to help him.
+- Wait, I know. I'll make him some healing soup.
+- That kid's a sucker.
+***
+- Some chili peppers, some garlic, oh, a little ginger. Perfect.
+- What is that?
+- My family's been making this recipe for years.
+- No one's sick after they drink this soup.
+- They either die instantly or get better.
+- What?
+- Voila. Bon appetit, Master Bread.
+- You drink that?
+- I know it doesn't smell good. But I'm sure if you drink it, you'll be good as new.
+- Is this really necessary?
+- Keep playing along. Chuck it down.
+- Looks like this is the only way to keep up the lose.
+- Wow, great job. Spicy foods are so good for colds. Drink it all up.
+- Ah!
+- Wilk, that's good stuff thanks a bunch.
+- He's still got a fever.
+- What next?
+- Oh, actually I feel fine.
+- Wait right there, sir.
+***
+- All the ice from the freezer should cool your body down.
+- Are you feeling better yet, sir?
+- It's not working one bit.
+- What?
+- He must have pneumonia.
+- Pneumonia? That's just supposed terrible.
+- Master Bread, climb on. I'll take you to the hospital.
+- Oh, that's not necessary.
+- Hang on! we're gonna play Wilk for a fool.
+- It'd be a shame to just stop here.
+- Hurry. If we leave now we'll get there soon.
+- Okay. sounds great.
+***
+- Someone help. we've got a case of pneumonia over here.
+- This friend used to just be a grumpy old man, but now he's sick and old.
+- Jeez. How old does he think I am?
+- Can you hear me, sir? We made it to the hospital. You pull through.
+- Please, sir. Can you hear me? How many fingers do you see?
+- Hold still.
+- What's the problem?
+- Doctor, please. This old bread has pneumonia and he's old with a fever, too.
+- Hmm... That first look he seems to be okay.
+- That can't be true he's over 112.
+- Hmm... well then, let's give him a shot immediately.
+- A shot?
+- It's just a little pinch.
+- Oh, please. I'm fine.
+- Sir, the patient appears to be unconscious.
+- Prepare the paddles. Crank to maximum heat. I won't lose another one.
+- Yes, sir.
+- Master, I am here. Everything is going to be fine.
+***
+- Nurse, maximum toasty level now.
+- Yes.
+- Our patient is awake again.
+- I didn't have to be burnt alive.
+- His temperature's still high. Not good.
+- Tell me doctor. Does it look like Master Bread will live?
+- There's only one thing left to do. Surgery.
+- Surgery? What kind of a quack doctor are you?
+- Master. You have to play along.
+- He almost burned me up. I'm finished with April fools. I'm done.
+- If you come clean to Wilk right now, he'll never trust you again. Even as a boss.
+- You've come this far, just a little more. This will be the greatest prank ever.
+- He's agreed to the surgery now.
+- What now? Let me go.
+- Master, if you don't pull through, I'll take good care of shop for you.
+- Oh, what the cross?
+- We'll start with a routine lofotamy.
+- A bread knife?
+- All right stop. it's fake. It was free from fools.
+- The thermometer was fake. Choco made me do it.
+- We just wanted to break poor Wilk.
+- Surprise!
+- Surprise?
+- That's right. Me and Choco were actually the ones pranking you all along.
+- We had to come in early just to prepare for this and that's something I never do.
+- And these two?
+- Oh, we're real, but we wanted to be in on the joke with them.
+- It was a lot of fun, too.
+- I have never been more frightened in my entire life.
+- You two are gonna be responsible for buying me new pads.
+- Forgive me, Master.

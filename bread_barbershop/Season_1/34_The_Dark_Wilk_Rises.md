@@ -60,14 +60,15 @@
 - Beware dark spirits. I'm about to knock the stuffing out of you.
 - Be gone nasty your milk. Be gone nasty your milk.
 - Come on. This is annoying.
-- You insolent brat. I'll knock those evil spirits out of ya yet.
-***
+- You insolent brat. I'll knock those evil spirits out of ya yet. Double bell power.
 - Sounds great. Let's speed things up.
+- Why you...
+***
 - Oh, I hurt my back.
 - Are you alright?
 - That was fun and you ruined it not cool.
 - Come on. Let's go for another round.
-- Such evil he delights in the suffering of others.
+- Such evil! He delights in the suffering of others.
 - He's strong. Too strong for us.
 - We must unite our powers.
 - In the name of cheese and crust.
