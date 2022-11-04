@@ -1,6 +1,7 @@
 # Cedric English Pronunciation
 
 ## Table of Contents
+- 00: Introduction
 - 04: /i:/ and /i/
 - 05: /e/ and /æ/
 - 06: /a/
