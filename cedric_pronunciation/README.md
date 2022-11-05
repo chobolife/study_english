@@ -2,6 +2,7 @@
 
 ## Table of Contents
 - 00: Introduction
+- 01: 단모음
 - 04: /i:/ and /i/
 - 05: /e/ and /æ/
 - 06: /a/
