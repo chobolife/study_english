@@ -1,24 +1,16 @@
 # It's The Most Wonderful Time Of The Year
 
 - It's the most wonderful time of the year
-- With the kids jingle belling
-- And everyone telling you "Be of good cheer"
+- With the kids jingle belling and everyone telling you "Be of good cheer"
 - It's the most wonderful time of the year
+
 - It's the hap-happiest season of all
-- With those holiday greetings and gay happy meetings
-- When friends come to call
+- With those holiday greetings and gay happy meetings when friends come to call
 - It's the hap-happiest season of all
 
-- There'll be parties for hosting
-- Marshmallows for toasting
-- And caroling out in the snow
-
-- There'll be scary ghost stories
-- And tales of the glories
-- Of Christmases long, long ago
+- There'll be parties for hosting marshmallows for toasting and caroling out in the snow
+- There'll be scary ghost stories and tales of the glories of Christmases long, long ago
 
 - It's the most wonderful time of the year
-- There'll be much mistletoeing
-- And hearts will be
-- glowing when loved ones are near
+- There'll be much mistletoeing and hearts will be glowing when loved ones are near
 - It's the most wonderful time of the year
