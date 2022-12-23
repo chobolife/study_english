@@ -4,6 +4,7 @@
 - At the Christmas party hop
 - Mistletoe hung where you can see
 - Every couple tries to stop
+***
 - Rocking around the Christmas tree
 - Let the Christmas spirit ring
 - Later we'll have some pumpkin pie
