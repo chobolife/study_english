@@ -3,7 +3,7 @@
 1. [Your Song Saved My Life](01_Your%20Song%20Saved%20My%20Life.md) _by U2_
 2. [Let's Go Crazy](02_Let's%20Go%20Crazy.md) _by Tori Kelly, Taron Egerton, Reese Witherspoon & Nick Kroll_
 3. [Can't Feel My Face](03_Can't%20Feel%20My%20Face.md) _by Kiana Ledé_
-4. [Goodbye Yellow Brick Road](04_Goodbye Yellow Brick Road.md)
+4. [Goodbye Yellow Brick Road](04_Goodbye%20Yellow%20Brick%20Road.md)
 5. [Heads Will Roll](05_Heads%20Will%20Roll.md) _by Scarlett Johansson_
 6. [Holes](06_Holes.md)
 7. [Bad Guy](07_Bad%20Guy.md)
@@ -20,4 +20,4 @@
 18. [Break Free](18_Break%20Free.md) _by Reese Witherspoon & Nick Kroll_
 19. [I Still Haven't Found What I'm Looking For](19_I%20Still%20Haven't%20Found%20What%20I'm%20Looking%20For.md) _by Scarlett Johansson_
 20. Tippy Toes _by Adam Buxton & Fancy Feelings_
-21. [Christmas (Baby Please Come Home)](21_Christmas%20Baby%20Please%20Come%20Home.md) _by Keke Palmer (Ft. Reese Witherspoon, Scarlet Johansson, Taron Egerton & Tori Kelly)_
+21. [Christmas (Baby Please Come Home)](21_Christmas%20%28Baby%20Please%20Come%20Home%29.md) _by Keke Palmer (Ft. Reese Witherspoon, Scarlet Johansson, Taron Egerton & Tori Kelly)_
