@@ -9,7 +9,7 @@
 7. [Bad Guy](07_Bad%20Guy.md)
 8. [Sing 2 Audition Medley](08_Sing%202%20Audition%20Medley.md) _by SING 2 Cast_
 9. [Where the Streets Have No Name](09_Where%20the%20Streets%20Have%20No%20Name.md) _by Tori Kelly, Taron Egerton, Scarlett Johansson, Reese Witherspoon & Nick Kroll_
-10. Higher Love
+10. [Higher Love](10_Higher%20Love.md)
 11. [There's Nothing Holdin' Me Back](11_There's%20Nothing%20Holdin'%20Me%20Back.md) _by Taron Egerton & Tori Kelly_
 12. [Suéltate](12_Suéltate.md) _by Sam I, Anitta, BIA & Jarian De Marco_
 13. [Stuck in A Moment You Can't Get Out Of](13_Stuck%20in%20A%20Moment%20You%20Can't%20Get%20Out%20Of.md) _by Scarlett Johansson_
