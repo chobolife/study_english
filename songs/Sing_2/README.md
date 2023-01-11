@@ -1,6 +1,6 @@
 # Sing 2 (Original Motion Picture Soundtrack)
 
-1. [Your Song Saved My Life](01_Your Song Saved My Life.md) _by U2_
+[Your Song Saved My Life](01_Your Song Saved My Life.md) _by U2_
 2. Let's Go Crazy _by Tori Kelly, Taron Egerton, Reese Witherspoon & Nick Kroll_
 3. Can't Feel My Face _by Kiana Ledé_
 4. Goodbye Yellow Brick Road
