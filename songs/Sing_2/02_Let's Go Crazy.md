@@ -3,7 +3,7 @@
 - Dearly beloved
 - We are gathered here today to get through this thing called life
 - Electric world life, it means forever and that's a mad and long time, but I'm here to tell you
-- There's somethin' else: the afterword
+- There's somethin' else: the afterworld
 - A world of never-ending happiness
 - You can always see the sun
 - Day or night
