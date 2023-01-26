@@ -35,7 +35,7 @@
 - "It could have been me" (It could have been me), "it could have been me" (It could have been me)
 - I wanna taste love and pain (I wanna taste love and pain)
 - I wanna feel pride and shame (I wanna feel pride and shame)
-- I don't wanna waste my time (I don't wanna waste my time)
+- I don't wanna take my time (I don't wanna waste my time)
 - I don't wanna waste one line (I don't wanna waste one line)
 - I wanna live better days
 - Never look back and say
