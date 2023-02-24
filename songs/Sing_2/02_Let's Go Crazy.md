@@ -41,7 +41,7 @@
 - When we do
 - What's it all for? (What's it all for?)
 - Better live now
-- Before the grim reaper comes knockin' on your door, tell me
+- Before the Grim Reaper comes knockin' on your door, tell me
 ***
 - Are we gonna let the elevator bring us down?
 - Oh, no, let's go!
@@ -49,7 +49,7 @@
 - Let's go crazy (Let's go crazy)
 - Let's get nuts (Let's get nuts)
 - Look for the purple bananas
-- 'Til they put us in the drop
+- 'Til they put us in the truck
 - Let's go!
 ***
 - Come on, baby
