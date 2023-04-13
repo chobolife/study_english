@@ -1,7 +1,7 @@
 # Cedric English Pronunciation
 
 ## Table of Contents
-- 00: Introduction
+- 00: [Introduction](00.md)
 - 01: 단모음
 - 03: 성조
 - 04: /i:/ and /i/
